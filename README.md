@@ -21,6 +21,9 @@
 <br>【360雲盤】：http://adf.ly/1V0vUt
 <br>【360雲盤】：http://www.linkbucks.com/bBce
 <br>【360密碼】：8aaa
+<br>【百度雲盤】：http://adf.ly/1V1kRh
+<br>【百度雲盤】：http://www.linkbucks.com/a6wS
+<br>【百度密碼】：av97
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-01-12（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -53,3 +56,30 @@
 <br>【360雲盤】：http://adf.ly/1V17ff
 <br>【360雲盤】：http://www.linkbucks.com/bAjB
 <br>【360密碼】：12b9
+
+<br>【節目名稱】：903 叱咤樂壇 2016-01-12（HD）
+<br>【節目主持】：謝茜嘉 | Colin
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1V1jg2
+<br>【360雲盤】：http://www.linkbucks.com/bDdP
+<br>【360密碼】：c924
+
+<br>【節目名稱】：881 人生交叉盤 2016-01-12（HD）
+<br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1V1jtr
+<br>【360雲盤】：http://www.linkbucks.com/bDcI
+<br>【360密碼】：11dc
+
+<br>【節目名稱】：903 口水多過浪花 2016-01-12（HD）
+<br>【節目主持】：鄭裕玲 | 占 | Donald
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1V1jyh
+<br>【360雲盤】：http://www.linkbucks.com/bDVL
+<br>【360密碼】：4e4f
+<br>【百度雲盤】：http://adf.ly/1V1kIR
+<br>【百度雲盤】：http://www.linkbucks.com/a9cb
+<br>【百度密碼】：q45m
