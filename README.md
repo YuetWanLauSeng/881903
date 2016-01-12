@@ -32,6 +32,8 @@
 <br>【360雲盤】：http://adf.ly/1V0vbA
 <br>【360雲盤】：http://www.linkbucks.com/bBcA
 <br>【360密碼】：d49d
+<br>【百度雲盤】：http://adf.ly/1V1nQ4
+<br>【百度密碼】：kjvd
 
 <br>【節目名稱】：903 早霸王 2016-01-12（HD）
 <br>【節目主持】：森美／阮小儀
@@ -40,6 +42,8 @@
 <br>【360雲盤】：http://adf.ly/1V0v2H
 <br>【360雲盤】：http://www.linkbucks.com/bBkF
 <br>【360密碼】：a46b
+<br>【百度雲盤】：http://adf.ly/1V1nkT
+<br>【百度密碼】：re57
 
 <br>【節目名稱】：881 1圈圈 2016-01-12（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -48,6 +52,8 @@
 <br>【360雲盤】：http://adf.ly/1V0uwX
 <br>【360雲盤】：http://www.linkbucks.com/bBkd
 <br>【360密碼】：95e4
+<br>【百度雲盤】：http://adf.ly/1V1nby
+<br>【百度密碼】：jcmh
 
 <br>【節目名稱】：881 十八樓C座 2016-01-12（HD）
 <br>【節目主持】：金剛 | 陳森 | 朱雪梅
@@ -56,6 +62,8 @@
 <br>【360雲盤】：http://adf.ly/1V17ff
 <br>【360雲盤】：http://www.linkbucks.com/bAjB
 <br>【360密碼】：12b9
+<br>【百度雲盤】：http://adf.ly/1V1ngK
+<br>【百度密碼】：qnxm
 
 <br>【節目名稱】：903 叱咤樂壇 2016-01-12（HD）
 <br>【節目主持】：謝茜嘉 | Colin
@@ -64,6 +72,8 @@
 <br>【360雲盤】：http://adf.ly/1V1jg2
 <br>【360雲盤】：http://www.linkbucks.com/bDdP
 <br>【360密碼】：c924
+<br>【百度雲盤】：http://adf.ly/1V1nWV
+<br>【百度密碼】：4hqb
 
 <br>【節目名稱】：881 人生交叉盤 2016-01-12（HD）
 <br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
