@@ -1,4 +1,4 @@
-<br>【節目名稱】：903 有誰共鳴 2016-01-13（HD）
+【節目名稱】：903 有誰共鳴 2016-01-13（HD）
 <br>【節目主持】：何利利 | 嘉賓主持
 <br>【節目時間】：06:00 - 07:00
 <br>【檔案名稱】：Share My Song
@@ -21,6 +21,9 @@
 <br>【360雲盤】：http://adf.ly/1V4IXm
 <br>【360雲盤】：http://www.linkbucks.com/bJPz
 <br>【360密碼】：5963
+<br>【百度雲盤】：http://adf.ly/1V65Ht
+<br>【百度雲盤】：http://www.linkbucks.com/bZHc
+<br>【百度密碼】：rvkn
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-01-13（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -29,6 +32,9 @@
 <br>【360雲盤】：http://adf.ly/1V4IbI
 <br>【360雲盤】：http://www.linkbucks.com/bJPD
 <br>【360密碼】：dfc4
+<br>【百度雲盤】：http://adf.ly/1V669i
+<br>【百度雲盤】：http://www.linkbucks.com/bZFe
+<br>【百度密碼】：qrej
 
 <br>【節目名稱】：903 早霸王 2016-01-13（HD）
 <br>【節目主持】：森美／阮小儀
@@ -37,6 +43,9 @@
 <br>【360雲盤】：http://adf.ly/1V4ILu
 <br>【360雲盤】：http://www.linkbucks.com/bJQx
 <br>【360密碼】：d45a
+<br>【百度雲盤】：http://adf.ly/1V661T
+<br><br>【百度雲盤】：http://www.linkbucks.com/bZF6
+<br>【百度密碼】：jnjy
 
 <br>【節目名稱】：881 1圈圈 2016-01-13（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -45,6 +54,9 @@
 <br>【360雲盤】：http://adf.ly/1V4IJ9
 <br>【360雲盤】：http://www.linkbucks.com/bJQ6
 <br>【360密碼】：8fc4
+<br>【百度雲盤】：http://adf.ly/1V65tE
+<br>【百度雲盤】：http://www.linkbucks.com/bZGR
+<br>【百度密碼】：grjm
 
 <br>【節目名稱】：903 叱咤樂壇 2016-01-13（HD）
 <br>【節目主持】：謝茜嘉 | Colin
@@ -53,6 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1V4ege
 <br>【360雲盤】：http://www.linkbucks.com/bPsT
 <br>【360密碼】：77b8
+<br>【百度雲盤】：http://adf.ly/1V65iS
+<br>【百度雲盤】：http://www.linkbucks.com/bZGw
+<br>【百度密碼】：hrcw
 
 <br>【節目名稱】：881 人生交叉盤 2016-01-13（HD）
 <br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
@@ -69,4 +84,6 @@
 <br>【360雲盤】：http://adf.ly/1V4eo8
 <br>【360雲盤】：http://www.linkbucks.com/bPrp
 <br>【360密碼】：e25d
-
+<br>【百度雲盤】：http://adf.ly/1V65XE
+<br>【百度雲盤】：http://www.linkbucks.com/bZHG
+<br>【百度密碼】：w9n1
