@@ -66,7 +66,7 @@
 <br>【節目主持】：鄭裕玲 | 占 | Donald
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br><br>【360雲盤】：http://adf.ly/1V4eo8
+<br>【360雲盤】：http://adf.ly/1V4eo8
 <br>【360雲盤】：http://www.linkbucks.com/bPrp
 <br>【360密碼】：e25d
 
