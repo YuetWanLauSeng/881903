@@ -92,6 +92,9 @@
 <br>【360雲盤】：http://adf.ly/1V9mNc
 <br>【360雲盤】：http://www.linkbucks.com/bix1
 <br>【360密碼】：2ca0
+<br>【百度雲盤】：http://adf.ly/1VA4mD
+<br>【百度雲盤】：http://www.linkbucks.com/bg19
+<br>【百度密碼】：ttpt
 
 <br>【節目名稱】：903 好出奇 2016-01-14（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -108,6 +111,9 @@
 <br>【360雲盤】：http://adf.ly/1V9mAw
 <br>【360雲盤】：http://www.linkbucks.com/biyZ
 <br>【360密碼】：c949
+<br>【百度雲盤】：http://adf.ly/1VA538
+<br>【百度雲盤】：http://www.linkbucks.com/bg03
+<br>【百度密碼】：a1bj
 
 <br>【節目名稱】：881 人民大道中 2016-01-14（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -116,3 +122,6 @@
 <br>【360雲盤】：http://adf.ly/1V9mJI
 <br>【360雲盤】：http://www.linkbucks.com/biyK
 <br>【360密碼】：5317
+<br>【百度雲盤】：http://adf.ly/1VA4ul
+<br>【百度雲盤】：http://www.linkbucks.com/bg1T
+<br>【百度密碼】：b5xe
