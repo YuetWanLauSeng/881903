@@ -125,3 +125,41 @@
 <br>【百度雲盤】：http://adf.ly/1VA4ul
 <br>【百度雲盤】：http://www.linkbucks.com/bg1T
 <br>【百度密碼】：b5xe
+
+<br>【節目名稱】：881 杏林茶 2016-01-14（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1VAHR4
+<br>【360雲盤】：http://www.linkbucks.com/bfZy
+<br>【360密碼】：0b16
+<br>【百度雲盤】：http://adf.ly/1VAHoU
+<br>【百度雲盤】：http://www.linkbucks.com/bfXe
+<br>【百度密碼】：vrcv
+
+<br>【節目名稱】：903 集雜志 2016-01-14（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1VAHWs
+<br>【360雲盤】：http://www.linkbucks.com/bfZj
+<br>【360密碼】：dd8c
+
+<br>【節目名稱】：903 雲妮鍾情 2016-01-14（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1VAHbd
+<br>【360雲盤】：http://www.linkbucks.com/bfYe
+<br>【360密碼】：91ce
+
+<br>【節目名稱】：881 串 2016-01-14（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1VAHFZ
+<br>【360雲盤】：http://www.linkbucks.com/bfb9
+<br>【360密碼】：78b6
+<br>【百度雲盤】：http://adf.ly/1VAHwa
+<br>【百度雲盤】：http://www.linkbucks.com/bfWy
+<br>【百度密碼】：xmwv
