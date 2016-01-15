@@ -13,6 +13,9 @@
 <br>【360雲盤】：http://adf.ly/1VCUDA
 <br>【360雲盤】：http://www.linkbucks.com/bzSE
 <br>【360密碼】：9e37
+<br>【百度雲盤】：http://adf.ly/1VDkVX
+<br>【百度雲盤】：http://www.linkbucks.com/bzZP
+<br>【百度密碼】：9dj5
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-01-15（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -21,6 +24,9 @@
 <br>【360雲盤】：http://adf.ly/1VCUHl
 <br>【360雲盤】：http://www.linkbucks.com/bzRM
 <br>【360密碼】：3a6c
+<br>【百度雲盤】：http://adf.ly/1VDkjk
+<br>【百度雲盤】：http://www.linkbucks.com/bzYd
+<br>【百度密碼】：8g2j
 
 <br>【節目名稱】：903 早霸王 2016-01-15（HD）
 <br>【節目主持】：森美／阮小儀
@@ -29,6 +35,9 @@
 <br>【360雲盤】：http://adf.ly/1VCUTt
 <br>【360雲盤】：http://www.linkbucks.com/bzOM
 <br>【360密碼】：c53b
+<br>【百度雲盤】：http://adf.ly/1VDkct
+<br>【百度雲盤】：http://www.linkbucks.com/bzYy
+<br>【百度密碼】：s3my
 
 <br>【節目名稱】：881 1圈圈 2016-01-15（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -45,3 +54,14 @@
 <br>【360雲盤】：http://adf.ly/1VCUZy
 <br>【360雲盤】：http://www.linkbucks.com/bzNP
 <br>【360密碼】：866e
+<br>【百度雲盤】：http://adf.ly/1VDksp
+<br>【百度雲盤】：http://www.linkbucks.com/bzX8
+<br>【百度密碼】：audw
+
+<br>【節目名稱】：903 口水多過浪花 2016-01-15（HD）
+<br>【節目主持】：鄭裕玲 | 占 | Donald
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1VDkNM
+<br>【360雲盤】：http://www.linkbucks.com/bzaQ
+<br>【360密碼】：d4e9
