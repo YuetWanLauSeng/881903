@@ -163,3 +163,33 @@
 <br>【百度雲盤】：http://adf.ly/1VAHwa
 <br>【百度雲盤】：http://www.linkbucks.com/bfWy
 <br>【百度密碼】：xmwv
+
+<br>【節目名稱】：881 光明頂 2016-01-14（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1VBd6i
+<br>【360雲盤】：http://www.linkbucks.com/bsnD
+<br>【360密碼】：acbd
+<br>【百度雲盤】：http://adf.ly/1VBdFw
+<br>【百度雲盤】：http://www.linkbucks.com/bsmh
+<br>【百度密碼】：pjmn
+
+<br>【節目名稱】：903 雙截棍 2016-01-14（HD）
+<br>【節目主持】：火火 | 余迪偉
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：More Amour
+<br>【360雲盤】：http://adf.ly/1VBd27
+<br>【360雲盤】：http://www.linkbucks.com/bsnQ
+<br>【360密碼】：b129
+<br>【百度雲盤】：http://adf.ly/1VBdCM
+<br>【百度雲盤】：http://www.linkbucks.com/bsmt
+<br>【百度密碼】：g97w
+
+<br>【節目名稱】：903 廣東爆谷 2016-01-14（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1VBcxQ
+<br>【360雲盤】：http://www.linkbucks.com/bsnb
+<br>【360密碼】：99c8
