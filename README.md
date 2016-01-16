@@ -148,6 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1VGWTc
 <br>【360雲盤】：http://www.linkbucks.com/b6Rc
 <br>【360密碼】：ad7d
+<br>【百度雲盤】：http://adf.ly/1VGhbD
+<br>【百度雲盤】：http://www.linkbucks.com/AZ3aB
+<br>【百度密碼】：2v7b
 
 <br>【節目名稱】：881 光明頂 2016-01-15（HD）
 <br>【節目主持】：陶傑
@@ -156,6 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1VGWYM
 <br>【360雲盤】：http://www.linkbucks.com/U7Ar
 <br>【360密碼】：fbb2
+<br>【百度雲盤】：http://adf.ly/1VGhVK
+<br>【百度雲盤】：http://www.linkbucks.com/AZ3jC
+<br>【百度密碼】：ea8s
 
 <br>【節目名稱】：903 雙截棍 2016-01-15（HD）
 <br>【節目主持】：火火 | 余迪偉
@@ -164,6 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1VGWPL
 <br>【360雲盤】：http://www.linkbucks.com/b6R5
 <br>【360密碼】：22c8
+<br>【百度雲盤】：http://adf.ly/1VGhS7
+<br>【百度雲盤】：http://www.linkbucks.com/AZ36f
+<br>【百度密碼】：vqf8
 
 <br>【節目名稱】：903 廣東爆谷 2016-01-15（HD）
 <br>【節目主持】：Colin
