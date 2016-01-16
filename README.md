@@ -83,3 +83,6 @@
 <br>【360雲盤】：http://adf.ly/1VHt2r
 <br>【360雲盤】：http://www.linkbucks.com/cDah
 <br>【360密碼】：cdb2
+<br>【百度雲盤】：http://adf.ly/1VHx0n
+<br>【百度雲盤】：http://www.linkbucks.com/cDDx
+<br>【百度密碼】：fct7
