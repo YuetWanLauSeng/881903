@@ -60,6 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1VLKah
 <br>【360雲盤】：http://www.linkbucks.com/cR0y
 <br>【360密碼】：3a3e
+<br>【百度雲盤】：http://adf.ly/1VLN2F
+<br>【百度雲盤】：http://www.linkbucks.com/cRkp
+<br>【百度密碼】：nfcc
 
 <br>【節目名稱】：903 咆哮山莊 2016-01-17（HD）
 <br>【節目主持】：903 DJ
@@ -68,6 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1VLKUC
 <br>【360雲盤】：http://www.linkbucks.com/cR1q
 <br>【360密碼】：4fdd
+<br>【百度雲盤】：http://adf.ly/1VLN74
+<br>【百度雲盤】：http://www.linkbucks.com/cRkZ
+<br>【百度密碼】：jadn
 
 <br>【節目名稱】：881 串 2016-01-17（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -76,6 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1VLKXM
 <br>【360雲盤】：http://www.linkbucks.com/cR1S
 <br>【360密碼】：c90a
+<br>【百度雲盤】：http://adf.ly/1VLNPF
+<br>【百度雲盤】：http://www.linkbucks.com/cRi6
+<br>【百度密碼】：xbsg
 
 <br>【節目名稱】：881 讀懂中國 2016-01-17（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -84,3 +93,6 @@
 <br>【360雲盤】：http://adf.ly/1VLKgW
 <br>【360雲盤】：http://www.linkbucks.com/cR0Z
 <br>【360密碼】：fcdf
+<br>【百度雲盤】：http://adf.ly/1VLNBx
+<br>【百度雲盤】：http://www.linkbucks.com/cRjq
+<br>【百度密碼】：2vtp
