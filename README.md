@@ -87,6 +87,24 @@
 <br>【百度雲盤】：http://www.linkbucks.com/cDDx
 <br>【百度密碼】：fct7
 
+<br>【節目名稱】：903 西瓜大發 ! 2016-01-16（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：WonderMelon !
+<br>【360雲盤】：http://adf.ly/1VKHQq
+<br>【360雲盤】：http://www.linkbucks.com/cPpt
+<br>【360密碼】：17a8
+<br>【百度雲盤】：http://adf.ly/1VKIC6
+<br>【百度雲盤】：http://www.linkbucks.com/cPjW
+<br>【百度密碼】：2iyv
+
+<br>【節目名稱】：881 雷霆音樂圈 2016-01-16（HD）
+<br>【節目主持】：楊美琪
+<br>【節目時間】：20:00 - 23:00
+<br>【檔案名稱】：881 Music Station
+<br>【360雲盤】：http://adf.ly/1VKHM4
+<br>【360雲盤】：http://www.linkbucks.com/cPqp
+<br>【360密碼】：e84a
 
 <br>【節目名稱】：903 公子會 2016-01-16（HD）
 <br>【節目主持】：森美
@@ -98,3 +116,25 @@
 <br>【百度雲盤】：http://adf.ly/1VKC9c
 <br>【百度雲盤】：http://www.linkbucks.com/cQFz
 <br>【百度密碼】：xymp
+
+<br>【節目名稱】：881 發式生活 2016-01-16（HD）
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1VKHVT
+<br>【360雲盤】：http://www.linkbucks.com/cPpN
+<br>【360密碼】：2e5d
+<br>【百度雲盤】：http://adf.ly/1VKI71
+<br>【百度雲盤】：http://www.linkbucks.com/cPj3
+<br>【百度密碼】：e667
+
+<br>【節目名稱】：903 皇牌出場 2016-01-16（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1VKHah
+<br>【360雲盤】：http://www.linkbucks.com/cPo0
+<br>【360密碼】：c777
+<br>【百度雲盤】：http://adf.ly/1VKI23
+<br>【百度雲盤】：http://www.linkbucks.com/cPkG
+<br>【百度密碼】：n3ut
