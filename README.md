@@ -45,3 +45,27 @@
 <br>【360雲盤】：http://adf.ly/1VTuN5
 <br>【360雲盤】：http://www.linkbucks.com/cwGv
 <br>【360密碼】：86f5
+
+<br>【節目名稱】：903 叱咤樂壇 2016-01-20（HD）
+<br>【節目主持】：謝茜嘉 | Colin
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1VUPha
+<br>【360雲盤】：http://www.linkbucks.com/c1o7
+<br>【360密碼】：6996
+
+<br>【節目名稱】：881 人生交叉盤 2016-01-20（HD）
+<br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1VUPkQ
+<br>【360雲盤】：http://www.linkbucks.com/c1ot
+<br>【360密碼】：199a
+
+<br>【節目名稱】：903 口水多過浪花 2016-01-20（HD）
+<br>【節目主持】：鄭裕玲 | 占 | Donald
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1VUPmp
+<br>【360雲盤】：http://www.linkbucks.com/c1oV
+<br>【360密碼】：662f
