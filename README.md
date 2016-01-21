@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1VXeIe
 <br>【360雲盤】：http://www.linkbucks.com/dC9N
 <br>【360密碼】：692c
+<br>【百度雲盤】：http://adf.ly/1VYdoW
+<br>【百度雲盤】：http://www.linkbucks.com/dJx0
+<br>【百度密碼】：18xj
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-01-21（HD）
 <br>【節目主持】：陳志雲 | 郭志仁 | 陳聰 | 謝遜
@@ -65,6 +68,9 @@
 <br>【360雲盤】：http://adf.ly/1VYH8p
 <br>【360雲盤】：http://www.linkbucks.com/dBE5
 <br>【360密碼】：1ad4
+<br>【百度雲盤】：http://adf.ly/1VYeLe
+<br>【百度雲盤】：http://www.linkbucks.com/dJvE
+<br>【百度密碼】：7dkd
 
 <br>【節目名稱】：881 人生交叉盤 2016-01-21（HD）
 <br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
@@ -73,6 +79,9 @@
 <br>【360雲盤】：http://adf.ly/1VYHD8
 <br>【360雲盤】：http://www.linkbucks.com/dBEp
 <br>【360密碼】：a213
+<br>【百度雲盤】：http://adf.ly/1VYdyo
+<br>【百度雲盤】：http://www.linkbucks.com/dJwr
+<br>【百度密碼】：xaqt
 
 <br>【節目名稱】：903 口水多過浪花 2016-01-21（HD）
 <br>【節目主持】：鄭裕玲 | 占 | Donald
