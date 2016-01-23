@@ -25,7 +25,7 @@
 <br>【360雲盤】：http://www.linkbucks.com/dfwr
 <br>【360密碼】：4180
 <br>【百度雲盤】：http://adf.ly/1Vggpr
-<br>百度雲盤】：http://www.linkbucks.com/dihU
+<br>【百度雲盤】：http://www.linkbucks.com/dihU
 <br>【百度密碼】：4na2
 
 <br>【節目名稱】：903 早霸王 2016-01-22（HD）
