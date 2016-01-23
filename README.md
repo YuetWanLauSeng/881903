@@ -54,6 +54,9 @@
 <br>【360雲盤】：http://adf.ly/1Vcipb
 <br>【360雲盤】：http://www.linkbucks.com/dfuy
 <br>【360密碼】：c22c
+<br>【百度雲盤】：http://adf.ly/1Vgjr8
+<br>【百度雲盤】：http://www.linkbucks.com/diT1
+<br>【百度密碼】：p3p2
 
 <br>【節目名稱】：903 叱咤樂壇 2016-01-22（HD）
 <br>【節目主持】：謝茜嘉 | Colin
