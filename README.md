@@ -86,10 +86,34 @@
 <br>【360雲盤】：http://www.linkbucks.com/dt3C
 <br>【360密碼】：8c7d
 
+<br>【節目名稱】：881 雷霆音樂圈 2016-01-23（HD）
+<br>【節目主持】：楊美琪
+<br>【節目時間】：20:00 - 23:00
+<br>【檔案名稱】：881 Music Station
+<br>【360雲盤】：http://adf.ly/1Vkuot
+<br>【360雲盤】：http://www.linkbucks.com/drxL
+<br>【360密碼】：8e1b
+
 <br>【節目名稱】：903 公子會 2016-01-23（HD）
 <br>【節目主持】：森美
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion
 <br>【360雲盤】：http://adf.ly/1VkghJ
-<br>【360雲盤】：
+<br>【360雲盤】：http://www.linkbucks.com/dqKo
 <br>【360密碼】：debb
+
+<br>【節目名稱】：881 發式生活 2016-01-23（HD）
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1Vkuc2
+<br>【360雲盤】：http://www.linkbucks.com/dpRm
+<br>【360密碼】：1ef4
+
+<br>【節目名稱】：903 皇牌出場 2016-01-23（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1VkujS
+<br>【360雲盤】：http://www.linkbucks.com/dpOW
+<br>【360密碼】：d8b1
