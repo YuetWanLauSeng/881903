@@ -137,3 +137,19 @@
 <br>【百度雲盤】：http://adf.ly/1Vn6nC
 <br>【百度雲盤】：http://www.linkbucks.com/d42S
 <br>【百度密碼】：xf1p
+
+【節目名稱】：881 靜默的革命 2016-01-24（HD）
+【節目主持】：林以諾
+【節目時間】：23:30 - 01:00
+【檔案名稱】：Sound of Silence
+【360雲盤】：http://adf.ly/1VoBUF
+【360雲盤】：http://www.linkbucks.com/eDHX
+【360密碼】：279e
+
+【節目名稱】：903 短期租約 2016-01-24（HD）
+【節目主持】：Wasabi
+【節目時間】：23:00 - 02:00
+【檔案名稱】：Short-term Lease
+【360雲盤】：http://adf.ly/1VoBL7
+【360雲盤】：http://www.linkbucks.com/eDH9
+【360密碼】：4988
