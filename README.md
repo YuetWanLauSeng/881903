@@ -87,3 +87,79 @@
 <br>【百度雲盤】：http://adf.ly/1Vz6AV
 <br>【百度雲盤】：http://www.linkbucks.com/esBW
 <br>【百度密碼】：qix3
+
+<br>【節目名稱】：881 大玩派 2016-01-27（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1VzYhF
+<br>【360雲盤】：http://www.linkbucks.com/eXlF
+<br>【360密碼】：548a
+<br>【百度雲盤】：http://adf.ly/1VzZ5x
+<br>【百度雲盤】：http://www.linkbucks.com/eXj4
+<br>【百度密碼】：pc82
+
+<br>【節目名稱】：903 好出奇 2016-01-27（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1VzYTN
+<br>【360雲盤】：http://www.linkbucks.com/eXnd
+<br>【360密碼】：491f
+
+<br>【節目名稱】：903 今日正 2016-01-27（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1VzYXO
+<br>【360雲盤】：http://www.linkbucks.com/eXmt
+<br>【360密碼】：dd71
+
+<br>【節目名稱】：881 人民大道中 2016-01-27（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1VzYbV
+<br>【360雲盤】：http://www.linkbucks.com/eXkK
+<br>【360密碼】：43af
+<br>【百度雲盤】：http://adf.ly/1VzZAo
+<br>【百度雲盤】：http://www.linkbucks.com/eQ0y
+<br>【百度密碼】：g7yn
+
+<br>【節目名稱】：881 杏林茶 2016-01-27（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1VzYev
+<br>【360雲盤】：http://www.linkbucks.com/eXka
+<br>【360密碼】：b3c6
+<br>【百度雲盤】：http://adf.ly/1VzZEQ
+<br>【百度雲盤】：http://www.linkbucks.com/eW8w
+<br>【百度密碼】：3st3
+
+<br>【節目名稱】：903 集雜志 2016-01-27（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1VzYkx
+<br>【360雲盤】：http://www.linkbucks.com/eXlU
+<br>【360密碼】：6dd3
+
+<br>【節目名稱】：881 串 2016-01-27（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1VzYnf
+<br>【360雲盤】：http://www.linkbucks.com/eXmE
+<br>【360密碼】：b5e0
+<br>【百度雲盤】：http://adf.ly/1VzZ2R
+<br>【百度雲盤】：http://www.linkbucks.com/eXkD
+<br>【百度密碼】：syxr
+
+<br>【節目名稱】：903 雲妮鍾情 2016-01-27（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1VzYqk
+<br>【360雲盤】：http://www.linkbucks.com/eXly
+<br>【360密碼】：59a4
