@@ -13,6 +13,9 @@
 <br>【360雲盤】：http://adf.ly/1W1aVW
 <br>【360雲盤】：http://www.linkbucks.com/ev9j
 <br>【360密碼】：6c47
+<br>【百度雲盤】：http://adf.ly/1W2aqm
+<br>【百度雲盤】：http://www.linkbucks.com/ezeN
+<br>【百度密碼】：74gr
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-01-28（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -21,6 +24,9 @@
 <br>【360雲盤】：http://adf.ly/1W1aa2
 <br>【360雲盤】：http://www.linkbucks.com/ev9e
 <br>【360密碼】：93f3
+<br>【百度雲盤】：http://adf.ly/1W2bjF
+<br>【百度雲盤】：http://www.linkbucks.com/ezbd
+<br>【百度密碼】：8xe7
 
 <br>【節目名稱】：903 早霸王 2016-01-28（HD）
 <br>【節目主持】：森美／阮小儀
@@ -48,6 +54,9 @@
 <br>【360雲盤】：http://adf.ly/1W1ady
 <br>【360雲盤】：http://www.linkbucks.com/ev9X
 <br>【360密碼】：4f8b
+<br>【百度雲盤】：http://adf.ly/1W2bas
+<br>【百度雲盤】：http://www.linkbucks.com/ezb0
+<br>【百度密碼】：ctqi
 
 <br>【節目名稱】：903 叱咤樂壇 2016-01-28（HD）
 <br>【節目主持】：謝茜嘉 | Colin
@@ -72,3 +81,6 @@
 <br>【360雲盤】：http://adf.ly/1W2EvX
 <br>【360雲盤】：http://www.linkbucks.com/e0qH
 <br>【360密碼】：04da
+<br>【百度雲盤】：http://adf.ly/1W2b6T
+<br>【百度雲盤】：http://www.linkbucks.com/ezcm
+<br>【百度密碼】：ez4x
