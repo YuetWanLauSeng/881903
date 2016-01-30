@@ -124,6 +124,9 @@
 <br>【360雲盤】：http://adf.ly/1W9WQx
 <br>【360雲盤】：http://www.linkbucks.com/fEWW
 <br>【360密碼】：3c78
+<br>【百度雲盤】：http://adf.ly/1W9mlH
+<br>【百度雲盤】：http://www.linkbucks.com/fDPs
+<br>【百度密碼】：gfqy
 
 <br>【節目名稱】：903 集雜志 2016-01-29（HD）
 <br>【節目主持】：急急子
@@ -140,6 +143,9 @@
 <br>【360雲盤】：http://adf.ly/1W9WnL
 <br>【360雲盤】：http://www.linkbucks.com/fESP
 <br>【360密碼】：9de0
+<br>【百度雲盤】：http://adf.ly/1W9mVV
+<br>【百度雲盤】：http://www.linkbucks.com/fDQk
+<br>【百度密碼】：2w9s
 
 <br>【節目名稱】：903 雲妮鍾情 2016-01-29（HD）
 <br>【節目主持】：Vani
@@ -156,6 +162,9 @@
 <br>【360雲盤】：http://adf.ly/1W9WfH
 <br>【360雲盤】：http://www.linkbucks.com/fETD
 <br>【360密碼】：2a88
+<br>【百度雲盤】：http://adf.ly/1W9mhc
+<br>【百度雲盤】：http://www.linkbucks.com/fDP8
+<br>【百度密碼】：bn4m
 
 <br>【節目名稱】：903 雙截棍 2016-01-29（HD）
 <br>【節目主持】：火火 | 余迪偉
@@ -164,6 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1W9Wkf
 <br>【360雲盤】：http://www.linkbucks.com/fESY
 <br>【360密碼】：8b67
+<br>【百度雲盤】：http://adf.ly/1W9n0N
+<br>【百度雲盤】：http://www.linkbucks.com/fDPE
+<br>【百度密碼】：vvvv
 
 <br>【節目名稱】：903 廣東爆谷 2016-01-29（HD）
 <br>【節目主持】：Colin
