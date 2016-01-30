@@ -85,3 +85,19 @@
 <br>【百度雲盤】：http://adf.ly/1WAuAh
 <br>【百度雲盤】：http://www.linkbucks.com/fo2K
 <br>【百度密碼】：wne9
+
+<br>【節目名稱】：881 雷霆音樂圈 2016-01-30（HD）
+<br>【節目主持】：楊美琪
+<br>【節目時間】：20:00 - 23:00
+<br>【檔案名稱】：881 Music Station
+<br>【百度雲盤】：http://adf.ly/1WBMk0
+<br>【百度雲盤】：http://www.linkbucks.com/fKQR
+<br>【百度密碼】：hvqw
+
+<br>【節目名稱】：903 公子會 2016-01-30（HD）
+<br>【節目主持】：森美
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The Playtoy Mansion
+<br>【百度雲盤】：http://adf.ly/1WBOh6
+<br>【百度雲盤】：http://www.linkbucks.com/fKA2
+<br>【百度密碼】：datk
