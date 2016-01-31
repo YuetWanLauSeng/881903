@@ -98,6 +98,28 @@
 <br>【節目主持】：森美
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion
+<br>【360雲盤】：http://adf.ly/1WD5Ez
+<br>【360雲盤】：http://www.linkbucks.com/fQq2
+<br>【360密碼】：4d25
 <br>【百度雲盤】：http://adf.ly/1WBOh6
 <br>【百度雲盤】：http://www.linkbucks.com/fKA2
 <br>【百度密碼】：datk
+
+<br>【節目名稱】：881 發式生活 2016-01-30（HD）
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【百度雲盤】：http://adf.ly/1WD54h
+<br>【百度雲盤】：http://www.linkbucks.com/fQq6
+<br>【百度密碼】：jfiw
+
+<br>【節目名稱】：903 皇牌出場 2016-01-30（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1WD5S1
+<br>【360雲盤】：http://www.linkbucks.com/fQp7
+<br>【360密碼】：f9df
+<br>【百度雲盤】：http://adf.ly/1WD50H
+<br>【百度雲盤】：http://www.linkbucks.com/fQrG
+<br>【百度密碼】：2pf1
