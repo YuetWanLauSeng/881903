@@ -60,6 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1WEkZg
 <br>【360雲盤】：http://www.linkbucks.com/fZjy
 <br>【360密碼】：270d
+<br>【百度雲盤】：http://adf.ly/1WEwqH
+<br>【百度雲盤】：http://www.linkbucks.com/fYRB
+<br>【百度密碼】：363e
 
 <br>【節目名稱】：903 扭扭擰擰扭扭擰 2016-01-31（HD）
 <br>【節目主持】：檸
