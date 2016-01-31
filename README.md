@@ -53,6 +53,14 @@
 <br>【百度雲盤】：http://www.linkbucks.com/fURs
 <br>【百度密碼】：p93k
 
+<br>【節目名稱】：903 兒童適宜 2016-01-31（HD）
+<br>【節目主持】：朱薰 | 陸永
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：Kiss Kiss Kids
+<br>【360雲盤】：http://adf.ly/1WEkZg
+<br>【360雲盤】：http://www.linkbucks.com/fZjy
+<br>【360密碼】：270d
+
 <br>【節目名稱】：903 扭扭擰擰扭扭擰 2016-01-31（HD）
 <br>【節目主持】：檸
 <br>【節目時間】：16:00 - 17:00
@@ -96,3 +104,11 @@
 <br>【百度雲盤】：http://adf.ly/1WEX9m
 <br>【百度雲盤】：http://www.linkbucks.com/fazk
 <br>【百度密碼】：2aqi
+
+<br>【節目名稱】：903 國語類 2016-01-31（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：18:00 - 21:00
+<br>【檔案名稱】：Bo Po Mo Fo
+<br>【360雲盤】：http://adf.ly/1WEkgQ
+<br>【360雲盤】：http://www.linkbucks.com/fZjC
+<br>【360密碼】：c0f0
