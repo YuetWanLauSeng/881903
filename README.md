@@ -72,3 +72,19 @@
 <br>【360雲盤】：http://adf.ly/1WLUEW
 <br>【360雲盤】：http://www.linkbucks.com/f90i
 <br>【360密碼】：ed63
+
+<br>【節目名稱】：881 大玩派 2016-02-02（HD） 
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁 
+<br>【節目時間】：15:00 - 17:00 
+<br>【檔案名稱】：The Fun Box 
+<br>【360雲盤】：http://adf.ly/1WLk9H
+<br>【360雲盤】：http://www.linkbucks.com/f7dt
+<br>【360密碼】：1211
+
+<br>【節目名稱】：903 好出奇 2016-02-02（HD） 
+<br>【節目主持】：朱薰 | 細So | Marco 
+<br>【節目時間】：16:00 - 18:00 
+<br>【檔案名稱】：Holy Tricky 
+<br>【360雲盤】：http://adf.ly/1WLjyK
+<br>【360雲盤】：http://www.linkbucks.com/f7ie
+<br>【360密碼】：cb81
