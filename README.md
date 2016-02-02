@@ -21,6 +21,9 @@
 <br>【360雲盤】：http://adf.ly/1WKzUn
 <br>【360雲盤】：http://www.linkbucks.com/f060
 <br>【360密碼】：7c2e
+<br>【百度雲盤】：http://adf.ly/1WLu5c
+<br>【百度雲盤】：http://www.linkbucks.com/f6eA
+<br>【百度密碼】：p8aa
 
 <br>【節目名稱】：903 早霸王 2016-02-02（HD）
 <br>【節目主持】：森美／阮小儀
@@ -48,6 +51,9 @@
 <br>【360雲盤】：http://adf.ly/1WKzXT
 <br>【360雲盤】：http://www.linkbucks.com/f06n
 <br>【360密碼】：fd7c
+<br>【百度雲盤】：http://adf.ly/1WLuBv
+<br>【百度雲盤】：http://www.linkbucks.com/f6di
+<br>【百度密碼】：cp2x
 
 <br>【節目名稱】：903 叱咤樂壇 2016-02-02（HD）
 <br>【節目主持】：謝茜嘉 | Colin
@@ -72,6 +78,9 @@
 <br>【360雲盤】：http://adf.ly/1WLUEW
 <br>【360雲盤】：http://www.linkbucks.com/f90i
 <br>【360密碼】：ed63
+<br>【百度雲盤】：http://adf.ly/1WLtio
+<br>【百度雲盤】：http://www.linkbucks.com/f6gC
+<br>【百度密碼】：mmym
 
 <br>【節目名稱】：881 大玩派 2016-02-02（HD） 
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁 
@@ -80,6 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1WLk9H
 <br>【360雲盤】：http://www.linkbucks.com/f7dt
 <br>【360密碼】：1211
+<br>【百度雲盤】：http://adf.ly/1WLtvm
+<br>【百度雲盤】：http://www.linkbucks.com/f6eg
+<br>【百度密碼】：61ju
 
 <br>【節目名稱】：903 好出奇 2016-02-02（HD） 
 <br>【節目主持】：朱薰 | 細So | Marco 
