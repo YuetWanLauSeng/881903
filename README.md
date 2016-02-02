@@ -32,9 +32,9 @@
 <br>【節目主持】：森美／阮小儀
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King
-<br>【360雲盤】：http://adf.ly/1WKykC
-<br>【360雲盤】：http://www.linkbucks.com/f1Oj
-<br>【360密碼】：3688
+<br>【360雲盤】：http://adf.ly/1WMIBN
+<br>【360雲盤】：http://www.linkbucks.com/gDpZ
+<br>【360密碼】：196c
 <br>【百度雲盤】：http://adf.ly/1WLilA
 <br>【百度雲盤】：http://www.linkbucks.com/f7pT
 <br>【百度密碼】：2yg8
