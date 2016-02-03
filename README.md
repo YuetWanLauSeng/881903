@@ -92,6 +92,9 @@
 <br>【360雲盤】：http://adf.ly/1WPSEd
 <br>【360雲盤】：http://www.linkbucks.com/gNop
 <br>【360密碼】：68dd
+<br>【百度雲盤】：http://adf.ly/1WPYdx
+<br>【百度雲盤】：http://www.linkbucks.com/gNAE
+<br>【百度密碼】：u5hk
 
 <br>【節目名稱】：903 好出奇 2016-02-03（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -100,6 +103,9 @@
 <br>【360雲盤】：http://adf.ly/1WPSKY
 <br>【360雲盤】：http://www.linkbucks.com/gNoQ
 <br>【360密碼】：0052
+<br>【百度雲盤】：http://adf.ly/1WPYTZ
+<br>【百度雲盤】：http://www.linkbucks.com/gNAw
+<br>【百度密碼】：78hh
 
 <br>【節目名稱】：903 今日正 2016-02-03（HD）
 <br>【節目主持】：梁文禮 | 麻利亞
@@ -108,3 +114,6 @@
 <br>【360雲盤】：http://adf.ly/1WPS97
 <br>【360雲盤】：http://www.linkbucks.com/gNpB
 <br>【360密碼】：5f17
+<br>【百度雲盤】：http://adf.ly/1WPYZz
+<br>【百度雲盤】：http://www.linkbucks.com/gNAX
+<br>【百度密碼】：7fh2
