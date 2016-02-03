@@ -13,6 +13,9 @@
 <br>【360雲盤】：http://adf.ly/1WOVwV
 <br>【360雲盤】：http://www.linkbucks.com/gVOv
 <br>【360密碼】：6d2d
+<br>【百度雲盤】：http://adf.ly/1WP7Xe
+<br>【百度雲盤】：http://www.linkbucks.com/gGve
+<br>【百度密碼】：bbg4
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-02-03（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -21,6 +24,9 @@
 <br>【360雲盤】：http://adf.ly/1WOW7w
 <br>【360雲盤】：http://www.linkbucks.com/gVOA
 <br>【360密碼】：5646
+<br>【百度雲盤】：http://adf.ly/1WP7c5
+<br>【百度雲盤】：http://www.linkbucks.com/gGuv
+<br>【百度密碼】：nmky
 
 <br>【節目名稱】：903 早霸王 2016-02-03（HD）
 <br>【節目主持】：森美／阮小儀
@@ -48,3 +54,33 @@
 <br>【360雲盤】：http://adf.ly/1WOVz4
 <br>【360雲盤】：http://www.linkbucks.com/gVOt
 <br>【360密碼】：5c0d
+<br>【百度雲盤】：http://adf.ly/1WP7fz
+<br>【百度雲盤】：http://www.linkbucks.com/gGuZ
+<br>【百度密碼】：tx13
+
+<br>【節目名稱】：903 叱咤樂壇 2016-02-03（HD）
+<br>【節目主持】：謝茜嘉 | Colin
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1WP7LD
+<br>【360雲盤】：http://www.linkbucks.com/gGwt
+<br>【360密碼】：928d
+
+<br>【節目名稱】：881 人生交叉盤 2016-02-03（HD）
+<br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1WP7Po
+<br>【360雲盤】：http://www.linkbucks.com/gGwe
+<br>【360密碼】：8e45
+
+<br>【節目名稱】：903 口水多過浪花 2016-02-03（HD）
+<br>【節目主持】：鄭裕玲 | 占 | Donald
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1WP7Rs
+<br>【360雲盤】：http://www.linkbucks.com/gGwN
+<br>【360密碼】：d3e2
+<br>【百度雲盤】：http://adf.ly/1WP7zI
+<br>【百度雲盤】：http://www.linkbucks.com/gGrt
+<br>【百度密碼】：uwe8
