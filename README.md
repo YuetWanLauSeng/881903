@@ -111,6 +111,9 @@
 <br>【360雲盤】：http://adf.ly/1WSb3B
 <br>【360雲盤】：http://www.linkbucks.com/gkFd
 <br>【360密碼】：060f
+<br>【百度雲盤】：http://adf.ly/1WSieE
+<br>【百度雲盤】：http://www.linkbucks.com/gg45
+<br>【百度密碼】：g456
 
 <br>【節目名稱】：881 人民大道中 2016-02-04（HD）
 <br>【節目主持】：黃永 | 健吾
