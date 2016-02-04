@@ -103,6 +103,9 @@
 <br>【360雲盤】：http://adf.ly/1WSb73
 <br>【360雲盤】：http://www.linkbucks.com/gjsK
 <br>【360密碼】：abeb
+<br>【百度雲盤】：http://adf.ly/1WSnr7
+<br>【百度雲盤】：http://www.linkbucks.com/gfZ2
+<br>【百度密碼】：2m99
 
 <br>【節目名稱】：903 今日正 2016-02-04（HD）
 <br>【節目主持】：梁文禮 | 麻利亞
@@ -144,6 +147,9 @@
 <br>【360雲盤】：http://adf.ly/1WSk3s
 <br>【360雲盤】：http://www.linkbucks.com/ggeY
 <br>【360密碼】：2f41
+<br>【百度雲盤】：http://adf.ly/1WSnYL
+<br>【百度雲盤】：http://www.linkbucks.com/gfhh
+<br>【百度密碼】：i9yy
 
 <br>【節目名稱】：881 串 2016-02-04（HD）
 <br>【節目主持】：潘小濤 | 何亦文
