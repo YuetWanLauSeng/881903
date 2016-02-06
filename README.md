@@ -59,11 +59,17 @@
 <br>【360雲盤】：http://adf.ly/1WZQGv
 <br>【360雲盤】：http://www.linkbucks.com/g6R8
 <br>【360密碼】：01e8
+<br>【百度雲盤】：http://adf.ly/1WZVza
+<br>【百度雲盤】：http://www.linkbucks.com/hCbt
+<br>【百度密碼】：g7ha
 
-<br>【節目名稱】：903 3號螺絲釘 2016-02-06（HD）
-<br>【節目主持】：Colin
-<br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Screw No.3
-<br>【360雲盤】：http://adf.ly/1WZQGv
-<br>【360雲盤】：http://www.linkbucks.com/g6R8
-<br>【360密碼】：01e8
+<br>【節目名稱】：903 西瓜大發 ! 2016-02-06（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：WonderMelon !
+<br>【360雲盤】：http://adf.ly/1WZQO4
+<br>【360雲盤】：http://www.linkbucks.com/g6Rm
+<br>【360密碼】：8148
+<br>【百度雲盤】：http://adf.ly/1WZWMG
+<br>【百度雲盤】：http://www.linkbucks.com/hCZ5
+<br>【百度密碼】：1yvp
