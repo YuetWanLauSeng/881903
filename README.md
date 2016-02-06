@@ -13,6 +13,9 @@
 <br>【360雲盤】：http://adf.ly/1WYnoG
 <br>【360雲盤】：http://www.linkbucks.com/g27I
 <br>【360密碼】：e725
+<br>【百度雲盤】：http://adf.ly/1WYsg9
+<br>【百度雲盤】：http://www.linkbucks.com/g2RT
+<br>【百度密碼】：4w96
 
 <br>【節目名稱】：903 903 專業推介 2016-02-06（HD）
 <br>【節目主持】：Donald
@@ -29,11 +32,14 @@
 <br>【360雲盤】：http://adf.ly/1WYnse
 <br>【360雲盤】：http://www.linkbucks.com/g269
 <br>【360密碼】：a07e
+<br>【百度雲盤】：http://adf.ly/1WYsw6
+<br>【百度雲盤】：http://www.linkbucks.com/g2NJ
+<br>【百度密碼】：ph8s
 
 <br>【節目名稱】：903 滑鼠商店街 2016-02-06（HD）
 <br>【節目主持】：麻利亞
 <br>【節目時間】：14:00 - 15:00
-<br><br>【檔案名稱】：Shopping Cart
+<br>【檔案名稱】：Shopping Cart
 <br>【360雲盤】：http://adf.ly/1WYo0S
 <br>【360雲盤】：http://www.linkbucks.com/g29z
 <br>【360密碼】：ef8a
