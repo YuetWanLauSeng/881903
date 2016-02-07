@@ -127,3 +127,27 @@
 <br>【百度雲盤】：http://adf.ly/1Wc9lG
 <br>【百度雲盤】：http://www.linkbucks.com/hOxP
 <br>【百度密碼】：w4wx
+
+<br>【節目名稱】：881 串 2016-02-07（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：18:30 - 19:00
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1WcSKt
+<br>【360雲盤】：http://www.linkbucks.com/hczO
+<br>【360密碼】：c26a
+
+<br>【節目名稱】：881 讀懂中國 2016-02-07（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：19:00 - 20:00
+<br>【檔案名稱】：Sino Stream - Reading
+<br>【360雲盤】：http://adf.ly/1WcSWk
+<br>【360雲盤】：http://www.linkbucks.com/hcx3
+<br>【360密碼】：9e81
+
+<br>【節目名稱】：903 國語類 2016-02-07（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：18:00 - 21:00
+<br>【檔案名稱】：Bo Po Mo Fo
+<br>【360雲盤】：http://adf.ly/1WcSSn
+<br>【360雲盤】：http://www.linkbucks.com/hczC
+<br>【360密碼】：40fb
