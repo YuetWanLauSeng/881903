@@ -135,6 +135,9 @@
 <br>【360雲盤】：http://adf.ly/1WcSKt
 <br>【360雲盤】：http://www.linkbucks.com/hczO
 <br>【360密碼】：c26a
+<br>【百度雲盤】：http://adf.ly/1WcXZD
+<br>【百度雲盤】：http://www.linkbucks.com/hbvv
+<br>【百度密碼】：sax2
 
 <br>【節目名稱】：881 讀懂中國 2016-02-07（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -143,6 +146,9 @@
 <br>【360雲盤】：http://adf.ly/1WcSWk
 <br>【360雲盤】：http://www.linkbucks.com/hcx3
 <br>【360密碼】：9e81
+<br>【百度雲盤】：http://adf.ly/1WcXfz
+<br>【百度雲盤】：http://www.linkbucks.com/hbn1
+<br>【百度密碼】：ugbv
 
 <br>【節目名稱】：903 國語類 2016-02-07（HD）
 <br>【節目主持】：Vani
