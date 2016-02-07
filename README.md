@@ -61,6 +61,9 @@
 <br>【360雲盤】：http://adf.ly/1Wc4yA
 <br>【360雲盤】：http://www.linkbucks.com/hQpH
 <br>【360密碼】：49c6
+<br>【百度雲盤】：http://adf.ly/1WcA2K
+<br>【百度雲盤】：http://www.linkbucks.com/hPE6
+<br>【百度密碼】：cg5b
 
 <br>【節目名稱】：903 阿叔殖民地 2016-02-07（HD）
 <br>【節目主持】：何兆基
@@ -69,6 +72,9 @@
 <br>【360雲盤】：http://adf.ly/1WbzGg
 <br>【360雲盤】：http://www.linkbucks.com/hR77
 <br>【360密碼】：c584
+<br>【百度雲盤】：http://adf.ly/1WcA6p
+<br>【百度雲盤】：http://www.linkbucks.com/hPe0
+<br>【百度密碼】：d7qr
 
 <br>【節目名稱】：903 讀賣Sunday 2016-02-07（HD）
 <br>【節目主持】：占 | 王貽興
@@ -77,6 +83,9 @@
 <br>【360雲盤】：http://adf.ly/1WbzE1
 <br>【360雲盤】：http://www.linkbucks.com/hSU4
 <br>【360密碼】：3494
+<br>【百度雲盤】：http://adf.ly/1Wc9wo
+<br>【百度雲盤】：http://www.linkbucks.com/hO5s
+<br>【百度密碼】：ura7
 
 <br>【節目名稱】：903 兒童適宜 2016-02-07（HD）
 <br>【節目主持】：朱薰 | 陸永
@@ -85,6 +94,9 @@
 <br>【360雲盤】：http://adf.ly/1WbzJW
 <br>【360雲盤】：http://www.linkbucks.com/hQWL
 <br>【360密碼】：7aff
+<br>【百度雲盤】：http://adf.ly/1Wc9tW
+<br>【百度雲盤】：http://www.linkbucks.com/hO3D
+<br>【百度密碼】：27u3
 
 <br>【節目名稱】：881 1圈圈 2016-02-07（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -101,6 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1Wc6ra
 <br>【360雲盤】：http://www.linkbucks.com/hQb5
 <br>【360密碼】：e6f6
+<br>【百度雲盤】：http://adf.ly/1Wc9pN
+<br>【百度雲盤】：http://www.linkbucks.com/hOyl
+<br>【百度密碼】：7ttg
 
 <br>【節目名稱】：903 咆哮山莊 2016-02-07（HD）
 <br>【節目主持】：903 DJ
@@ -109,3 +124,6 @@
 <br>【360雲盤】：http://adf.ly/1Wc6zB
 <br>【360雲盤】：http://www.linkbucks.com/hP8P
 <br>【360密碼】：9fea
+<br>【百度雲盤】：http://adf.ly/1Wc9lG
+<br>【百度雲盤】：http://www.linkbucks.com/hOxP
+<br>【百度密碼】：w4wx
