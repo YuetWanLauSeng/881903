@@ -81,3 +81,25 @@
 <br>【360雲盤】：http://adf.ly/1WbGhW
 <br>【360雲盤】：http://www.linkbucks.com/AC7PY
 <br>【360密碼】：f3c4
+<br>【百度雲盤】：http://adf.ly/1WbMN6
+<br>【百度雲盤】：http://www.linkbucks.com/hLeG
+<br>【百度密碼】：395v
+
+<br>【節目名稱】：881 發式生活 2016-02-06（HD）
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1WbOKI
+<br>【360雲盤】：http://www.linkbucks.com/hLHc
+<br>【360密碼】：90c7
+
+<br>【節目名稱】：903 皇牌出場 2016-02-06（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1WbOEm
+<br>【360雲盤】：http://www.linkbucks.com/hLH0
+<br>【360密碼】：303f
+<br>【百度雲盤】：http://adf.ly/1WbNtV
+<br>【百度雲盤】：http://www.linkbucks.com/hLNO
+<br>【百度密碼】：xf7r
