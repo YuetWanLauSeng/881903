@@ -60,6 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1WePdK
 <br>【360雲盤】：http://www.linkbucks.com/hWPb
 <br>【360密碼】：fc91
+<br>【百度雲盤】：http://adf.ly/1WeQil
+<br>【百度雲盤】：http://www.linkbucks.com/hWFT
+<br>【百度密碼】：knja
 
 <br>【節目名稱】：903 叱咤樂壇 2016-02-08（HD）
 <br>【節目主持】：謝茜嘉 | Colin
@@ -84,3 +87,6 @@
 <br>【360雲盤】：http://adf.ly/1WePgA
 <br>【360雲盤】：http://www.linkbucks.com/hWPN
 <br>【360密碼】：4af6
+<br>【百度雲盤】：http://adf.ly/1WeT87
+<br>【百度雲盤】：http://www.linkbucks.com/hVwi
+<br>【百度密碼】：jbqt
