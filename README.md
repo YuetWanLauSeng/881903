@@ -90,3 +90,35 @@
 <br>【百度雲盤】：http://adf.ly/1WeT87
 <br>【百度雲盤】：http://www.linkbucks.com/hVwi
 <br>【百度密碼】：jbqt
+
+<br>【節目名稱】：881 大玩派 2016-02-08（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1WekiB
+<br>【360雲盤】：http://www.linkbucks.com/hcVb
+<br>【360密碼】：6d32
+
+<br>【節目名稱】：903 好出奇 2016-02-08（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1Wekc0
+<br>【360雲盤】：http://www.linkbucks.com/hcWO
+<br>【360密碼】：b8b2
+
+<br>【節目名稱】：903 今日正 2016-02-08（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1WekpV
+<br>【360雲盤】：http://www.linkbucks.com/hcUd
+<br>【360密碼】：6afc
+
+<br>【節目名稱】：881 人民大道中 2016-02-08（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1Weklt
+<br>【360雲盤】：http://www.linkbucks.com/hcU7
+<br>【360密碼】：2c03
