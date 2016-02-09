@@ -49,6 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1Wh4Nd
 <br>【360雲盤】：http://www.linkbucks.com/s0DJ
 <br>【360密碼】：9882
+<br>【百度雲盤】：http://adf.ly/1Wh694
+<br>【百度雲盤】：http://www.linkbucks.com/tOV5
+<br>【百度密碼】：idh3
 
 <br>【節目名稱】：881 1圈圈 2016-02-09（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
