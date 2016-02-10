@@ -95,6 +95,9 @@
 <br>【360雲盤】：http://adf.ly/1Wk8CK
 <br>【360雲盤】：http://www.linkbucks.com/3OQt
 <br>【360密碼】：11de
+<br>【百度雲盤】：http://adf.ly/1WkAAa
+<br>【百度雲盤】：http://www.linkbucks.com/3kMq
+<br>【百度密碼】：n63d
 
 <br>【節目名稱】：881 杏林茶 2016-02-10（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -103,6 +106,9 @@
 <br>【360雲盤】：http://adf.ly/1Wk8Fm
 <br>【360雲盤】：http://www.linkbucks.com/3ONs
 <br>【360密碼】：6f23
+<br>【百度雲盤】：http://adf.ly/1WkA06
+<br>【百度雲盤】：http://www.linkbucks.com/3ljZ
+<br>【百度密碼】：2dfr
 
 <br>【節目名稱】：903 集雜志 2016-02-10（HD）
 <br>【節目主持】：急急子
