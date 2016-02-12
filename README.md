@@ -104,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1WqaH5
 <br>【360雲盤】：http://www.linkbucks.com/ANAMo
 <br>【360密碼】：63c1
+<br>【百度雲盤】：http://adf.ly/1WqokT
+<br>【百度雲盤】：http://www.linkbucks.com/AOtZW
+<br>【百度密碼】：mn3r
 
 <br>【節目名稱】：903 好出奇 2016-02-12（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -112,6 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1WqZOT
 <br>【360雲盤】：http://www.linkbucks.com/ANKV6
 <br>【360密碼】：5187
+<br>【百度雲盤】：http://adf.ly/1Wqove
+<br>【百度雲盤】：http://www.linkbucks.com/AOtGA
+<br>【百度密碼】：ycst
 
 <br>【節目名稱】：903 今日正 2016-02-12（HD）
 <br>【節目主持】：梁文禮 | 麻利亞
@@ -120,6 +126,9 @@
 <br>【360雲盤】：http://adf.ly/1WqZhY
 <br>【360雲盤】：http://www.linkbucks.com/ANE12
 <br>【360密碼】：51cf
+<br>【百度雲盤】：http://adf.ly/1Wqoe3
+<br>【百度雲盤】：http://www.linkbucks.com/AOuHs
+<br>【百度密碼】：4bfp
 
 <br>【節目名稱】：881 人民大道中 2016-02-12（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -128,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1WqZkT
 <br>【360雲盤】：http://www.linkbucks.com/ANEdb
 <br>【360密碼】：3a45
+<br>【百度雲盤】：http://adf.ly/1Wqoox
+<br>【百度雲盤】：http://www.linkbucks.com/AOtTz
+<br>【百度密碼】：uc2c
 
 <br>【節目名稱】：881 杏林茶 2016-02-12（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -136,6 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1Wqk77
 <br>【360雲盤】：http://www.linkbucks.com/AONxd
 <br>【360密碼】：d241
+<br>【百度雲盤】：http://adf.ly/1WqoOZ
+<br>【百度雲盤】：http://www.linkbucks.com/AOumQ
+<br>【百度密碼】：qehp
 
 <br>【節目名稱】：903 集雜志 2016-02-12（HD）
 <br>【節目主持】：急急子
@@ -144,6 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1Wqk38
 <br>【360雲盤】：http://www.linkbucks.com/AON16
 <br>【360密碼】：a8fc
+<br>【百度雲盤】：http://adf.ly/1WqoUi
+<br>【百度雲盤】：http://www.linkbucks.com/AOucq
+<br>【百度密碼】：ib73
 
 <br>【節目名稱】：881 串 2016-02-12（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -152,4 +170,6 @@
 <br>【360雲盤】：http://adf.ly/1WqkD6
 <br>【360雲盤】：http://www.linkbucks.com/AONnC
 <br>【360密碼】：7564
-
+<br>【百度雲盤】：http://adf.ly/1Wqoa5
+<br>【百度雲盤】：http://www.linkbucks.com/AOuNg
+<br>【百度密碼】：kbfw
