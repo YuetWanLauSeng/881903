@@ -173,3 +173,25 @@
 <br>【百度雲盤】：http://adf.ly/1Wqoa5
 <br>【百度雲盤】：http://www.linkbucks.com/AOuNg
 <br>【百度密碼】：kbfw
+
+<br>【節目名稱】：903 雲妮鍾情 2016-02-12（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1WqyJC
+<br>【360雲盤】：http://www.linkbucks.com/APhKt
+<br>【360密碼】：4fc2
+<br>【百度雲盤】：http://adf.ly/1Wqy6T
+<br>【百度雲盤】：http://www.linkbucks.com/APhZE
+<br>【百度密碼】：mz3d
+
+<br>【節目名稱】：881 光明頂 2016-02-12（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1WqybF
+<br>【360雲盤】：http://www.linkbucks.com/APfai
+<br>【360密碼】：a87b
+<br>【百度雲盤】：http://adf.ly/1WqyFM
+<br>【百度雲盤】：http://www.linkbucks.com/APhPa
+<br>【百度密碼】：nm5m
