@@ -96,3 +96,27 @@
 <br>【百度雲盤】：http://adf.ly/1WtTxu
 <br>【百度雲盤】：http://www.linkbucks.com/hc0t
 <br>【百度密碼】：xac2
+
+<br>【節目名稱】：903 公子會 2016-02-13（HD）
+<br>【節目主持】：森美
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The Playtoy Mansion
+<br>【360雲盤】：http://adf.ly/1Wus4x
+<br>【360雲盤】：http://www.linkbucks.com/hhXc
+<br>【360密碼】：6e1d
+
+<br>【節目名稱】：881 發式生活 2016-02-13（HD）
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1Wus09
+<br>【360雲盤】：http://www.linkbucks.com/hhpJ
+<br>【360密碼】：40e1
+
+<br>【節目名稱】：903 皇牌出場 2016-02-13（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1Wus2p
+<br>【360雲盤】：http://www.linkbucks.com/hhYs
+<br>【360密碼】：6c1e
