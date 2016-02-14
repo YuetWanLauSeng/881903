@@ -104,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1Wus4x
 <br>【360雲盤】：http://www.linkbucks.com/hhXc
 <br>【360密碼】：6e1d
+<br>【百度雲盤】：http://adf.ly/1WuvqW
+<br>【百度雲盤】：http://www.linkbucks.com/hgfP
+<br>【百度密碼】：chhk
 
 <br>【節目名稱】：881 發式生活 2016-02-13（HD）
 <br>【節目主持】：余宜發
@@ -112,6 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1Wus09
 <br>【360雲盤】：http://www.linkbucks.com/hhpJ
 <br>【360密碼】：40e1
+<br>【百度雲盤】：http://adf.ly/1WuvnG
+<br>【百度雲盤】：http://www.linkbucks.com/hgfa
+<br>【百度密碼】：67ja
 
 <br>【節目名稱】：903 皇牌出場 2016-02-13（HD）
 <br>【節目主持】：Marco | Keyman
@@ -120,3 +126,6 @@
 <br>【360雲盤】：http://adf.ly/1Wus2p
 <br>【360雲盤】：http://www.linkbucks.com/hhYs
 <br>【360密碼】：6c1e
+<br>【百度雲盤】：http://adf.ly/1WuvjG
+<br>【百度雲盤】：http://www.linkbucks.com/hgfn
+<br>【百度密碼】：9twb
