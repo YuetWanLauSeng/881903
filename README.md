@@ -77,6 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1WwDht
 <br>【360雲盤】：http://www.linkbucks.com/hgtQ
 <br>【360密碼】：87cc
+<br>【百度雲盤】：http://adf.ly/1WwS3S
+<br>【百度雲盤】：http://www.linkbucks.com/hrOh
+<br>【百度密碼】：2qe5
 
 <br>【節目名稱】：903 兒童適宜 2016-02-14（HD）
 <br>【節目主持】：朱薰 | 陸永
@@ -93,6 +96,9 @@
 <br>【360雲盤】：http://adf.ly/1WwHZi
 <br>【360雲盤】：http://www.linkbucks.com/g7Gb
 <br>【360密碼】：4a8c
+<br>【百度雲盤】：http://adf.ly/1WwQeO
+<br>【百度雲盤】：http://www.linkbucks.com/hrXm
+<br>【百度密碼】：9nsk
 
 <br>【節目名稱】：903 咆哮山莊 2016-02-14（HD）
 <br>【節目主持】：903 DJ
@@ -101,6 +107,9 @@
 <br>【360雲盤】：http://adf.ly/1WwHeX
 <br>【360雲盤】：http://www.linkbucks.com/g51k
 <br>【360密碼】：e823
+<br>【百度雲盤】：http://adf.ly/1WwQV1
+<br>【百度雲盤】：http://www.linkbucks.com/hrYv
+<br>【百度密碼】：a25a
 
 <br>【節目名稱】：881 串 2016-02-14（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -109,6 +118,9 @@
 <br>【360雲盤】：http://adf.ly/1WwHnR
 <br>【360雲盤】：http://www.linkbucks.com/g5YX
 <br>【360密碼】：702e
+<br>【百度雲盤】：http://adf.ly/1WwQQh
+<br>【百度雲盤】：http://www.linkbucks.com/hrcx
+<br>【百度密碼】：y8c3
 
 <br>【節目名稱】：881 讀懂中國 2016-02-14（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -117,6 +129,9 @@
 <br>【360雲盤】：http://adf.ly/1WwHv0
 <br>【360雲盤】：http://www.linkbucks.com/g4qm
 <br>【360密碼】：d26d
+<br>【百度雲盤】：http://adf.ly/1WwQYx
+<br>【百度雲盤】：http://www.linkbucks.com/hrYk
+<br>【百度密碼】：npt8
 
 <br>【節目名稱】：903 國語類 2016-02-14（HD）
 <br>【節目主持】：Vani
@@ -133,6 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1WwNSZ
 <br>【360雲盤】：http://www.linkbucks.com/hr5K
 <br>【360密碼】：2f3c
+<br>【百度雲盤】：http://adf.ly/1WwRzm
+<br>【百度雲盤】：http://www.linkbucks.com/hrO4
+<br>【百度密碼】：h5q3
 
 <br>【節目名稱】：881 葛民教育 2016-02-14（HD）
 <br>【節目主持】：葛民輝
@@ -141,3 +159,6 @@
 <br>【360雲盤】：http://adf.ly/1WwNVp
 <br>【360雲盤】：http://www.linkbucks.com/hr5A
 <br>【360密碼】：991f
+<br>【百度雲盤】：http://adf.ly/1WwRvk
+<br>【百度雲盤】：http://www.linkbucks.com/hrPL
+<br>【百度密碼】：jdfv
