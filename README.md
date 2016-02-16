@@ -161,10 +161,13 @@
 <br>【360雲盤】：http://www.linkbucks.com/iHXy
 <br>【360密碼】：d033
 
-<br>【節目名稱】：881 光明頂 2016-02-16（HD）
-<br>【節目主持】：陶傑
-<br>【節目時間】：23:00 - 00:00
-<br>【檔案名稱】：Summit
-<br>【360雲盤】：http://adf.ly/1X1EkB
-<br>【360雲盤】：http://www.linkbucks.com/iHUA
+<br>【節目名稱】：881 光明頂 2016-02-16（HD） 
+<br>【節目主持】：陶傑 
+<br>【節目時間】：23:00 - 00:00 
+<br>【檔案名稱】：Summit 
+<br>【360雲盤】：http://adf.ly/1X1EkB 
+<br>【360雲盤】：http://www.linkbucks.com/iHUA 
 <br>【360密碼】：7b0a
+<br>【百度雲盤】：http://adf.ly/1X2KMZ
+<br>【百度雲盤】：http://www.linkbucks.com/iMg0
+<br>百度密碼】：c6s5
