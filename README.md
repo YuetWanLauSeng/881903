@@ -113,7 +113,9 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：http
+<br>【360雲盤】：http://adf.ly/1X4hT7
+<br>【360雲盤】：http://www.linkbucks.com/iOqP
+<br>【360密碼】：55fb
 
 <br>【節目名稱】：903 雲妮鍾情 2016-02-17（HD）
 <br>【節目主持】：Vani
