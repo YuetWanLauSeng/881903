@@ -144,3 +144,11 @@
 <br>【360雲盤】：http://adf.ly/1X7OYp
 <br>【360雲盤】：http://www.linkbucks.com/iceU
 <br>【360密碼】：f229
+
+<br>【節目名稱】：881 串 2016-02-18（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1X7SCD
+<br>【360雲盤】：http://www.linkbucks.com/icFa
+<br>【360密碼】：9c4f
