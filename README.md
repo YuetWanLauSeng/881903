@@ -152,3 +152,19 @@
 <br>【360雲盤】：http://adf.ly/1X7SCD
 <br>【360雲盤】：http://www.linkbucks.com/icFa
 <br>【360密碼】：9c4f
+
+<br>【節目名稱】：903 雲妮鍾情 2016-02-18（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1X7fJf
+<br>【360雲盤】：http://www.linkbucks.com/iaqU
+<br>【360密碼】：61d8
+
+<br>【節目名稱】：881 光明頂 2016-02-18（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1X7fcc
+<br>【360雲盤】：http://www.linkbucks.com/iapZ
+<br>【360密碼】：078f
