@@ -180,6 +180,9 @@
 <br>【360雲盤】：http://adf.ly/1X7fcc
 <br>【360雲盤】：http://www.linkbucks.com/iapZ
 <br>【360密碼】：078f
+<br>【百度雲盤】：http://adf.ly/1X8fsW
+<br>【百度雲盤】：http://www.linkbucks.com/iWiQ
+<br>【百度密碼】：dyia
 
 <br>【節目名稱】：903 雙截棍 2016-02-18（HD）
 <br>【節目主持】：火火 | 余迪偉
@@ -188,6 +191,9 @@
 <br>【360雲盤】：http://adf.ly/1X8fcy
 <br>【360雲盤】：http://www.linkbucks.com/iWzG
 <br>【360密碼】：4d20
+<br>【百度雲盤】：http://adf.ly/1X8foS
+<br>【百度雲盤】：http://www.linkbucks.com/iWwK
+<br>【百度密碼】：4hfu
 
 <br>【節目名稱】：903 廣東爆谷 2016-02-18（HD）
 <br>【節目主持】：Colin
