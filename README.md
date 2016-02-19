@@ -84,3 +84,51 @@
 <br>【百度雲盤】：http://adf.ly/1X9vZC
 <br>【百度雲盤】：http://www.linkbucks.com/ips2
 <br>【百度密碼】：72qc
+
+<br>【節目名稱】：881 大玩派 2016-02-19（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1XA2N2
+<br>【360雲盤】：http://www.linkbucks.com/io2k
+<br>【360密碼】：bc63
+
+<br>【節目名稱】：903 好出奇 2016-02-19（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1XA2U2
+<br>【360雲盤】：http://www.linkbucks.com/io2L
+<br>【360密碼】：c5c7
+
+<br>【節目名稱】：903 今日正 2016-02-19（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1XA2XX
+<br>【360雲盤】：http://www.linkbucks.com/io2A
+<br>【360密碼】：f420
+
+<br>【節目名稱】：881 人民大道中 2016-02-19（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1XA2m9
+<br>【360雲盤】：http://www.linkbucks.com/io1L
+<br>【360密碼】：24f2
+
+<br>【節目名稱】：881 杏林茶 2016-02-19（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1XA2J4
+<br>【360雲盤】：http://www.linkbucks.com/io3d
+<br>【360密碼】：d70e
+
+<br>【節目名稱】：903 集雜志 2016-02-19（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1XA2Qi
+<br>【360雲盤】：http://www.linkbucks.com/io2U
+<br>【360密碼】：9895
