@@ -92,6 +92,9 @@
 <br>【360雲盤】：http://adf.ly/1XA2N2
 <br>【360雲盤】：http://www.linkbucks.com/io2k
 <br>【360密碼】：bc63
+<br>【百度雲盤】：http://adf.ly/1XABsW
+<br>【百度雲盤】：http://www.linkbucks.com/in73
+<br>【百度密碼】：rbdg
 
 <br>【節目名稱】：903 好出奇 2016-02-19（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -116,6 +119,9 @@
 <br>【360雲盤】：http://adf.ly/1XA2m9
 <br>【360雲盤】：http://www.linkbucks.com/io1L
 <br>【360密碼】：24f2
+<br>【百度雲盤】：http://adf.ly/1XAByF
+<br>【百度雲盤】：http://www.linkbucks.com/in7A
+<br>【百度密碼】：gjp8
 
 <br>【節目名稱】：881 杏林茶 2016-02-19（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -124,6 +130,9 @@
 <br>【360雲盤】：http://adf.ly/1XA2J4
 <br>【360雲盤】：http://www.linkbucks.com/io3d
 <br>【360密碼】：d70e
+<br>【百度雲盤】：http://adf.ly/1XAC1g
+<br>【百度雲盤】：http://www.linkbucks.com/in6z
+<br>【百度密碼】：q3hv
 
 <br>【節目名稱】：903 集雜志 2016-02-19（HD）
 <br>【節目主持】：急急子
