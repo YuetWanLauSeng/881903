@@ -179,6 +179,9 @@
 <br>【360雲盤】：http://adf.ly/1XBwdg
 <br>【360雲盤】：http://www.linkbucks.com/i1eo
 <br>【360密碼】：c191
+<br>【百度雲盤】：http://adf.ly/1XBzcK
+<br>【百度雲盤】：http://www.linkbucks.com/i1ME
+<br>【百度密碼】：uxsu
 
 <br>【節目名稱】：903 廣東爆谷 2016-02-19（HD）
 <br>【節目主持】：Colin
