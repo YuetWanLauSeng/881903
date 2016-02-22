@@ -22,7 +22,7 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）
 <br>【360雲盤】：http://adf.ly/1XInxM
-<br>【360雲盤】：http://www.linkbucks.com/jIFG
+<br>【360雲盤】：http://www.linkbucks.com/AWMDQ
 <br>【360密碼】：b5a2
 <br>【百度雲盤】：http://adf.ly/1XJxkG
 <br>【百度雲盤】：http://www.linkbucks.com/A3Hsz
