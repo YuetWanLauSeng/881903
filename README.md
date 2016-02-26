@@ -24,6 +24,9 @@
 <br>【360雲盤】：http://adf.ly/1XUgow
 <br>【360雲盤】：http://www.linkbucks.com/j7Lr
 <br>【360密碼】：bb29
+<br>【百度雲盤】：http://adf.ly/1XVdI2
+<br>【百度雲盤】：http://www.linkbucks.com/kDRK
+<br>【百度密碼】：xiez
 
 <br>【節目名稱】：903 早霸王 2016-02-26（HD）
 <br>【節目主持】：森美 | 阮小儀
@@ -32,6 +35,9 @@
 <br>【360雲盤】：http://adf.ly/1XUgia
 <br>【360雲盤】：http://www.linkbucks.com/j7Mj
 <br>【360密碼】：7108
+<br>【百度雲盤】：http://adf.ly/1XVdBc
+<br>【百度雲盤】：http://www.linkbucks.com/kDSd
+<br>【百度密碼】：3hjj
 
 <br>【節目名稱】：881 1圈圈 2016-02-26（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -75,3 +81,6 @@
 <br>【360雲盤】：http://adf.ly/1XUzmr
 <br>【360雲盤】：http://www.linkbucks.com/j3RD
 <br>【360密碼】：6abc
+<br>【百度雲盤】：http://adf.ly/1XVd4O
+<br>【百度雲盤】：http://www.linkbucks.com/kDSI
+<br>【百度密碼】：ujw7
