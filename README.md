@@ -13,6 +13,9 @@
 <br>【360雲盤】：http://adf.ly/1XUgmt
 <br>【360雲盤】：http://www.linkbucks.com/j7L7
 <br>【360密碼】：d452
+<br>【百度雲盤】：http://adf.ly/1XV1OH
+<br>【百度雲盤】：http://www.linkbucks.com/j3FP
+<br>【百度密碼】：tu48
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-02-26（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -45,6 +48,9 @@
 <br>【360雲盤】：http://adf.ly/1XUiGs
 <br>【360雲盤】：http://www.linkbucks.com/j6mM
 <br>【360密碼】：320c
+<br>【百度雲盤】：http://adf.ly/1XV1Si
+<br>【百度雲盤】：http://www.linkbucks.com/j3E2
+<br>【百度密碼】：bjwd
 
 <br>【節目名稱】：903 叱咤樂壇 2016-02-26（HD）
 <br>【節目主持】：謝茜嘉 | Colin
