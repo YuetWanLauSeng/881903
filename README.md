@@ -1,189 +1,71 @@
-<br>【節目名稱】：903 早安，同學早! 2016-02-26（HD）
-<br>【節目主持】：西瓜
-<br>【節目時間】：07:00 - 08:00
-<br>【檔案名稱】：Hey, Learners!
-<br>【360雲盤】：http://adf.ly/1XUgkj
-<br>【360雲盤】：http://www.linkbucks.com/j7MO
-<br>【360密碼】：b192
-
-<br>【節目名稱】：881 在晴朗的一天出發 2016-02-26（HD）
-<br>【節目主持】：陳志雲 | 郭志仁 | 陳聰 | 謝遜
-<br>【節目時間】：06:30 - 10:00
-<br>【檔案名稱】：On a Clear Day（881）
-<br>【360雲盤】：http://adf.ly/1XUgmt
-<br>【360雲盤】：http://www.linkbucks.com/j7L7
-<br>【360密碼】：d452
-<br>【百度雲盤】：http://adf.ly/1XV1OH
-<br>【百度雲盤】：http://www.linkbucks.com/j3FP
-<br>【百度密碼】：tu48
-
-<br>【節目名稱】：903 在晴朗的一天出發 2016-02-26（HD）
-<br>【節目主持】：林海峰 | 阮子健 | 潘小濤
+<br>【節目名稱】：881 政經星期六 2016-02-27（HD）
+<br>【節目主持】：陳淑薇 | 羅輝
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：On a Clear Day（903）
-<br>【360雲盤】：http://adf.ly/1XUgow
-<br>【360雲盤】：http://www.linkbucks.com/j7Lr
-<br>【360密碼】：bb29
-<br>【百度雲盤】：http://adf.ly/1XVdI2
-<br>【百度雲盤】：http://www.linkbucks.com/kDRK
-<br>【百度密碼】：xiez
+<br>【檔案名稱】：Saturday Forum
+<br>【360雲盤】：http://adf.ly/1XYm6z
+<br>【360雲盤】：http://www.linkbucks.com/jUYv
+<br>【360密碼】：b00e
 
-<br>【節目名稱】：903 早霸王 2016-02-26（HD）
-<br>【節目主持】：森美 | 阮小儀
-<br>【節目時間】：10:00 - 12:00
-<br>【檔案名稱】：Good Morning King
-<br>【360雲盤】：http://adf.ly/1XUgia
-<br>【360雲盤】：http://www.linkbucks.com/j7Mj
-<br>【360密碼】：7108
-<br>【百度雲盤】：http://adf.ly/1XVdBc
-<br>【百度雲盤】：http://www.linkbucks.com/kDSd
-<br>【百度密碼】：3hjj
+<br>【節目名稱】：881 不平平則鳴 2016-02-27（HD）
+<br>【節目主持】：陳聰 | 王永平
+<br>【節目時間】：10:00 - 11:00
+<br>【檔案名稱】：LegCo Inside-Out
+<br>【360雲盤】：http://adf.ly/1XYlcH
+<br>【360雲盤】：http://www.linkbucks.com/jnAB
+<br>【360密碼】：fbce
 
-<br>【節目名稱】：881 1圈圈 2016-02-26（HD）
-<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
-<br>【節目時間】：10:30 - 12:00
-<br>【檔案名稱】：Circles
-<br>【360雲盤】：http://adf.ly/1XUgfw
-<br>【360雲盤】：http://www.linkbucks.com/j7Mw
-<br>【360密碼】：8d97
+<br>【節目名稱】：903 903 專業推介 2016-02-27（HD）
+<br>【節目主持】：Donald
+<br>【節目時間】：11:00 - 13:00
+<br>【檔案名稱】：903 Top 20
+<br>【360雲盤】：http://adf.ly/1XYlY5
+<br>【360雲盤】：http://www.linkbucks.com/jpGs
+<br>【360密碼】：4209
 
-<br>【節目名稱】：881 十八樓C座 2016-02-26（HD）
-<br>【節目主持】：金剛 | 陳森 | 朱雪梅
-<br>【節目時間】：12:30 - 13:00
-<br>【檔案名稱】：18F Block C
-<br>【360雲盤】：http://adf.ly/1XUiGs
-<br>【360雲盤】：http://www.linkbucks.com/j6mM
-<br>【360密碼】：320c
-<br>【百度雲盤】：http://adf.ly/1XV1Si
-<br>【百度雲盤】：http://www.linkbucks.com/j3E2
-<br>【百度密碼】：bjwd
+<br>【節目名稱】：903 咪芝蓮 2016-02-27（HD）
+<br>【節目主持】：小儀
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Mr Chef
+<br>【360雲盤】：http://adf.ly/1XYlf4
+<br>【360雲盤】：http://www.linkbucks.com/jldy
+<br>【360密碼】：c214
 
-<br>【節目名稱】：903 叱咤樂壇 2016-02-26（HD）
-<br>【節目主持】：謝茜嘉 | Colin
-<br>【節目時間】：12:00 - 14:00
-<br>【檔案名稱】：903 Music
-<br>【360雲盤】：http://adf.ly/1XUzih
-<br>【360雲盤】：http://www.linkbucks.com/j3Rc
-<br>【360密碼】：491d
-
-<br>【節目名稱】：881 人生交叉盤 2016-02-26（HD）
-<br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
+<br>【節目名稱】：903 滑鼠商店街 2016-02-27（HD）
+<br>【節目主持】：麻利亞
 <br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：http://adf.ly/1XUzkf
-<br>【360雲盤】：http://www.linkbucks.com/j3RI
-<br>【360密碼】：3794
+<br>【檔案名稱】：Shopping Cart
+<br>【360雲盤】：http://adf.ly/1XYmDH
+<br>【360雲盤】：http://www.linkbucks.com/jQ1v
+<br>【360密碼】：468c
 
-<br>【節目名稱】：903 口水多過浪花 2016-02-26（HD）
-<br>【節目主持】：鄭裕玲 | 占 | Donald
-<br>【節目時間】：14:00 - 16:00
-<br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：http://adf.ly/1XUzmr
-<br>【360雲盤】：http://www.linkbucks.com/j3RD
-<br>【360密碼】：6abc
-<br>【百度雲盤】：http://adf.ly/1XVd4O
-<br>【百度雲盤】：http://www.linkbucks.com/kDSI
-<br>【百度密碼】：ujw7
+<br>【節目名稱】：881 1圈圈 2016-02-27（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1XYm4S
+<br>【360雲盤】：http://www.linkbucks.com/jWlY
+<br>【360密碼】：516a
 
-<br>【節目名稱】：881 大玩派 2016-02-26（HD）
-<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目名稱】：903 903 豁達推介 2016-02-27（HD）
+<br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：http://adf.ly/1XVdlj
-<br>【360雲盤】：http://www.linkbucks.com/kDQM
-<br>【360密碼】：6a57
-<br>【百度雲盤】：http://adf.ly/1XVmGg
-<br>【百度雲盤】：http://www.linkbucks.com/kCOj
-<br>【百度密碼】：7ixb
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1XYlnA
+<br>【360雲盤】：http://www.linkbucks.com/jhFh
+<br>【360密碼】：7607
 
-<br>【節目名稱】：903 好出奇 2016-02-26（HD）
-<br>【節目主持】：朱薰 | 細So | Marco
-<br>【節目時間】：16:00 - 18:00
-<br>【檔案名稱】：Holy Tricky
-<br>【360雲盤】：http://adf.ly/1XVdY4
-<br>【360雲盤】：http://www.linkbucks.com/kDTF
-<br>【360密碼】：22db
-
-<br>【節目名稱】：903 今日正 2016-02-26（HD）
-<br>【節目主持】：梁文禮 | 麻利亞
-<br>【節目時間】：18:00 - 20:00
-<br>【檔案名稱】：Make My Day
-<br>【360雲盤】：http://adf.ly/1XVdc1
-<br>【360雲盤】：http://www.linkbucks.com/kDSz
-<br>【360密碼】：c414
-
-<br>【節目名稱】：881 人民大道中 2016-02-26（HD）
-<br>【節目主持】：黃永 | 健吾
-<br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：http://adf.ly/1XVdg3
-<br>【360雲盤】：http://www.linkbucks.com/kDQp
-<br>【360密碼】：d387
-<br>【百度雲盤】：http://adf.ly/1XVmP7
-<br>【百度雲盤】：http://www.linkbucks.com/kCJs
-<br>【百度密碼】：rh5i
-
-<br>【節目名稱】：881 杏林茶 2016-02-26（HD）
-<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
-<br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Tea For You
-<br>【360雲盤】：http://adf.ly/1XVe22
-<br>【360雲盤】：http://www.linkbucks.com/kDPG
-<br>【360密碼】：e91e
-<br>【百度雲盤】：http://adf.ly/1XVmL3
-<br>【百度雲盤】：http://www.linkbucks.com/kCNq
-<br>【百度密碼】：1c9h
-
-<br>【節目名稱】：903 集雜志 2016-02-26（HD）
-<br>【節目主持】：急急子
-<br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Zine
-<br>【360雲盤】：http://adf.ly/1XVe5q
-<br>【360雲盤】：http://www.linkbucks.com/kDOn
-<br>【360密碼】：c15c
-
-<br>【節目名稱】：881 串 2016-02-26（HD）
-<br>【節目主持】：潘小濤 | 何亦文
-<br>【節目時間】：22:00 - 22:30
-<br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：http://adf.ly/1XVm52
-<br>【360雲盤】：http://www.linkbucks.com/kCT0
-<br>【360密碼】：03ae
-<br>【百度雲盤】：http://adf.ly/1XVmBj
-<br>【百度雲盤】：http://www.linkbucks.com/kCQe
-<br>【百度密碼】：ped8
-
-<br>【節目名稱】：903 雲妮鍾情 2016-02-26（HD）
-<br>【節目主持】：Vani
-<br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：http://adf.ly/1XVwC8
-<br>【360雲盤】：http://www.linkbucks.com/j9Lm
-<br>【360密碼】：9075
-
-<br>【節目名稱】：881 光明頂 2016-02-26（HD）
-<br>【節目主持】：陶傑
-<br>【節目時間】：23:00 - 00:00
-<br>【檔案名稱】：Summit
-<br>【360雲盤】：http://adf.ly/1XVwFt
-<br>【360雲盤】：http://www.linkbucks.com/kAtX
-<br>【360密碼】：18c9
-<br>【百度雲盤】：http://adf.ly/1XVwPz
-<br>【百度雲盤】：http://www.linkbucks.com/kAsg
-<br>【百度密碼】：rp2r
-
-<br>【節目名稱】：903 雙截棍 2016-02-26（HD）
-<br>【節目主持】：火火 | 余迪偉
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：More Amour
-<br>【360雲盤】：http://adf.ly/1XXYnl
-<br>【360雲盤】：http://www.linkbucks.com/kbAz
-<br>【360密碼】：0e76
-
-<br>【節目名稱】：903 廣東爆谷 2016-02-26（HD）
+<br>【節目名稱】：903 3號螺絲釘 2016-02-27（HD）
 <br>【節目主持】：Colin
-<br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：http://adf.ly/1XXYk5
-<br>【360雲盤】：http://www.linkbucks.com/kbBc
-<br>【360密碼】：d527
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Screw No.3
+<br>【360雲盤】：http://adf.ly/1XYmAc
+<br>【360雲盤】：http://www.linkbucks.com/h3a3
+<br>【360密碼】：8bce
+
+<br>【節目名稱】：903 西瓜大發 ! 2016-02-27（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：WonderMelon !
+<br>【360雲盤】：http://adf.ly/1XYmGO
+<br>【360雲盤】：http://www.linkbucks.com/jNCo
+<br>【360密碼】：5995
