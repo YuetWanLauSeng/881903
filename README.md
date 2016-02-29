@@ -168,3 +168,6 @@
 <br>【360雲盤】：http://adf.ly/1Xea85
 <br>【360雲盤】：http://www.linkbucks.com/k2dT
 <br>【360密碼】：6493
+<br>【百度雲盤】：http://adf.ly/1XebZv
+<br>【百度雲盤】：http://www.linkbucks.com/k2bE
+<br>【百度密碼】：j4mv
