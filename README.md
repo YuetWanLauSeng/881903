@@ -1,103 +1,47 @@
-<br>【節目名稱】：881 政好星期天 2016-02-28（HD）
-<br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
+<br>【節目名稱】：903 早安，同學早! 2016-02-29（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：07:00 - 08:00
+<br>【檔案名稱】：Hey, Learners!
+<br>【360雲盤】：http://adf.ly/1XdR4M
+<br>【360雲盤】：http://www.linkbucks.com/knLa
+<br>【360密碼】：568e
+
+<br>【節目名稱】：881 在晴朗的一天出發 2016-02-29（HD）
+<br>【節目主持】：陳志雲 | 郭志仁 | 陳聰 | 謝遜
+<br>【節目時間】：06:30 - 10:00
+<br>【檔案名稱】：On a Clear Day（881）
+<br>【360雲盤】：http://adf.ly/1XdR6n
+<br>【360雲盤】：http://www.linkbucks.com/knLI
+<br>【360密碼】：660f
+
+<br>【節目名稱】：903 在晴朗的一天出發 2016-02-29（HD）
+<br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：Beautiful Sunday
-<br>【360雲盤】：http://adf.ly/1XbIcK
-<br>【360雲盤】：http://www.linkbucks.com/kmWn
-<br>【360密碼】：497b
+<br>【檔案名稱】：On a Clear Day（903）
+<br>【360雲盤】：http://adf.ly/1XdR8r
+<br>【360雲盤】：http://www.linkbucks.com/knK3
+<br>【360密碼】：c3d8
 
-<br>【節目名稱】：903 阿叔殖民地 2016-02-28（HD）
-<br>【節目主持】：何兆基
-<br>【節目時間】：11:00 - 12:00
-<br>【檔案名稱】：Music Frog
-<br>【360雲盤】：http://adf.ly/1XbIlJ
-<br>【360雲盤】：http://www.linkbucks.com/kmTO
-<br>【360密碼】：030a
+<br>【節目名稱】：903 早霸王 2016-02-29（HD）
+<br>【節目主持】：森美 | 阮小儀
+<br>【節目時間】：10:00 - 12:00
+<br>【檔案名稱】：Good Morning King
+<br>【360雲盤】：http://adf.ly/1XdQl8
+<br>【360雲盤】：http://www.linkbucks.com/knNB
+<br>【360密碼】：9f38
 
-<br>【節目名稱】：903 讀賣Sunday 2016-02-28（HD）
-<br>【節目主持】：占 | 王貽興
-<br>【節目時間】：12:00 - 14:00
-<br>【檔案名稱】：Sunny Day Readings
-<br>【360雲盤】：http://adf.ly/1XbIz4
-<br>【360雲盤】：http://www.linkbucks.com/kmPa
-<br>【360密碼】：85b0
+<br>【節目名稱】：881 1圈圈 2016-02-29（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：10:30 - 12:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1XdQfP
+<br>【360雲盤】：http://www.linkbucks.com/knPn
+<br>【360密碼】：044f
 
-<br>【節目名稱】：903 兒童適宜 2016-02-28（HD）
-<br>【節目主持】：朱薰 | 陸永
-<br>【節目時間】：14:00 - 16:00
-<br>【檔案名稱】：Kiss Kiss Kids
-<br>【360雲盤】：http://adf.ly/1XbIi7
-<br>【360雲盤】：http://www.linkbucks.com/kmWg
-<br>【360密碼】：99ac
-
-<br>【節目名稱】：903 扭扭擰擰扭扭擰 2016-02-28（HD）
-<br>【節目主持】：檸
-<br>【節目時間】：16:00 - 17:00
-<br>【檔案名稱】：Twisty Risky Story
-<br>【360雲盤】：http://adf.ly/1XbJ2h
-<br>【360雲盤】：http://www.linkbucks.com/kmOL
-<br>【360密碼】：c3c0
-
-<br>【節目名稱】：903 咆哮山莊 2016-02-28（HD）
-<br>【節目主持】：903 DJ
-<br>【節目時間】：17:00 - 18:00
-<br>【檔案名稱】：903 Band Time
-<br>【360雲盤】：http://adf.ly/1XbIWJ
-<br>【360雲盤】：http://www.linkbucks.com/kmZf
-<br>【360密碼】：881d
-
-<br>【節目名稱】：881 串 2016-02-28（HD）
-<br>【節目主持】：潘小濤 | 何亦文
-<br>【節目時間】：18:30 - 19:00
-<br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：http://adf.ly/1XbnaX
-<br>【360雲盤】：http://www.linkbucks.com/ke6U
-<br>【360密碼】：8df9
-
-<br>【節目名稱】：881 讀懂中國 2016-02-28（HD）
-<br>【節目主持】：潘小濤 | 何亦文
-<br>【節目時間】：19:00 - 20:00
-<br>【檔案名稱】：Sino Stream - Reading
-<br>【360雲盤】：http://adf.ly/1XbnXB
-<br>【360雲盤】：http://www.linkbucks.com/ke6k
-<br>【360密碼】： a798
-
-<br>【節目名稱】：903 903國民教育 2016-02-28（HD）
-<br>【節目主持】：健吾
-<br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Time's Up Pen's Down
-<br>【360雲盤】：http://adf.ly/1Xboei
-<br>【360雲盤】：http://www.linkbucks.com/ke2D
-<br>【360密碼】： c50d
-
-<br>【節目名稱】：881 葛民教育 2016-02-28（HD）
-<br>【節目主持】：葛民輝
-<br>【節目時間】：23:00 - 23:30
-<br>【檔案名稱】：Kot’s ology
-<br>【360雲盤】：http://adf.ly/1XboZh
-<br>【360雲盤】：http://www.linkbucks.com/ke2b
-<br>【360密碼】：3706
-
-<br>【節目名稱】：881 靜默的革命 2016-02-28（HD）
-<br>【節目主持】：林以諾
-<br>【節目時間】：23:30 - 01:00
-<br>【檔案名稱】：Sound of Silence
-<br>【360雲盤】：http://adf.ly/1XcnLV
-<br>【360雲盤】：http://www.linkbucks.com/kixj
-<br>【360密碼】：1811
-
-<br>【節目名稱】：903 短期租約 2016-02-28（HD）
-<br>【節目主持】：Wasabi
-<br>【節目時間】：23:00 - 02:00
-<br>【檔案名稱】：Short-term Lease
-<br>【360雲盤】：http://adf.ly/1XcnHE
-<br>【360雲盤】：http://www.linkbucks.com/kix8
-<br>【360密碼】：0992
-
-<br>【節目名稱】：881 寫生活 2016-02-28（HD）
-<br>【節目主持】：881 主持人
-<br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Bedtime Readings
-<br>【360雲盤】：http://adf.ly/1Xcn7N
-<br>【360雲盤】：http://www.linkbucks.com/kizn
-<br>【360密碼】：6102
+<br>【節目名稱】：881 十八樓C座 2016-02-29（HD）
+<br>【節目主持】：金剛 | 陳森 | 朱雪梅
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C
+<br>【360雲盤】：http://adf.ly/1XdRAd
+<br>【360雲盤】：http://www.linkbucks.com/knKk
+<br>【360密碼】：6005
