@@ -135,3 +135,6 @@
 <br>【360雲盤】：http://adf.ly/1XjXsm
 <br>【360雲盤】：http://www.linkbucks.com/lUuK
 <br>【360密碼】：59e4
+<br>【百度雲盤】：http://adf.ly/1XjYPN
+<br>【百度雲盤】：http://www.linkbucks.com/lUjw
+<br>【百度密碼】：ppye
