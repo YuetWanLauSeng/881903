@@ -116,6 +116,9 @@
 <br>【360雲盤】：http://adf.ly/1Xotig
 <br>【360雲盤】：http://www.linkbucks.com/IluR
 <br>【360密碼】：e5d7
+<br>【百度雲盤】：http://adf.ly/1Xovbf
+<br>【百度雲盤】：http://www.linkbucks.com/lyEV
+<br>【百度密碼】：pvjw
 
 <br>【節目名稱】：881 杏林茶 2016-03-04（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
