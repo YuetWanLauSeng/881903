@@ -92,6 +92,9 @@
 <br>【360雲盤】：http://adf.ly/1Xotli
 <br>【360雲盤】：http://www.linkbucks.com/Ilri
 <br>【360密碼】：909c
+<br>【百度雲盤】：http://adf.ly/1XowEQ
+<br>【百度雲盤】：http://www.linkbucks.com/lyDG
+<br>【百度密碼】：h6dh
 
 <br>【節目名稱】：903 好出奇 2016-03-04（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -127,6 +130,9 @@
 <br>【360雲盤】：http://adf.ly/1XotpY
 <br>【360雲盤】：http://www.linkbucks.com/Ille
 <br>【360密碼】：4078
+<br>【百度雲盤】：http://adf.ly/1Xovk1
+<br>【百度雲盤】：http://www.linkbucks.com/lyEJ
+<br>【百度密碼】：xphy
 
 <br>【節目名稱】：903 集雜志 2016-03-04（HD）
 <br>【節目主持】：急急子
