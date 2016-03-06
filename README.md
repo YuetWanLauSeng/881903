@@ -117,3 +117,30 @@
 <br>【360雲盤】：http://adf.ly/1XsIc8
 <br>【360雲盤】：http://www.linkbucks.com/l8qB
 <br>【360密碼】：6c6e
+
+<br>【節目名稱】：903 Chi Chung's Class 2016-03-05（HD）
+<br>【節目主持】：黃志淙
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Chi Chung's Class
+<br>【360雲盤】：http://adf.ly/1XulOL
+<br>【360雲盤】：http://www.linkbucks.com/mEdF
+<br>【360密碼】：5ade
+
+<br>【節目名稱】：903 公子會 2016-03-05（HD）
+<br>【節目主持】：森美
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The Playtoy Mansion
+<br>【360雲盤】：http://adf.ly/1XulZk
+<br>【360雲盤】：http://www.linkbucks.com/mEbE
+<br>【360密碼】：9838
+<br>【百度雲盤】：http://adf.ly/1XuleN
+<br>【百度雲盤】：http://www.linkbucks.com/mEWw
+<br>【百度密碼】：3ssz
+
+<br>【節目名稱】：903 皇牌出場 2016-03-05（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1XulSL
+<br>【360雲盤】：http://www.linkbucks.com/mEb9
+<br>【360密碼】：95a3
