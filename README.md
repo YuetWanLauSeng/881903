@@ -13,6 +13,9 @@
 <br>【360雲盤】：http://adf.ly/1Xzzyk
 <br>【360雲盤】：http://www.linkbucks.com/mCbq
 <br>【360密碼】：1d38
+<br>【百度雲盤】：http://adf.ly/1Y0ozY
+<br>【百度雲盤】：http://www.linkbucks.com/mQYR
+<br>【百度密碼】：92na
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-03-07（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -21,6 +24,9 @@
 <br>【360雲盤】：http://adf.ly/1Y001n
 <br>【360雲盤】：http://www.linkbucks.com/mCbM
 <br>【360密碼】：58d3
+<br>【百度雲盤】：http://adf.ly/1Y0pUo
+<br>【百度雲盤】：http://www.linkbucks.com/mQXn
+<br>【百度密碼】：yf2x
 
 <br>【節目名稱】：903 早霸王 2016-03-07（HD）
 <br>【節目主持】：森美 | 阮小儀
@@ -29,6 +35,9 @@
 <br>【360雲盤】：http://adf.ly/1Xzzmg
 <br>【360雲盤】：http://www.linkbucks.com/mCcq
 <br>【360密碼】：6329
+<br>【百度雲盤】：http://adf.ly/1Y0pbv
+<br>【百度雲盤】：http://www.linkbucks.com/mQXc
+<br>【百度密碼】：c99f
 
 <br>【節目名稱】：881 1圈圈 2016-03-07（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -45,6 +54,9 @@
 <br>【360雲盤】：http://adf.ly/1Y005G
 <br>【360雲盤】：http://www.linkbucks.com/mCa2
 <br>【360密碼】：549b
+<br>【百度雲盤】：http://adf.ly/1Y0pM1
+<br>【百度雲盤】：http://www.linkbucks.com/mO2H
+<br>【百度密碼】：ey4p
 
 <br>【節目名稱】：903 叱咤樂壇 2016-03-07（HD）
 <br>【節目主持】：謝茜嘉 | Colin
@@ -69,3 +81,6 @@
 <br>【360雲盤】：http://adf.ly/1Y0VnL
 <br>【360雲盤】：http://www.linkbucks.com/mRiq
 <br>【360密碼】：e63f
+<br>【百度雲盤】：http://adf.ly/1Y0pDY
+<br>【百度雲盤】：http://www.linkbucks.com/mQX9
+<br>【百度密碼】：hy3e
