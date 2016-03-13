@@ -21,3 +21,6 @@
 <br>【360雲盤】：http://adf.ly/1YGYHy
 <br>【360雲盤】：http://www.linkbucks.com/nXRk
 <br>【360密碼】：fe7d
+<br>【百度雲盤】：http://adf.ly/1YGbkM
+<br>【百度雲盤】：http://www.linkbucks.com/nXD1
+<br>【百度密碼】：icik
