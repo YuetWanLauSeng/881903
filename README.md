@@ -141,6 +141,9 @@
 <br>【360雲盤】：http://adf.ly/1YFqHb
 <br>【360雲盤】：http://www.linkbucks.com/nca0
 <br>【360密碼】：e00e
+<br>【百度雲盤】：http://adf.ly/1YFvDI
+<br>【百度雲盤】：http://www.linkbucks.com/nbgo
+<br>【百度密碼】：urn6
 
 <br>【節目名稱】：903 皇牌出場 2016-03-12（HD）
 <br>【節目主持】：Marco | Keyman
@@ -149,3 +152,6 @@
 <br>【360雲盤】：http://adf.ly/1YFqNw
 <br>【360雲盤】：http://www.linkbucks.com/ncal
 <br>【360密碼】：4be3
+<br>【百度雲盤】：http://adf.ly/1YFvHs
+<br>【百度雲盤】：http://www.linkbucks.com/nbf9
+<br>【百度密碼】：s15y
