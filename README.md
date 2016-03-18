@@ -136,6 +136,9 @@
 <br>【360雲盤】：http://adf.ly/1YW1rW
 <br>【360雲盤】：http://www.linkbucks.com/oNA7
 <br>【360密碼】：484f
+<br>【百度雲盤】：http://adf.ly/1YW3QN
+<br>【百度雲盤】：http://www.linkbucks.com/oMzR
+<br>【百度密碼】：wm58
 
 <br>【節目名稱】：903 集雜志 2016-03-18（HD）
 <br>【節目主持】：急急子
@@ -144,3 +147,6 @@
 <br>【360雲盤】：http://adf.ly/1YW22E
 <br>【360雲盤】：http://www.linkbucks.com/oM5z
 <br>【360密碼】：add9
+<br>【百度雲盤】：http://adf.ly/1YW3MF
+<br>【百度雲盤】：http://www.linkbucks.com/oM0K
+<br>【百度密碼】：ypfj
