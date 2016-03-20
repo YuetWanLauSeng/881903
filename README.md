@@ -141,6 +141,9 @@
 <br>【360雲盤】：http://adf.ly/1Ya3PM
 <br>【360雲盤】：http://www.linkbucks.com/oQ3s
 <br>【360密碼】：cea7
+<br>【百度雲盤】：http://adf.ly/1Ya4mn
+<br>【百度雲盤】：http://www.linkbucks.com/AifTK
+<br>【百度密碼】：9474
 
 <br>【節目名稱】：881 發式生活 2016-03-19（HD） 
 <br>【節目主持】：余宜發
