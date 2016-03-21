@@ -92,6 +92,9 @@
 <br>【360雲盤】：http://adf.ly/1Ycmsv
 <br>【360雲盤】：http://www.linkbucks.com/ora9
 <br>【360密碼】：0803
+<br>【百度雲盤】：http://adf.ly/1Ycvr4
+<br>【百度雲盤】：http://www.linkbucks.com/opl0
+<br>【百度密碼】：3743
 
 <br>【節目名稱】：903 好出奇 2016-03-21（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -116,6 +119,9 @@
 <br>【360雲盤】：http://adf.ly/1YcmqT
 <br>【360雲盤】：http://www.linkbucks.com/oruA
 <br>【360密碼】：c700
+<br>【百度雲盤】：http://adf.ly/1YcvuJ
+<br>【百度雲盤】：http://www.linkbucks.com/oo3V
+<br>【百度密碼】：rhes
 
 <br>【節目名稱】：881 杏林茶 2016-03-21（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -124,6 +130,9 @@
 <br>【360雲盤】：http://adf.ly/1YcmuX
 <br>【360雲盤】：http://www.linkbucks.com/ori2
 <br>【360密碼】：83c9
+<br>【百度雲盤】：http://adf.ly/1Ycvxp
+<br>【百度雲盤】：http://www.linkbucks.com/ooP8
+<br>【百度密碼】：hkuv
 
 <br>【節目名稱】：903 集雜志 2016-03-21（HD）
 <br>【節目主持】：急急子
@@ -132,3 +141,14 @@
 <br>【360雲盤】：http://adf.ly/1Ycn7H
 <br>【360雲盤】：http://www.linkbucks.com/orWU
 <br>【360密碼】：12c8
+
+<br>【節目名稱】：881 串 2016-03-21（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1Ycvgf
+<br>【360雲盤】：http://www.linkbucks.com/opjo
+<br>【360密碼】：b5b1
+<br>【百度雲盤】：http://adf.ly/1Ycvmn
+<br>【百度雲盤】：http://www.linkbucks.com/opnF
+<br>【百度密碼】：mmdn
