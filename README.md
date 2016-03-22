@@ -122,6 +122,9 @@
 <br>【360雲盤】：http://adf.ly/1Yemo5
 <br>【360雲盤】：http://www.linkbucks.com/ozKf
 <br>【360密碼】：0c52
+<br>【百度雲盤】：http://adf.ly/1Yf0nK
+<br>【百度雲盤】：http://www.linkbucks.com/oxzP
+<br>【百度密碼】：xd93
 
 <br>【節目名稱】：903 今日正 2016-03-22（HD）
 <br>【節目主持】：梁文禮 | 麻利亞
