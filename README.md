@@ -25,7 +25,7 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）
 <br>【360雲盤】：http://adf.ly/1YeEaK
-<br>【360雲盤】：http://www.linkbucks.com/o2w9
+<br>【360雲盤】：http://www.linkbucks.com/o9Un
 <br>【360密碼】：ec37
 <br>【百度雲盤】：http://adf.ly/1Yebzk
 <br>【百度雲盤】：http://www.linkbucks.com/pAAF
@@ -36,7 +36,7 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King
 <br>【360雲盤】：http://adf.ly/1YeEFj
-<br>【360雲盤】：http://www.linkbucks.com/o9VT
+<br>【360雲盤】：http://www.linkbucks.com/o9Uc
 <br>【360密碼】：1114
 <br>【百度雲盤】：http://adf.ly/1Yec2I
 <br>【百度雲盤】：http://www.linkbucks.com/o99b
