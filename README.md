@@ -1,3 +1,11 @@
+<br>【節目名稱】：903 有誰共鳴 2016-03-22（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1YemxH
+<br>【360雲盤】：http://www.linkbucks.com/ozKT
+<br>【360密碼】：3da2
+
 <br>【節目名稱】：903 早安，同學早! 2016-03-22（HD）
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
@@ -95,3 +103,35 @@
 <br>【百度雲盤】：http://adf.ly/1YebfR
 <br>【百度雲盤】：http://www.linkbucks.com/pAO1
 <br>【百度密碼】：nhge
+
+<br>【節目名稱】：881 大玩派 2016-03-22（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1Yen0P
+<br>【360雲盤】：http://www.linkbucks.com/ozKF
+<br>【360密碼】：ffe2
+
+<br>【節目名稱】：903 好出奇 2016-03-22（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1Yemo5
+<br>【360雲盤】：http://www.linkbucks.com/ozKf
+<br>【360密碼】：0c52
+
+<br>【節目名稱】：903 今日正 2016-03-22（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1YenFd
+<br>【360雲盤】：http://www.linkbucks.com/ozIV
+<br>【360密碼】：484e
+
+<br>【節目名稱】：881 人民大道中 2016-03-22（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1YenJ5
+<br>【360雲盤】：http://www.linkbucks.com/ozIP
+<br>【360密碼】：c525
