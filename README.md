@@ -129,3 +129,14 @@
 <br>【百度雲盤】：http://adf.ly/1Yh2pI
 <br>【百度雲盤】：http://www.linkbucks.com/pIdu
 <br>【百度密碼】：63dv
+
+<br>【節目名稱】：903 集雜志 2016-03-23（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1Yh4pT
+<br>【360雲盤】：http://www.linkbucks.com/pIRT
+<br>【360密碼】：fa0c
+<br>【百度雲盤】：http://adf.ly/1Yh555
+<br>【百度雲盤】：http://www.linkbucks.com/pIPa
+<br>【百度密碼】：tvrz
