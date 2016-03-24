@@ -104,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1YiiBT
 <br>【360雲盤】：http://www.linkbucks.com/pE2G
 <br>【360密碼】：8803
+<br>【百度雲盤】：http://adf.ly/1Yijcq
+<br>【百度雲盤】：http://www.linkbucks.com/pEwE
+<br>【百度密碼】：cikc
 
 <br>【節目名稱】：903 好出奇 2016-03-24（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -112,3 +115,6 @@
 <br>【360雲盤】：http://adf.ly/1Yii7k
 <br>【360雲盤】：http://www.linkbucks.com/pE2j
 <br>【360密碼】：8b42
+<br>【百度雲盤】：http://adf.ly/1YijVg
+<br>【百度雲盤】：http://www.linkbucks.com/pExa
+<br>【百度密碼】：6twp
