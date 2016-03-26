@@ -138,3 +138,35 @@
 <br>【360雲盤】：http://adf.ly/1YmQOj
 <br>【360雲盤】：http://www.linkbucks.com/pgqM
 <br>【360密碼】：80d0
+
+<br>【節目名稱】：881 1圈圈 2016-03-26（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1Ymsl4
+<br>【360雲盤】：http://www.linkbucks.com/pcxM
+<br>【360密碼】：6a56
+
+<br>【節目名稱】：903 903 豁達推介 2016-03-26（HD）
+<br>【節目主持】：梁文禮
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1YmsnJ
+<br>【360雲盤】：http://www.linkbucks.com/pcxD
+<br>【360密碼】：06f1
+
+<br>【節目名稱】：903 3號螺絲釘 2016-03-26（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Screw No.3
+<br>【360雲盤】：http://adf.ly/1Ymsp2
+<br>【360雲盤】：http://www.linkbucks.com/pcw1
+<br>【360密碼】：42dc
+
+<br>【節目名稱】：903 麻利有隻小綿羊 2016-03-26（HD）
+<br>【節目主持】：麻利亞
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：Mali Has a Little Lamb
+<br>【360雲盤】：http://adf.ly/1Ymsqr
+<br>【360雲盤】：http://www.linkbucks.com/pcwq
+<br>【360密碼】：f01f
