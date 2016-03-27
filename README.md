@@ -104,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1Yp1KH
 <br>【360雲盤】：http://www.linkbucks.com/prEP
 <br>【360密碼】：7a2e
+<br>【百度雲盤】：http://adf.ly/1Yp3lX
+<br>【百度雲盤】：http://www.linkbucks.com/pqfL
+<br>【百度密碼】：u5qw
 
 <br>【節目名稱】：881 細路強 2016-03-27（HD） 
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
