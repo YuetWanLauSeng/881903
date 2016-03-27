@@ -170,3 +170,44 @@
 <br>【360雲盤】：http://adf.ly/1Ymsqr
 <br>【360雲盤】：http://www.linkbucks.com/pcwq
 <br>【360密碼】：f01f
+
+<br>【節目名稱】：903 Chi Chung's Class 2016-03-26（HD）
+<br>【節目主持】：黃志淙
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Chi Chung's Class
+<br>【360雲盤】：http://adf.ly/1YnwSs
+<br>【360雲盤】：http://www.linkbucks.com/nVNa
+<br>【360密碼】：8e72
+
+<br>【節目名稱】：903 公子會 2016-03-26（HD）
+<br>【節目主持】：森美
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The Playtoy Mansion
+<br>【360雲盤】：http://adf.ly/1YnwWH
+<br>【360雲盤】：http://www.linkbucks.com/mfyu
+<br>【360密碼】：c31b
+<br>【百度雲盤】：http://adf.ly/1YnwcY
+<br>【百度雲盤】：http://www.linkbucks.com/lsoI
+<br>【百度密碼】：f8sh
+
+<br>【節目名稱】：881 發式生活 2016-03-26（HD） 
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1YnwPx
+<br>【360雲盤】：http://www.linkbucks.com/niuL
+<br>【360密碼】：ec35
+<br>【百度雲盤】：http://adf.ly/1Ynwb8
+<br>【百度雲盤】：http://www.linkbucks.com/lss6
+<br>【百度密碼】：bhq2
+
+<br>【節目名稱】：903 皇牌出場 2016-03-26（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1YnwUM
+<br>【360雲盤】：http://www.linkbucks.com/nFWb
+<br>【360密碼】：ed87
+<br>【百度雲盤】：http://adf.ly/1YnwZZ
+<br>【百度雲盤】：http://www.linkbucks.com/lvRd
+<br>【百度密碼】：5zwi
