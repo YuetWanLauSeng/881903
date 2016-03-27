@@ -49,6 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1Yopra
 <br>【360雲盤】：http://www.linkbucks.com/publ
 <br>【360密碼】：6b34
+<br>【百度雲盤】：http://adf.ly/1YoyO1
+<br>【百度雲盤】：http://www.linkbucks.com/pruU
+<br>【百度密碼】：9e2t
 
 <br>【節目名稱】：903 扭扭擰擰扭扭擰 2016-03-27（HD）
 <br>【節目主持】：檸
@@ -57,6 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1Yoq31
 <br>【360雲盤】：http://www.linkbucks.com/puY6
 <br>【360密碼】：f78d
+<br>【百度雲盤】：http://adf.ly/1YoyV1
+<br>【百度雲盤】：http://www.linkbucks.com/prsG
+<br>【百度密碼】：11jq
 
 <br>【節目名稱】：903 咆哮山莊 2016-03-27（HD）
 <br>【節目主持】：903 DJ
@@ -65,6 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1Yoppf
 <br>【360雲盤】：http://www.linkbucks.com/pub9
 <br>【360密碼】：9745
+<br>【百度雲盤】：http://adf.ly/1YoybN
+<br>【百度雲盤】：http://www.linkbucks.com/proj
+<br>【百度密碼】：pu8a
 
 <br>【節目名稱】：881 串 2016-03-27（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -73,6 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1Yopzo
 <br>【360雲盤】：http://www.linkbucks.com/puZ3
 <br>【360密碼】：b513
+<br>【百度雲盤】：http://adf.ly/1YoyXu
+<br>【百度雲盤】：http://www.linkbucks.com/ppdK
+<br>【百度密碼】：6qdd
 
 <br>【節目名稱】：881 讀懂中國 2016-03-27（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -81,3 +93,6 @@
 <br>【360雲盤】：http://adf.ly/1YopvG
 <br>【360雲盤】：http://www.linkbucks.com/puaO
 <br>【360密碼】：508b
+<br>【百度雲盤】：http://adf.ly/1YoyeO
+<br>【百度雲盤】：http://www.linkbucks.com/proH
+<br>【百度密碼】：qgq7
