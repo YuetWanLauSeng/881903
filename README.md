@@ -74,3 +74,11 @@
 <br>【百度雲盤】：http://adf.ly/1YqO3r
 <br>【百度雲盤】：http://www.linkbucks.com/p5Ec
 <br>【百度密碼】：qjg5
+
+<br>【節目名稱】：903 好出奇 2016-03-28（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1YqOzM
+<br>【360雲盤】：http://www.linkbucks.com/p5AU
+<br>【360密碼】：4b08
