@@ -104,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1Yv0fs
 <br>【360雲盤】：http://www.linkbucks.com/qMb0
 <br>【360密碼】：a181
+<br>【百度雲盤】：http://adf.ly/1Yv3Rn
+<br>【百度雲盤】：http://www.linkbucks.com/qLwX
+<br>【百度密碼】：if4k
 
 <br>【節目名稱】：903 好出奇 2016-03-30（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -112,6 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1Yv0Xx
 <br>【360雲盤】：http://www.linkbucks.com/qMb5
 <br>【360密碼】：dd79
+<br>【百度雲盤】：http://adf.ly/1Yv3i3
+<br>【百度雲盤】：http://www.linkbucks.com/qLsu
+<br>【百度密碼】：swde
 
 <br>【節目名稱】：903 檸檸檸檸檸 2016-03-30（HD）
 <br>【節目主持】：檸
@@ -120,3 +126,17 @@
 <br>【360雲盤】：http://adf.ly/1Yv0ju
 <br>【360雲盤】：http://www.linkbucks.com/qMbN
 <br>【360密碼】：c77f
+<br>【百度雲盤】：http://adf.ly/1Yv3ZB
+<br>【百度雲盤】：http://www.linkbucks.com/qLuT
+<br>【百度密碼】：baxq
+
+<br>【節目名稱】：881 人民大道中 2016-03-30（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1Yv3ku
+<br>【360雲盤】：http://www.linkbucks.com/qLsb
+<br>【360密碼】：ae61
+<br>【百度雲盤】：http://adf.ly/1Yv3e1
+<br>【百度雲盤】：http://www.linkbucks.com/qLtw
+<br>【百度密碼】：kr8j
