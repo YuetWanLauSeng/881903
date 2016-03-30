@@ -184,3 +184,36 @@
 <br>【百度雲盤】：http://adf.ly/1YtGfG
 <br>【百度雲盤】：http://www.linkbucks.com/qJlM
 <br>【百度密碼】：rn9p
+
+<br>【節目名稱】：881 光明頂 2016-03-29（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1Yu2oQ
+<br>【360雲盤】：http://www.linkbucks.com/gVar
+<br>【360密碼】：0c2e
+<br>【百度雲盤】：http://adf.ly/1Yu2uw
+<br>【百度雲盤】：http://www.linkbucks.com/f2If
+<br>【百度密碼】：33mg
+
+<br>【節目名稱】：903 雙截棍 2016-03-29（HD）
+<br>【節目主持】：火火 | 余迪偉
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：More Amour
+<br>【360雲盤】：http://adf.ly/1Yu2mn
+<br>【360雲盤】：http://www.linkbucks.com/goSe
+<br>【360密碼】：fafe
+<br>【百度雲盤】：http://adf.ly/1Yu2sI
+<br>【百度雲盤】：http://www.linkbucks.com/f77Q
+<br>【百度密碼】：mnqe
+
+<br>【節目名稱】：903 廣東爆谷 2016-03-29（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1Yu2kC
+<br>【360雲盤】：http://www.linkbucks.com/gqhr
+<br>【360密碼】：2853
+<br>【百度雲盤】：http://adf.ly/1Yu2qA
+<br>【百度雲盤】：http://www.linkbucks.com/gEtz
+<br>【百度密碼】：5in7
