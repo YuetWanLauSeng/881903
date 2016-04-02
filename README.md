@@ -200,8 +200,7 @@
 <br>【節目主持】： 鄒凱光 | 郭子健 | 于逸堯 | 春麗
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：亞視的呼聲 
-<br>【360雲盤】：http://adf.ly/1Z0AAd
-<br>【360雲盤】：http://www.linkbucks.com/qYk8
+<br>【360雲盤】：https://yunpan.cn/OcqFzgwcFA8dhc
 <br>【360密碼】：d2b5
 <br>【百度雲盤】：http://pan.baidu.com/s/1bNGswQ
 <br>【百度密碼】：un7h
