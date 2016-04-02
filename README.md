@@ -225,6 +225,9 @@
 <br>【360雲盤】：http://adf.ly/1Z0s3J
 <br>【360雲盤】：http://www.linkbucks.com/o03s
 <br>【360密碼】：1047
+<br>【百度雲盤】：http://adf.ly/1Z0zQv
+<br>【百度雲盤】：http://www.linkbucks.com/qsLt
+<br>【百度密碼】：w8eg
 
 <br>【節目名稱】：903 903 豁達推介 2016-04-02（HD）
 <br>【節目主持】：梁文禮
@@ -233,6 +236,9 @@
 <br>【360雲盤】：http://adf.ly/1Z0s5e
 <br>【360雲盤】：http://www.linkbucks.com/o0xn
 <br>【360密碼】：374d
+<br>【百度雲盤】：http://adf.ly/1Z0zX2
+<br>【百度雲盤】：http://www.linkbucks.com/qsK1
+<br>【百度密碼】：dws9
 
 <br>【節目名稱】：903 3號螺絲釘 2016-04-02（HD）
 <br>【節目主持】：Colin
@@ -241,3 +247,6 @@
 <br>【360雲盤】：http://adf.ly/1Z0s8H
 <br>【360雲盤】：http://www.linkbucks.com/ozvb
 <br>【360密碼】：f51b
+<br>【百度雲盤】：http://adf.ly/1Z0zUV
+<br>【百度雲盤】：http://www.linkbucks.com/qsLT
+<br>【百度密碼】：2fe7
