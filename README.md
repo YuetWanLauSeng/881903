@@ -203,3 +203,5 @@
 <br>【360雲盤】：http://adf.ly/1Z0AAd
 <br>【360雲盤】：http://www.linkbucks.com/qYk8
 <br>【360密碼】：d2b5
+<br>【百度雲盤】：http://pan.baidu.com/s/1bNGswQ
+<br>【百度密碼】：un7h
