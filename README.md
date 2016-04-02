@@ -195,3 +195,11 @@
 <br>【百度雲盤】：http://adf.ly/1YzRb9
 <br>【百度雲盤】：http://www.linkbucks.com/qThX
 <br>【百度密碼】：enmf
+
+<br>【節目名稱】：903 亞視的呼聲 2016-04-01（HD）
+<br>【節目主持】： 鄒凱光 | 郭子健 | 于逸堯 | 春麗
+<br>【節目時間】：23:00 - 02:00
+<br>【檔案名稱】：亞視的呼聲 
+<br>【360雲盤】：http://adf.ly/1Z0AAd
+<br>【360雲盤】：http://www.linkbucks.com/qYk8
+<br>【360密碼】：d2b5
