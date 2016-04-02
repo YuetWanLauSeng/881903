@@ -217,3 +217,27 @@
 <br>【百度雲盤】：http://adf.ly/1Z0W8a
 <br>【百度雲盤】：http://www.linkbucks.com/qd9F
 <br>【百度密碼】：v51q
+
+<br>【節目名稱】：881 1圈圈 2016-04-02（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1Z0s3J
+<br>【360雲盤】：http://www.linkbucks.com/o03s
+<br>【360密碼】：1047
+
+<br>【節目名稱】：903 903 豁達推介 2016-04-02（HD）
+<br>【節目主持】：梁文禮
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1Z0s5e
+<br>【360雲盤】：http://www.linkbucks.com/o0xn
+<br>【360密碼】：374d
+
+<br>【節目名稱】：903 3號螺絲釘 2016-04-02（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Screw No.3
+<br>【360雲盤】：http://adf.ly/1Z0s8H
+<br>【360雲盤】：http://www.linkbucks.com/ozvb
+<br>【360密碼】：f51b
