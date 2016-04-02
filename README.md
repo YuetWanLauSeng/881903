@@ -137,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1Z0Oms
 <br>【360雲盤】：http://www.linkbucks.com/qf2T
 <br>【360密碼】：7bbd
+<br>【百度雲盤】：http://adf.ly/1Z0V7R
+<br>【百度雲盤】：http://www.linkbucks.com/qeD5
+<br>【百度密碼】：uefd
 
 <br>【節目名稱】：881 政經星期六 2016-04-02（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -145,6 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1Z0OoC
 <br>【360雲盤】：http://www.linkbucks.com/qfmW
 <br>【360密碼】：8fa7
+<br>【百度雲盤】：http://adf.ly/1Z0VFX
+<br>【百度雲盤】：http://www.linkbucks.com/qeDy
+<br>【百度密碼】：gg15
 
 <br>【節目名稱】：903 西加航空 2016-04-02（HD）
 <br>【節目主持】：謝茜嘉
@@ -153,6 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1Z0Os1
 <br>【360雲盤】：http://www.linkbucks.com/qfpd
 <br>【360密碼】：51c1
+<br>【百度雲盤】：http://adf.ly/1Z0VV1
+<br>【百度雲盤】：http://www.linkbucks.com/qeCX
+<br>【百度密碼】：mxm3
 
 <br>【節目名稱】：881 不平平則鳴 2016-04-02（HD）
 <br>【節目主持】：陳聰 | 王永平
@@ -161,6 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1Z0Oq5
 <br>【360雲盤】：http://www.linkbucks.com/qfpX
 <br>【360密碼】：9aa6
+<br>【百度雲盤】：http://adf.ly/1Z0Vaq
+<br>【百度雲盤】：http://www.linkbucks.com/qeB8
+<br>【百度密碼】：8jas
 
 <br>【節目名稱】：881 考股專家 2016-04-02（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -169,6 +181,9 @@
 <br>【360雲盤】：http://adf.ly/1Z0Okh
 <br>【360雲盤】：http://www.linkbucks.com/qf2f
 <br>【360密碼】：6f45
+<br>【百度雲盤】：http://adf.ly/1Z0VHz
+<br>【百度雲盤】：http://www.linkbucks.com/qeDq
+<br>【百度密碼】：k9ry
 
 <br>【節目名稱】：903 903 專業推介 2016-04-02（HD）
 <br>【節目主持】：Donald
@@ -177,6 +192,9 @@
 <br>【360雲盤】：http://adf.ly/1Z0OiF
 <br>【360雲盤】：http://www.linkbucks.com/qf2m
 <br>【360密碼】：06be
+<br>【百度雲盤】：http://adf.ly/1Z0VKg
+<br>【百度雲盤】：http://www.linkbucks.com/qeCf
+<br>【百度密碼】：dpwg
 
 <br>【節目名稱】：903 咪芝蓮 2016-04-02（HD）
 <br>【節目主持】：小儀
@@ -185,3 +203,6 @@
 <br>【360雲盤】：http://adf.ly/1Z0Ofn
 <br>【360雲盤】：http://www.linkbucks.com/qf2q
 <br>【360密碼】：0d68
+<br>【百度雲盤】：http://adf.ly/1Z0VXs
+<br>【百度雲盤】：http://www.linkbucks.com/qeCM
+<br>【百度密碼】：x8nw
