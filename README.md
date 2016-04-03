@@ -96,3 +96,25 @@
 <br>【百度雲盤】：http://adf.ly/1Z2gQG
 <br>【百度雲盤】：http://www.linkbucks.com/qyg4
 <br>【百度密碼】：5grm
+
+<br>【節目名稱】：881 細路強 2016-04-03（HD） 
+<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+<br>【節目時間】：21:00 - 22:00 
+<br>【檔案名稱】：Mighty Kids Mighty Parents
+<br>【360雲盤】：http://adf.ly/1Z2wBC
+<br>【360雲盤】：http://www.linkbucks.com/qreU
+<br>【360密碼】：41e8
+<br>【百度雲盤】：http://adf.ly/1Z2wNe
+<br>【百度雲盤】：http://www.linkbucks.com/qrc7
+<br>【百度密碼】：dxq8
+
+<br>【節目名稱】：903 903國民教育 2016-04-03（HD）
+<br>【節目主持】：健吾
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Time's Up Pen's Down
+<br>【360雲盤】：http://adf.ly/1Z2wDW
+<br>【360雲盤】：http://www.linkbucks.com/qreF
+<br>【360密碼】：c08e
+<br>【百度雲盤】：http://adf.ly/1Z2wLq
+<br>【百度雲盤】：http://www.linkbucks.com/qrdJ
+<br>【百度密碼】：5wbv
