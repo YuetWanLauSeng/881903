@@ -63,3 +63,19 @@
 <br>【百度雲盤】：http://adf.ly/1Z4A5z
 <br>【百度雲盤】：http://www.linkbucks.com/q33C
 <br>【百度密碼】：8g63
+
+<br>【節目名稱】：903 叱咤樂壇 2016-04-04（HD）
+<br>【節目主持】：謝茜嘉 | Colin
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1Z4Kzm
+<br>【360雲盤】：http://www.linkbucks.com/q076
+<br>【360密碼】：4735
+
+<br>【節目名稱】：881 人生交叉盤 2016-04-04（HD）
+<br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1Z4L0y
+<br>【360雲盤】：http://www.linkbucks.com/q07u
+<br>【360密碼】：275e
