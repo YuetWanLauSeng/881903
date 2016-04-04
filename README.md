@@ -126,6 +126,9 @@
 <br>【360雲盤】：http://adf.ly/1Z3ncC
 <br>【360雲盤】：http://www.linkbucks.com/q1fW
 <br>【360密碼】：9331
+<br>【百度雲盤】：http://adf.ly/1Z3qFT
+<br>【百度雲盤】：http://www.linkbucks.com/pJll
+<br>【百度密碼】：pjcr
 
 <br>【節目名稱】：881 靜默的革命 2016-04-03（HD）
 <br>【節目主持】：林以諾
@@ -134,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1Z3nhj
 <br>【360雲盤】：http://www.linkbucks.com/q1el
 <br>【360密碼】：8181
+<br>【百度雲盤】：http://adf.ly/1Z3q5w
+<br>【百度雲盤】：http://www.linkbucks.com/pads
+<br>【百度密碼】：gpj8
 
 <br>【節目名稱】：903 短期租約 2016-04-03（HD）
 <br>【節目主持】：Wasabi
@@ -150,3 +156,6 @@
 <br>【360雲盤】：http://adf.ly/1Z3nZw
 <br>【360雲盤】：http://www.linkbucks.com/q1fw
 <br>【360密碼】：dfab
+<br>【百度雲盤】：http://adf.ly/1Z3qC3
+<br>【百度雲盤】：http://www.linkbucks.com/pRmq
+<br>【百度密碼】：7m7d
