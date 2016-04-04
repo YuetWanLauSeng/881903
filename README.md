@@ -162,3 +162,14 @@
 <br>【百度雲盤】：http://adf.ly/1Z4huk
 <br>【百度雲盤】：http://www.linkbucks.com/q7L9
 <br>【百度密碼】：t2hr
+
+<br>【節目名稱】：881 串 2016-04-04（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1Z4q7u
+<br>【360雲盤】：http://www.linkbucks.com/q6IY
+<br>【360密碼】：1a54
+<br>【百度雲盤】：http://adf.ly/1Z4qQx
+<br>【百度雲盤】：http://www.linkbucks.com/q6HT
+<br>【百度密碼】：2bm2
