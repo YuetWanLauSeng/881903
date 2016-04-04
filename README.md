@@ -148,6 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1Z3net
 <br>【360雲盤】：http://www.linkbucks.com/q1fC
 <br>【360密碼】：0a69
+<br>【百度雲盤】：http://adf.ly/1Z3rL4
+<br>【百度雲盤】：http://www.linkbucks.com/efOf
+<br>【百度密碼】：it9g
 
 <br>【節目名稱】：881 寫生活 2016-04-03（HD）
 <br>【節目主持】：881 主持人
