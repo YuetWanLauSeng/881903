@@ -162,3 +162,22 @@
 <br>【百度雲盤】：http://adf.ly/1Z6RwF
 <br>【百度雲盤】：http://www.linkbucks.com/rI1G
 <br>【百度密碼】：zvhp
+
+<br>【節目名稱】：881 串 2016-04-05（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1Z6haL
+<br>【360雲盤】：http://www.linkbucks.com/rFqu
+<br>【360密碼】：eeb3
+<br>【百度雲盤】：http://adf.ly/1Z6hch
+<br>【百度雲盤】：http://www.linkbucks.com/rFqm
+<br>【百度密碼】：hs5i
+
+<br>【節目名稱】：903 好回家 2016-04-05（HD）
+<br>【節目主持】：細So
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Please Go Home
+<br>【360雲盤】：http://adf.ly/1Z6heJ
+<br>【360雲盤】：http://www.linkbucks.com/rFqS
+<br>【360密碼】：6d44
