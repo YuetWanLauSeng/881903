@@ -96,3 +96,36 @@
 <br>【百度雲盤】：http://adf.ly/1Z6CyY
 <br>【百度雲盤】：http://www.linkbucks.com/q6dM
 <br>【百度密碼】：ryvm
+
+<br>【節目名稱】：881 大玩派 2016-04-05（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1Z6JC7
+<br>【360雲盤】：http://www.linkbucks.com/q3OM
+<br>【360密碼】：39f2
+<br>【百度雲盤】：http://adf.ly/1Z6JI3
+<br>【百度雲盤】：http://www.linkbucks.com/q3N0
+<br>【百度密碼】：5asm
+
+<br>【節目名稱】：903 好出奇 2016-04-05（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1Z6J9u
+<br>【360雲盤】：http://www.linkbucks.com/q3OV
+<br>【360密碼】：b3c4
+<br>【百度雲盤】：http://adf.ly/1Z6JRv
+<br>【百度雲盤】：http://www.linkbucks.com/q3NT
+<br>【百度密碼】：xmxi
+
+<br>【節目名稱】：903 檸檸檸檸檸 2016-04-05（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：18:00 - 18:30
+<br>【檔案名稱】：檸檸檸檸檸
+<br>【360雲盤】：http://adf.ly/1Z6JDl
+<br>【360雲盤】：http://www.linkbucks.com/q3OF
+<br>【360密碼】：21a7
+<br>【百度雲盤】：http://adf.ly/1Z6JTZ
+<br>【百度雲盤】：http://www.linkbucks.com/q3NL
+<br>【百度密碼】：pyey
