@@ -129,3 +129,36 @@
 <br>【百度雲盤】：http://adf.ly/1Z6JTZ
 <br>【百度雲盤】：http://www.linkbucks.com/q3NL
 <br>【百度密碼】：pyey
+
+<br>【節目名稱】：903 今日正 2016-04-05（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1Z6OyR
+<br>【360雲盤】：http://www.linkbucks.com/rJXl
+<br>【360密碼】：489e
+<br>【百度雲盤】：http://adf.ly/1Z6R3T
+<br>【百度雲盤】：http://www.linkbucks.com/rI7K
+<br>【百度密碼】：ve1e
+
+<br>【節目名稱】：881 人民大道中 2016-04-05（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1Z6P0y
+<br>【360雲盤】：http://www.linkbucks.com/rJXc
+<br>【360密碼】：744a
+<br>【百度雲盤】：http://adf.ly/1Z6R08
+<br>【百度雲盤】：http://www.linkbucks.com/rI7c
+<br>【百度密碼】：jew5
+
+<br>【節目名稱】：881 杏林茶 2016-04-05（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1Z6RsS
+<br>【360雲盤】：http://www.linkbucks.com/rI1i
+<br>【360密碼】：b9a6
+<br>【百度雲盤】：http://adf.ly/1Z6RwF
+<br>【百度雲盤】：http://www.linkbucks.com/rI1G
+<br>【百度密碼】：zvhp
