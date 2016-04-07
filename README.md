@@ -104,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1Z9nqQ
 <br>【360雲盤】：http://www.linkbucks.com/rTM6
 <br>【360密碼】：72fc
+<br>【百度雲盤】：http://adf.ly/1Z9tCg
+<br>【百度雲盤】：http://www.linkbucks.com/rPIg
+<br>【百度密碼】：jjf3
 
 <br>【節目名稱】：903 好出奇 2016-04-07（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -112,6 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1Z9o2E
 <br>【360雲盤】：http://www.linkbucks.com/rS1w
 <br>【360密碼】：187b
+<br>【百度雲盤】：http://adf.ly/1Z9ssF
+<br>【百度雲盤】：http://www.linkbucks.com/rPUs
+<br>【百度密碼】：3s8k
 
 <br>【節目名稱】：903 檸檸檸檸檸 2016-04-07（HD）
 <br>【節目主持】：檸
@@ -120,3 +126,6 @@
 <br>【360雲盤】：http://adf.ly/1Z9nzv
 <br>【360雲盤】：http://www.linkbucks.com/rS15
 <br>【360密碼】：bf9c
+<br>【百度雲盤】：http://adf.ly/1Z9t1y
+<br>【百度雲盤】：http://www.linkbucks.com/rPJg
+<br>【百度密碼】：9bwx
