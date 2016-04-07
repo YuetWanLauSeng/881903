@@ -137,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1Z9vWn
 <br>【360雲盤】：http://www.linkbucks.com/rO4T
 <br>【360密碼】：d01f
+<br>【百度雲盤】：http://adf.ly/1ZA1Bi
+<br>【百度雲盤】：http://www.linkbucks.com/iLHI
+<br>【百度密碼】：xm58
 
 <br>【節目名稱】：881 人民大道中 2016-04-07（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -145,3 +148,17 @@
 <br>【360雲盤】：http://adf.ly/1Z9vZv
 <br>【360雲盤】：http://www.linkbucks.com/rO4J
 <br>【360密碼】：5a0b
+<br>【百度雲盤】：http://adf.ly/1ZA1Ft
+<br>【百度雲盤】：http://www.linkbucks.com/iLG5
+<br>【百度密碼】：sxim
+
+<br>【節目名稱】：881 杏林茶 2016-04-07（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1ZA18o
+<br>【360雲盤】：http://www.linkbucks.com/iLHR
+<br>【360密碼】：091b
+<br>【百度雲盤】：http://adf.ly/1ZA16T
+<br>【百度雲盤】：http://www.linkbucks.com/iLHj
+<br>【百度密碼】：g3as
