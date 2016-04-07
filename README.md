@@ -140,3 +140,47 @@
 <br>【百度雲盤】：http://adf.ly/1Z891r
 <br>【百度雲盤】：http://www.linkbucks.com/rYJW
 <br>【百度密碼】：7ayp
+
+<br>【節目名稱】：903 雲妮鍾情 2016-04-06（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1Z92pu
+<br>【360雲盤】：http://www.linkbucks.com/rVLV
+<br>【360密碼】：3b9f
+<br>【百度雲盤】：http://adf.ly/1Z92o8
+<br>【百度雲盤】：http://www.linkbucks.com/rVLk
+<br>【百度密碼】：mamp
+
+<br>【節目名稱】：881 光明頂 2016-04-06（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1Z92v3
+<br>【360雲盤】：http://www.linkbucks.com/rVK0
+<br>【360密碼】：cebf
+<br>【百度雲盤】：http://adf.ly/1Z92ma
+<br>【百度雲盤】：http://www.linkbucks.com/rVLt
+<br>【百度密碼】：vyc4
+
+<br>【節目名稱】：903 雙截棍 2016-04-06（HD）
+<br>【節目主持】：火火 | 余迪偉
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：More Amour
+<br>【360雲盤】：http://adf.ly/1Z92sj
+<br>【360雲盤】：http://www.linkbucks.com/rVLA
+<br>【360密碼】：0ddc
+<br>【百度雲盤】：http://adf.ly/1Z92ks
+<br>【百度雲盤】：http://www.linkbucks.com/rVL1
+<br>【百度密碼】：e4w9
+
+<br>【節目名稱】：903 廣東爆谷 2016-04-06（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1Z92rP
+<br>【360雲盤】：http://www.linkbucks.com/rVLE
+<br>【360密碼】：382d
+<br>【百度雲盤】：http://adf.ly/1Z92jH
+<br>【百度雲盤】：http://www.linkbucks.com/rVL5
+<br>【百度密碼】：vsnj
