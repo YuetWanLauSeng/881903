@@ -37,3 +37,11 @@
 <br>【360雲盤】：http://adf.ly/1Z9RoM
 <br>【360雲盤】：http://www.linkbucks.com/rbCK
 <br>【360密碼】：6bfa
+
+<br>【節目名稱】：881 十八樓C座 2016-04-07（HD）
+<br>【節目主持】：金剛 | 陳森 | 朱雪梅
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C
+<br>【360雲盤】：http://adf.ly/1Z9SNa
+<br>【360雲盤】：http://www.linkbucks.com/ra44
+<br>【360密碼】：e7aa
