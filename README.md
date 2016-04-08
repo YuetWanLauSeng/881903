@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1ZBURK
 <br>【360雲盤】：http://www.linkbucks.com/rwW5
 <br>【360密碼】：b953
+<br>【百度雲盤】：http://adf.ly/1ZCRuQ
+<br>【百度雲盤】：http://www.linkbucks.com/e9CC
+<br>【百度密碼】：jcgj
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-04-08（HD）
 <br>【節目主持】：陳志雲 | 郭志仁 | 陳聰 | 謝遜
@@ -13,6 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1ZBUP9
 <br>【360雲盤】：http://www.linkbucks.com/rwXE
 <br>【360密碼】：dcd5
+<br>【百度雲盤】：http://adf.ly/1ZCRyw
+<br>【百度雲盤】：http://www.linkbucks.com/erjE
+<br>【百度密碼】：p92i
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-04-08（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -21,6 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1ZBUMh
 <br>【360雲盤】：http://www.linkbucks.com/rwXk
 <br>【360密碼】：a7cd
+<br>【百度雲盤】：http://adf.ly/1ZCRpd
+<br>【百度雲盤】：http://www.linkbucks.com/fABD
+<br>【百度密碼】：exib
 
 <br>【節目名稱】：903 早霸王 2016-04-08（HD）
 <br>【節目主持】：森美 | 阮小儀
@@ -29,6 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1ZBUTG
 <br>【360雲盤】：http://www.linkbucks.com/rwWw
 <br>【360密碼】：d7b2
+<br>【百度雲盤】：http://adf.ly/1ZCRfd
+<br>【百度雲盤】：http://www.linkbucks.com/fHvY
+<br>【百度密碼】：92v6
 
 <br>【節目名稱】：881 1圈圈 2016-04-08（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -37,6 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1ZBUgI
 <br>【360雲盤】：http://www.linkbucks.com/rwWS
 <br>【360密碼】：12d4
+<br>【百度雲盤】：http://adf.ly/1ZCRlQ
+<br>【百度雲盤】：http://www.linkbucks.com/fC2S
+<br>【百度密碼】：ip5r
 
 <br>【節目名稱】：881 十八樓C座 2016-04-08（HD）
 <br>【節目主持】：金剛 | 陳森 | 朱雪梅
@@ -45,3 +60,6 @@
 <br>【360雲盤】：http://adf.ly/1ZBUK0
 <br>【360雲盤】：http://www.linkbucks.com/rwXp
 <br>【360密碼】：1490
+<br>【百度雲盤】：http://adf.ly/1ZCRZt
+<br>【百度雲盤】：http://www.linkbucks.com/fMhd
+<br>【百度密碼】：ecmf
