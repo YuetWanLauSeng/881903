@@ -195,3 +195,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZDXRR
 <br>【百度雲盤】：http://www.linkbucks.com/rwtt
 <br>【百度密碼】：54qs
+
+<br>【節目名稱】：903 雙截棍 2016-04-08（HD）
+<br>【節目主持】：火火 | 余迪偉
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：More Amour
+<br>【360雲盤】：http://adf.ly/1ZDkET
+<br>【360雲盤】：http://www.linkbucks.com/rtMQ
+<br>【360密碼】：df87
+<br>【百度雲盤】：http://adf.ly/1ZDkJi
+<br>【百度雲盤】：http://www.linkbucks.com/rtLu
+<br>【百度密碼】：cw69
+
+<br>【節目名稱】：903 廣東爆谷 2016-04-08（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1ZDkBF
+<br>【360雲盤】：http://www.linkbucks.com/rtMY
+<br>【360密碼】：e9e6
+<br>【百度雲盤】：http://adf.ly/1ZDkHX
+<br>【百度雲盤】：http://www.linkbucks.com/rtMC
+<br>【百度密碼】：bvsi
