@@ -93,3 +93,135 @@
 <br>【360雲盤】：http://adf.ly/1ZEuMB
 <br>【360雲盤】：http://www.linkbucks.com/rxO6
 <br>【360密碼】：385d
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-04-02（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1ZEzcP
+<br>【360雲盤】：http://www.linkbucks.com/rwBX
+<br>【360密碼】：1dc9
+<br>【百度雲盤】：http://adf.ly/1ZF0Ec
+<br>【百度雲盤】：http://www.linkbucks.com/rv7O
+<br>【百度密碼】：en9p
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-04-03（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1ZEzft
+<br>【360雲盤】：http://www.linkbucks.com/rwBL
+<br>【360密碼】：bb68
+<br>【百度雲盤】：http://adf.ly/1ZF0Gp
+<br>【百度雲盤】：http://www.linkbucks.com/rv6T
+<br>【百度密碼】：mha6
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-04-04（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1ZEzjB
+<br>【360雲盤】：http://www.linkbucks.com/rwBD
+<br>【360密碼】：e0b1
+<br>【百度雲盤】：http://adf.ly/1ZF0Ju
+<br>【百度雲盤】：http://www.linkbucks.com/rv6H
+<br>【百度密碼】：k75j
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-04-05（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1ZEzn7
+<br>【360雲盤】：http://www.linkbucks.com/rwAx
+<br>【360密碼】：562d
+<br>【百度雲盤】：http://adf.ly/1ZF0Rc
+<br>【百度雲盤】：http://www.linkbucks.com/rv40
+<br>【百度密碼】：vq78
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-04-06（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1ZEzqG
+<br>【360雲盤】：http://www.linkbucks.com/rv91
+<br>【360密碼】：2c46
+<br>【百度雲盤】：http://adf.ly/1ZF0OU
+<br>【百度雲盤】：http://www.linkbucks.com/rv5q
+<br>【百度密碼】：dxb8
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-04-07（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1ZEzso
+<br>【360雲盤】：http://www.linkbucks.com/rv9n
+<br>【360密碼】：fa34
+<br>【百度雲盤】：http://adf.ly/1ZF0VQ
+<br>【百度雲盤】：http://www.linkbucks.com/rv4k
+<br>【百度密碼】：sspk
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-04-08（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1ZEzvf
+<br>【360雲盤】：http://www.linkbucks.com/rv9N
+<br>【360密碼】：086d
+<br>【百度雲盤】：http://adf.ly/1ZF2k6
+<br>【百度雲盤】：http://www.linkbucks.com/ru4w
+<br>【百度密碼】：68td
+
+<br>【節目名稱】：903 有誰共鳴 2016-04-04（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1ZEzyq
+<br>【360雲盤】：http://www.linkbucks.com/rv8s
+<br>【360密碼】：d8da
+<br>【百度雲盤】：http://adf.ly/1ZF0X8
+<br>【百度雲盤】：http://www.linkbucks.com/rv4Y
+<br>【百度密碼】：sfsy
+
+<br>【節目名稱】：903 有誰共鳴 2016-04-05（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1ZF02T
+<br>【360雲盤】：http://www.linkbucks.com/rv8V
+<br>【360密碼】：665e
+<br>【百度雲盤】：http://adf.ly/1ZF0a1
+<br>【百度雲盤】：http://www.linkbucks.com/rv4L
+<br>【百度密碼】：uevm
+
+<br>【節目名稱】：903 有誰共鳴 2016-04-06（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1ZF04s
+<br>【360雲盤】：http://www.linkbucks.com/rv8I
+<br>【360密碼】：8d53
+<br>【百度雲盤】：http://adf.ly/1ZF0eA
+<br>【百度雲盤】：http://www.linkbucks.com/rv34
+<br>【百度密碼】：udra
+
+<br>【節目名稱】：903 有誰共鳴 2016-04-07（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1ZF06w
+<br>【360雲盤】：http://www.linkbucks.com/rv76
+<br>【360密碼】：6b23
+<br>【百度雲盤】：http://adf.ly/1ZF2Pd
+<br>【百度雲盤】：http://www.linkbucks.com/rvEq
+<br>【百度密碼】：sgck
+
+<br>【節目名稱】：903 有誰共鳴 2016-04-08（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1ZF0A4
+<br>【360雲盤】：http://www.linkbucks.com/rv7n
+<br>【360密碼】：fb72
+<br>【百度雲盤】：http://adf.ly/1ZF2IS
+<br>【百度雲盤】：http://www.linkbucks.com/rvFI
+<br>【百度密碼】：ib4g
