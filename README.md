@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEDPv
 <br>【360雲盤】：http://www.linkbucks.com/rnwe
 <br>【360密碼】：dabf
+<br>【百度雲盤】：http://adf.ly/1ZFySq
+<br>【百度雲盤】：http://www.linkbucks.com/r176
+<br>【百度密碼】：7yeb
 
 <br>【節目名稱】：881 政經星期六 2016-04-09（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -13,6 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEDNa
 <br>【360雲盤】：http://www.linkbucks.com/rnwj
 <br>【360密碼】：98c3
+<br>【百度雲盤】：http://adf.ly/1ZFyZZ
+<br>【百度雲盤】：http://www.linkbucks.com/r17m
+<br>【百度密碼】：x5t5
 
 <br>【節目名稱】：903 西加航空 2016-04-09（HD）
 <br>【節目主持】：謝茜嘉
@@ -21,6 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEDEp
 <br>【360雲盤】：http://www.linkbucks.com/rnxt
 <br>【360密碼】：23ae
+<br>【百度雲盤】：http://adf.ly/1ZFzex
+<br>【百度雲盤】：http://www.linkbucks.com/r12p
+<br>【百度密碼】：fcgz
 
 <br>【節目名稱】：881 不平平則鳴 2016-04-09（HD）
 <br>【節目主持】：陳聰 | 王永平
@@ -29,6 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEDHK
 <br>【360雲盤】：http://www.linkbucks.com/rnw8
 <br>【360密碼】：4e83
+<br>【百度雲盤】：http://adf.ly/1ZFykP
+<br>【百度雲盤】：http://www.linkbucks.com/r16a
+<br>【百度密碼】：xryf
 
 <br>【節目名稱】：881 考股專家 2016-04-09（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -37,6 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEDRr
 <br>【360雲盤】：http://www.linkbucks.com/rnvK
 <br>【360密碼】：2fd1
+<br>【百度雲盤】：http://adf.ly/1ZFyVZ
+<br>【百度雲盤】：http://www.linkbucks.com/r17v
+<br>【百度密碼】：avgc
 
 <br>【節目名稱】：903 903 專業推介 2016-04-09（HD）
 <br>【節目主持】：Donald
@@ -45,6 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEDBg
 <br>【360雲盤】：http://www.linkbucks.com/rnyA
 <br>【360密碼】：c385
+<br>【百度雲盤】：http://adf.ly/1ZFzoj
+<br>【百度雲盤】：http://www.linkbucks.com/r10r
+<br>【百度密碼】：4sv9
 
 <br>【節目名稱】：903 咪芝蓮 2016-04-09（HD）
 <br>【節目主持】：小儀
@@ -53,6 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEDLg
 <br>【360雲盤】：http://www.linkbucks.com/rnwv
 <br>【360密碼】：df52
+<br>【百度雲盤】：http://adf.ly/1ZFziR
+<br>【百度雲盤】：http://www.linkbucks.com/r12G
+<br>【百度密碼】：6vrw
 
 <br>【節目名稱】：903 2016饑饉三十開幕禮 2016-04-09（HD）
 <br>【節目主持】：903 DJ
@@ -61,6 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEDTy
 <br>【360雲盤】：http://www.linkbucks.com/rnvJ
 <br>【360密碼】：309e
+<br>【百度雲盤】：http://adf.ly/1ZFzmA
+<br>【百度雲盤】：http://www.linkbucks.com/r11f
+<br>【百度密碼】：fa5f
 
 <br>【節目名稱】：881 1圈圈 2016-04-09（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -69,6 +93,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEu7H
 <br>【360雲盤】：http://www.linkbucks.com/rxQJ
 <br>【360密碼】：3fde
+<br>【百度雲盤】：http://adf.ly/1ZFztT
+<br>【百度雲盤】：http://www.linkbucks.com/r1yG
+<br>【百度密碼】：2f6n
 
 <br>【節目名稱】：903 903 豁達推介 2016-04-09（HD）
 <br>【節目主持】：梁文禮
@@ -77,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEuC8
 <br>【360雲盤】：http://www.linkbucks.com/rxP1
 <br>【360密碼】：dcc1
+<br>【百度雲盤】：http://adf.ly/1ZFygC
+<br>【百度雲盤】：http://www.linkbucks.com/r16k
+<br>【百度密碼】：h3xr
 
 <br>【節目名稱】：903 3號螺絲釘 2016-04-09（HD）
 <br>【節目主持】：Colin
@@ -85,6 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEuGk
 <br>【360雲盤】：http://www.linkbucks.com/rxPf
 <br>【360密碼】：5f19
+<br>【百度雲盤】：http://adf.ly/1ZFycj
+<br>【百度雲盤】：http://www.linkbucks.com/r16x
+<br>【百度密碼】：qr5k
 
 <br>【節目名稱】：903 西瓜大發 ! 2016-04-09（HD）
 <br>【節目主持】：西瓜
@@ -93,6 +126,9 @@
 <br>【360雲盤】：http://adf.ly/1ZEuMB
 <br>【360雲盤】：http://www.linkbucks.com/rxO6
 <br>【360密碼】：385d
+<br>【百度雲盤】：http://adf.ly/1ZFyPM
+<br>【百度雲盤】：http://www.linkbucks.com/r18J
+<br>【百度密碼】：ngxc
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-04-02（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
