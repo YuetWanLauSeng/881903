@@ -69,3 +69,27 @@
 <br>【360雲盤】：http://adf.ly/1ZHM5A
 <br>【360雲盤】：http://www.linkbucks.com/D1n7
 <br>【360密碼】：7a93
+
+<br>【節目名稱】：903 2016饑饉三十閉幕音樂會 2016-04-10（HD）
+<br>【節目主持】：903 DJ
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：2016饑饉三十閉幕音樂會
+<br>【360雲盤】：http://adf.ly/1ZHXhN
+<br>【360雲盤】：http://www.linkbucks.com/sEsU
+<br>【360密碼】：3f32
+
+<br>【節目名稱】：903 國語類 2016-04-10（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Bo Po Mo Fo
+<br>【360雲盤】：http://adf.ly/1ZHXkq
+<br>【360雲盤】：http://www.linkbucks.com/sEtS
+<br>【360密碼】：70ba
+
+<br>【節目名稱】：881 細路強 2016-04-10（HD） 
+<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+<br>【節目時間】：21:00 - 22:00 
+<br>【檔案名稱】：Mighty Kids Mighty Parents
+<br>【360雲盤】：http://adf.ly/1ZHXp5
+<br>【360雲盤】：http://www.linkbucks.com/sFBv
+<br>【360密碼】：fcaa
