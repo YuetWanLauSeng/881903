@@ -129,3 +129,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZMEHD
 <br>【百度雲盤】：http://www.linkbucks.com/sQdo
 <br>【百度密碼】：efst
+
+<br>【節目名稱】：903 今日正 2016-04-12（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1ZMDiD
+<br>【360雲盤】：http://www.linkbucks.com/sQk9
+<br>【360密碼】：83f1
+<br>【百度雲盤】：http://adf.ly/1ZMHGW
+<br>【百度雲盤】：http://www.linkbucks.com/sP0k
+<br>【百度密碼】：ihba
+
+<br>【節目名稱】：881 人民大道中 2016-04-12（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1ZMDbV
+<br>【360雲盤】：http://www.linkbucks.com/sQl3
+<br>【360密碼】：a089
+<br>【百度雲盤】：http://adf.ly/1ZMHSc
+<br>【百度雲盤】：http://www.linkbucks.com/sPvr
+<br>【百度密碼】：6cf6
