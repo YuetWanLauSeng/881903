@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1ZLZG6
 <br>【360雲盤】：http://www.linkbucks.com/sHvP
 <br>【360密碼】：7b99
+<br>【百度雲盤】：http://adf.ly/1ZM42s
+<br>【百度雲盤】：http://www.linkbucks.com/sTSD
+<br>【百度密碼】：wfbc
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-04-12（HD）
 <br>【節目主持】：陳志雲 | 郭志仁 | 陳聰 | 謝遜
@@ -13,6 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1ZLZMm
 <br>【360雲盤】：http://www.linkbucks.com/sHtm
 <br>【360密碼】：4363
+<br>【百度雲盤】：http://adf.ly/1ZM45t
+<br>【百度雲盤】：http://www.linkbucks.com/sTR8
+<br>【百度密碼】：appu
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-04-12（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -21,6 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1ZLZOu
 <br>【360雲盤】：http://www.linkbucks.com/sHtu
 <br>【360密碼】：ef67
+<br>【百度雲盤】：http://adf.ly/1ZM3mv
+<br>【百度雲盤】：http://www.linkbucks.com/sTa9
+<br>【百度密碼】：gt4n
 
 <br>【節目名稱】：903 早霸王 2016-04-12（HD）
 <br>【節目主持】：森美 | 阮小儀
@@ -29,6 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1ZLZEG
 <br>【360雲盤】：http://www.linkbucks.com/sHvT
 <br>【360密碼】：9d32
+<br>【百度雲盤】：http://adf.ly/1ZM4CH
+<br>【百度雲盤】：http://www.linkbucks.com/sTRn
+<br>【百度密碼】：2mce
 
 <br>【節目名稱】：881 1圈圈 2016-04-12（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -37,6 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1ZLZBs
 <br>【360雲盤】：http://www.linkbucks.com/sHvx
 <br>【360密碼】：1171
+<br>【百度雲盤】：http://adf.ly/1ZM3wu
+<br>【百度雲盤】：http://www.linkbucks.com/sTat
+<br>【百度密碼】：vh73
 
 <br>【節目名稱】：881 十八樓C座 2016-04-12（HD）
 <br>【節目主持】：金剛 | 陳森 | 朱雪梅
@@ -45,6 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1ZLbHf
 <br>【360雲盤】：http://www.linkbucks.com/sGYU
 <br>【360密碼】：16f2
+<br>【百度雲盤】：http://adf.ly/1ZM4JL
+<br>【百度雲盤】：http://www.linkbucks.com/sTRb
+<br>【百度密碼】：hyym
 
 <br>【節目名稱】：903 叱咤樂壇 2016-04-12（HD）
 <br>【節目主持】：謝茜嘉 | Colin
@@ -53,6 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1ZLq5U
 <br>【360雲盤】：http://www.linkbucks.com/BKfOj
 <br>【360密碼】：c685
+<br>【百度雲盤】：http://adf.ly/1ZM498
+<br>【百度雲盤】：http://www.linkbucks.com/sTRv
+<br>【百度密碼】：psis
 
 <br>【節目名稱】：881 人生交叉盤 2016-04-12（HD）
 <br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
@@ -61,6 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1ZLq7a
 <br>【360雲盤】：http://www.linkbucks.com/BKfOg
 <br>【360密碼】：5784
+<br>【百度雲盤】：http://adf.ly/1ZM4FS
+<br>【百度雲盤】：http://www.linkbucks.com/sTRh
+<br>【百度密碼】：k7sn
 
 <br>【節目名稱】：903 口水多過浪花 2016-04-12（HD）
 <br>【節目主持】：鄭裕玲 | 占 | Donald
@@ -69,3 +93,6 @@
 <br>【360雲盤】：http://adf.ly/1ZLqA8
 <br>【360雲盤】：http://www.linkbucks.com/BKfOb
 <br>【360密碼】：b228
+<br>【百度雲盤】：http://adf.ly/1ZM400
+<br>【百度雲盤】：http://www.linkbucks.com/sTSG
+<br>【百度密碼】：pdtr
