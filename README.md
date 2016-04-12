@@ -151,3 +151,14 @@
 <br>【百度雲盤】：http://adf.ly/1ZMHSc
 <br>【百度雲盤】：http://www.linkbucks.com/sPvr
 <br>【百度密碼】：6cf6
+
+<br>【節目名稱】：881 杏林茶 2016-04-12（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1ZMJ1n
+<br>【360雲盤】：http://www.linkbucks.com/sPUD
+<br>【360密碼】：5392
+<br>【百度雲盤】：http://adf.ly/1ZMKZu
+<br>【百度雲盤】：http://www.linkbucks.com/sOxR
+<br>【百度密碼】：2i34
