@@ -21,6 +21,9 @@
 <br>【360雲盤】：http://adf.ly/1ZNl8g
 <br>【360雲盤】：http://www.linkbucks.com/sLzt
 <br>【360密碼】：15dd
+<br>【百度雲盤】：http://adf.ly/1ZOQuM
+<br>【百度雲盤】：http://www.linkbucks.com/sWeK
+<br>【百度密碼】：ysp8
 
 <br>【節目名稱】：903 早霸王 2016-04-13（HD）
 <br>【節目主持】：森美 | 阮小儀
@@ -29,6 +32,9 @@
 <br>【360雲盤】：http://adf.ly/1ZNl0Y
 <br>【360雲盤】：http://www.linkbucks.com/sLog
 <br>【360密碼】：6776
+<br>【百度雲盤】：http://adf.ly/1ZOQkj
+<br>【百度雲盤】：http://www.linkbucks.com/sWed
+<br>【百度密碼】：73xm
 
 <br>【節目名稱】：881 1圈圈 2016-04-13（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -45,6 +51,9 @@
 <br>【360雲盤】：http://adf.ly/1ZNlIf
 <br>【360雲盤】：http://www.linkbucks.com/sJXr
 <br>【360密碼】：9deb
+<br>【百度雲盤】：http://adf.ly/1ZOQYv
+<br>【百度雲盤】：http://www.linkbucks.com/sWfE
+<br>【百度密碼】：e57i
 
 <br>【節目名稱】：903 叱咤樂壇 2016-04-13（HD）
 <br>【節目主持】：謝茜嘉 | Colin
