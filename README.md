@@ -78,6 +78,9 @@
 <br>【360雲盤】：http://adf.ly/1ZO0pI
 <br>【360雲盤】：http://www.linkbucks.com/YWcT
 <br>【360密碼】：2692
+<br>【百度雲盤】：http://adf.ly/1ZOTNT
+<br>【百度雲盤】：http://www.linkbucks.com/sWGR
+<br>【百度密碼】：8pgk
 
 <br>【節目名稱】：881 大玩派 2016-04-13（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -102,3 +105,6 @@
 <br>【360雲盤】：http://adf.ly/1ZOONB
 <br>【360雲盤】：http://www.linkbucks.com/sXXw
 <br>【360密碼】：6515
+<br>【百度雲盤】：http://adf.ly/1ZOTST
+<br>【百度雲盤】：http://www.linkbucks.com/sWBx
+<br>【百度密碼】：xtxp
