@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1ZNl3F
 <br>【360雲盤】：http://www.linkbucks.com/sL1r
 <br>【360密碼】：485f
+<br>【百度雲盤】：http://adf.ly/1ZOqQo
+<br>【百度雲盤】：http://www.linkbucks.com/sPXf
+<br>【百度密碼】：pxui
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-04-13（HD）
 <br>【節目主持】：陳志雲 | 郭志仁 | 陳聰 | 謝遜
@@ -43,6 +46,9 @@
 <br>【360雲盤】：http://adf.ly/1ZNkvZ
 <br>【360雲盤】：http://www.linkbucks.com/sLrj
 <br>【360密碼】：4b37
+<br>【百度雲盤】：http://adf.ly/1ZOqGN
+<br>【百度雲盤】：http://www.linkbucks.com/sPcw
+<br>【百度密碼】：vjrq
 
 <br>【節目名稱】：881 十八樓C座 2016-04-13（HD）
 <br>【節目主持】：金剛 | 陳森 | 朱雪梅
@@ -62,6 +68,9 @@
 <br>【360雲盤】：http://adf.ly/1ZO0jG
 <br>【360雲盤】：http://www.linkbucks.com/YWwZ
 <br>【360密碼】：dc88
+<br>【百度雲盤】：http://adf.ly/1ZOqMH
+<br>【百度雲盤】：http://www.linkbucks.com/sPi7
+<br>【百度密碼】：htjs
 
 <br>【節目名稱】：881 人生交叉盤 2016-04-13（HD）
 <br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
@@ -116,3 +125,6 @@
 <br>【360雲盤】：http://adf.ly/1ZOZR6
 <br>【360雲盤】：http://www.linkbucks.com/sU11
 <br>【360密碼】：960a
+<br>【百度雲盤】：http://adf.ly/1ZOq7h
+<br>【百度雲盤】：http://www.linkbucks.com/sPiL
+<br>【百度密碼】：xwgv
