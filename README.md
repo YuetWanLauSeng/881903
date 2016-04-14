@@ -13,6 +13,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQCf4
 <br>【360雲盤】：http://www.linkbucks.com/sZsR
 <br>【360密碼】：7a1f
+<br>【百度雲盤】：http://adf.ly/1ZQg5C
+<br>【百度雲盤】：http://www.linkbucks.com/sVSB
+<br>【百度密碼】：9bzj
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-04-14（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -29,6 +32,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQCbQ
 <br>【360雲盤】：http://www.linkbucks.com/samq
 <br>【360密碼】：02f2
+<br>【百度雲盤】：http://adf.ly/1ZQfxL
+<br>【百度雲盤】：http://www.linkbucks.com/sVSv
+<br>【百度密碼】：xzfp
 
 <br>【節目名稱】：881 1圈圈 2016-04-14（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -45,6 +51,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQDxm
 <br>【360雲盤】：http://www.linkbucks.com/sZvV
 <br>【360密碼】：1cb6
+<br>【百度雲盤】：http://adf.ly/1ZQfoJ
+<br>【百度雲盤】：http://www.linkbucks.com/sVKU
+<br>【百度密碼】：knxb
 
 <br>【節目名稱】：903 叱咤樂壇 2016-04-14（HD）
 <br>【節目主持】：謝茜嘉 | Colin
@@ -53,6 +62,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQPcn
 <br>【360雲盤】：http://www.linkbucks.com/sXx1
 <br>【360密碼】：7045
+<br>【百度雲盤】：http://adf.ly/1ZQg1O
+<br>【百度雲盤】：http://www.linkbucks.com/sVSY
+<br>【百度密碼】：x2b6
 
 <br>【節目名稱】：881 人生交叉盤 2016-04-14（HD）
 <br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
@@ -61,6 +73,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQPeL
 <br>【360雲盤】：http://www.linkbucks.com/sXxs
 <br>【360密碼】：9c73
+<br>【百度雲盤】：http://adf.ly/1ZQftO
+<br>【百度雲盤】：http://www.linkbucks.com/sVI8
+<br>【百度密碼】：8e42
 
 <br>【節目名稱】：903 口水多過浪花 2016-04-14（HD）
 <br>【節目主持】：鄭裕玲 | 占 | Donald
@@ -69,6 +84,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQPgW
 <br>【360雲盤】：http://www.linkbucks.com/sXxh
 <br>【360密碼】：0ecc
+<br>【百度雲盤】：http://adf.ly/1ZQgBc
+<br>【百度雲盤】：http://www.linkbucks.com/sVRi
+<br>【百度密碼】：37ke
 
 <br>【節目名稱】：881 大玩派 2016-04-14（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
