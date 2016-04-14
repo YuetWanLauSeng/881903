@@ -16,6 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1ZNl6B
 <br>【360雲盤】：http://www.linkbucks.com/sL1b
 <br>【360密碼】：281b
+<br>【百度雲盤】：http://adf.ly/1ZPksu
+<br>【百度雲盤】：http://www.linkbucks.com/sNb2
+<br>【百度密碼】：ch51
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-04-13（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -98,6 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1ZOOTB
 <br>【360雲盤】：http://www.linkbucks.com/sIMB
 <br>【360密碼】：c26e
+<br>【百度雲盤】：http://adf.ly/1ZPl1q
+<br>【百度雲盤】：http://www.linkbucks.com/sNPP
+<br>【百度密碼】：fc59
 
 <br>【節目名稱】：903 好出奇 2016-04-13（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -106,6 +112,9 @@
 <br>【360雲盤】：http://adf.ly/1ZOO94
 <br>【360雲盤】：http://www.linkbucks.com/sXVC
 <br>【360密碼】：249d
+<br>【百度雲盤】：http://adf.ly/1ZPkx2
+<br>【百度雲盤】：http://www.linkbucks.com/sNbs
+<br>【百度密碼】：6v4n
 
 <br>【節目名稱】：903 檸檸檸檸檸 2016-04-13（HD）
 <br>【節目主持】：檸
@@ -136,6 +145,9 @@
 <br>【360雲盤】：http://adf.ly/1ZP4NV
 <br>【360雲盤】：http://www.linkbucks.com/sL4y
 <br>【360密碼】：7179
+<br>【百度雲盤】：http://adf.ly/1ZPkk2
+<br>【百度雲盤】：http://www.linkbucks.com/sNdS
+<br>【百度密碼】：6trg
 
 <br>【節目名稱】：881 光明頂 2016-04-13（HD）
 <br>【節目主持】：陶傑
