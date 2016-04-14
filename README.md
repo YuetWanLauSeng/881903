@@ -141,3 +141,11 @@
 <br>【360雲盤】：http://adf.ly/1ZQsa8
 <br>【360雲盤】：http://www.linkbucks.com/A4RPP
 <br>【360密碼】：00d3
+
+<br>【節目名稱】：881 串 2016-04-14（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1ZR3BU
+<br>【360雲盤】：http://www.linkbucks.com/slp6
+<br>【360密碼】：c175
