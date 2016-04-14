@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQCdG
 <br>【360雲盤】：http://www.linkbucks.com/sZse
 <br>【360密碼】：4d2a
+<br>【百度雲盤】：http://adf.ly/1ZQljj
+<br>【百度雲盤】：http://www.linkbucks.com/sg48
+<br>【百度密碼】：83ev
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-04-14（HD）
 <br>【節目主持】：陳志雲 | 郭志仁 | 陳聰 | 謝遜
@@ -43,6 +46,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQCZE
 <br>【360雲盤】：http://www.linkbucks.com/sZtD
 <br>【360密碼】：f1a2
+<br>【百度雲盤】：http://adf.ly/1ZQlah
+<br>【百度雲盤】：http://www.linkbucks.com/shAA
+<br>【百度密碼】：fcf5
 
 <br>【節目名稱】：881 十八樓C座 2016-04-14（HD）
 <br>【節目主持】：金剛 | 陳森 | 朱雪梅
@@ -111,3 +117,12 @@
 <br>【360雲盤】：http://adf.ly/1ZQeou
 <br>【360雲盤】：http://www.linkbucks.com/sVWF
 <br>【360密碼】：3be7
+
+【節目名稱】：903 今日正 2016-04-14（HD）
+【節目主持】：梁文禮 | 麻利亞
+【節目時間】：18:00 - 20:00
+【檔案名稱】：Make My Day
+【360雲盤】：http://adf.ly/1ZQsNr
+【360雲盤】：http://www.linkbucks.com/BK7VK
+【360密碼】：6223
+
