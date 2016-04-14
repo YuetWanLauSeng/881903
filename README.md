@@ -82,6 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1ZO0lS
 <br>【360雲盤】：http://www.linkbucks.com/YWdP
 <br>【360密碼】：c5c4
+<br>【百度雲盤】：http://adf.ly/1ZPl7o
+<br>【百度雲盤】：http://www.linkbucks.com/sNXr
+<br>【百度密碼】：vprk
 
 <br>【節目名稱】：903 口水多過浪花 2016-04-13（HD）
 <br>【節目主持】：鄭裕玲 | 占 | Donald
