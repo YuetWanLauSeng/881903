@@ -147,3 +147,14 @@
 <br>【百度雲盤】：http://adf.ly/1ZP4Ta
 <br>【百度雲盤】：http://www.linkbucks.com/sL3o
 <br>【百度密碼】：136h
+
+<br>【節目名稱】：903 雙截棍 2016-04-13（HD）
+<br>【節目主持】：火火 | 余迪偉
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：More Amour
+<br>【360雲盤】：http://adf.ly/1ZPkXS
+<br>【360雲盤】：http://www.linkbucks.com/sNfZ
+<br>【360密碼】：519c
+<br>【百度雲盤】：http://adf.ly/1ZPkOq
+<br>【百度雲盤】：http://www.linkbucks.com/sNfi
+<br>【百度密碼】：sbe2
