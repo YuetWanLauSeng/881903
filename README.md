@@ -27,6 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQCgy
 <br>【360雲盤】：http://www.linkbucks.com/sal3
 <br>【360密碼】：49e1
+<br>【百度雲盤】：http://adf.ly/1ZRzas
+<br>【百度雲盤】：http://www.linkbucks.com/sqqx
+<br>【百度密碼】：2dwp
 
 <br>【節目名稱】：903 早霸王 2016-04-14（HD）
 <br>【節目主持】：森美 | 阮小儀
@@ -101,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQelv
 <br>【360雲盤】：http://www.linkbucks.com/sVXC
 <br>【360密碼】：cae7
+<br>【百度雲盤】：http://adf.ly/1ZRzJ9
+<br>【百度雲盤】：http://www.linkbucks.com/sqxp
+<br>【百度密碼】：526h
 
 <br>【節目名稱】：903 好出奇 2016-04-14（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -109,6 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQexq
 <br>【360雲盤】：http://www.linkbucks.com/sVVU
 <br>【360密碼】：dd5d
+<br>【百度雲盤】：http://adf.ly/1ZRz3p
+<br>【百度雲盤】：http://www.linkbucks.com/sq6O
+<br>【百度密碼】：mtfj
 
 <br>【節目名稱】：903 檸檸檸檸檸 2016-04-14（HD）
 <br>【節目主持】：檸
@@ -117,6 +126,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQeou
 <br>【360雲盤】：http://www.linkbucks.com/sVWF
 <br>【360密碼】：3be7
+<br>【百度雲盤】：http://adf.ly/1ZRzXO
+<br>【百度雲盤】：http://www.linkbucks.com/sqth
+<br>【百度密碼】：6ufm
 
 <br>【節目名稱】：903 今日正 2016-04-14（HD）
 <br>【節目主持】：梁文禮 | 麻利亞
@@ -125,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQsNr
 <br>【360雲盤】：http://www.linkbucks.com/BK7VK
 <br>【360密碼】：6223
+<br>【百度雲盤】：http://adf.ly/1ZRzNh
+<br>【百度雲盤】：http://www.linkbucks.com/sqv2
+<br>【百度密碼】：vwbc
 
 <br>【節目名稱】：881 人民大道中 2016-04-14（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -133,6 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQsQ8
 <br>【360雲盤】：http://www.linkbucks.com/BLE1t
 <br>【360密碼】：bd81
+<br>【百度雲盤】：http://adf.ly/1ZRzGJ
+<br>【百度雲盤】：http://www.linkbucks.com/sq3R
+<br>【百度密碼】：w3d7
 
 <br>【節目名稱】：881 杏林茶 2016-04-14（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -141,6 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1ZQsa8
 <br>【360雲盤】：http://www.linkbucks.com/A4RPP
 <br>【360密碼】：00d3
+<br>【百度雲盤】：http://adf.ly/1ZRzU8
+<br>【百度雲盤】：http://www.linkbucks.com/squ9
+<br>【百度密碼】：phk9
 
 <br>【節目名稱】：881 串 2016-04-14（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -149,6 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1ZR3BU
 <br>【360雲盤】：http://www.linkbucks.com/slp6
 <br>【360密碼】：c175
+<br>【百度雲盤】：http://adf.ly/1ZRzAt
+<br>【百度雲盤】：http://www.linkbucks.com/sq5H
+<br>【百度密碼】：w9mj
 
 <br>【節目名稱】：903 雲妮鍾情 2016-04-14（HD）
 <br>【節目主持】：Vani
@@ -157,6 +181,9 @@
 <br>【360雲盤】：http://adf.ly/1ZRENX
 <br>【360雲盤】：http://www.linkbucks.com/skDw
 <br>【360密碼】：3789
+<br>【百度雲盤】：http://adf.ly/1ZRyuv
+<br>【百度雲盤】：http://www.linkbucks.com/sq9w
+<br>【百度密碼】：skq7
 
 <br>【節目名稱】：881 光明頂 2016-04-14（HD）
 <br>【節目主持】：陶傑
@@ -165,6 +192,9 @@
 <br>【360雲盤】：http://adf.ly/1ZRERO
 <br>【360雲盤】：http://www.linkbucks.com/skBy
 <br>【360密碼】：8e1b
+<br>【百度雲盤】：http://adf.ly/1ZRyzr
+<br>【百度雲盤】：http://www.linkbucks.com/sq8B
+<br>【百度密碼】：ui5y
 
 <br>【節目名稱】：903 雙截棍 2016-04-14（HD）
 <br>【節目主持】：火火 | 余迪偉
