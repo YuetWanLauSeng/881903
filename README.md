@@ -193,3 +193,27 @@
 <br>【360雲盤】：http://adf.ly/1ZUkOj
 <br>【360雲盤】：http://www.linkbucks.com/srej
 <br>【360密碼】：cf01
+
+<br>【節目名稱】：903 903 豁達推介 2016-04-16（HD）
+<br>【節目主持】：梁文禮
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1ZVAuu
+<br>【360雲盤】：http://www.linkbucks.com/s67G
+<br>【360密碼】：4566
+
+<br>【節目名稱】：903 3號螺絲釘 2016-04-16（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Screw No.3
+<br>【360雲盤】：http://adf.ly/1ZVAwi
+<br>【360雲盤】：http://www.linkbucks.com/s66x
+<br>【360密碼】：e68e
+
+<br>【節目名稱】：903 西瓜大發 ! 2016-04-16（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：WonderMelon !
+<br>【360雲盤】：http://adf.ly/1ZVAyx
+<br>【360雲盤】：http://www.linkbucks.com/s66h
+<br>【360密碼】：e865
