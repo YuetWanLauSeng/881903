@@ -217,3 +217,35 @@
 <br>【360雲盤】：http://adf.ly/1ZVAyx
 <br>【360雲盤】：http://www.linkbucks.com/s66h
 <br>【360密碼】：e865
+
+<br>【節目名稱】：903 Chi Chung's Class 2016-04-16（HD）
+<br>【節目主持】：黃志淙
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Chi Chung's Class
+<br>【360雲盤】：http://adf.ly/1ZWBeh
+<br>【360雲盤】：http://www.linkbucks.com/s4ik
+<br>【360密碼】：6e0b
+
+<br>【節目名稱】：903 公子會 2016-04-16（HD）
+<br>【節目主持】：森美
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The Playtoy Mansion
+<br>【360雲盤】：http://adf.ly/1ZWBow
+<br>【360雲盤】：http://www.linkbucks.com/s4bt
+<br>【360密碼】：b3c1
+
+<br>【節目名稱】：881 發式生活 2016-04-16（HD） 
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1ZWBjS
+<br>【360雲盤】：http://www.linkbucks.com/s4gV
+<br>【360密碼】：ce04
+
+<br>【節目名稱】：903 皇牌出場 2016-04-16（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1ZWBmv
+<br>【360雲盤】：http://www.linkbucks.com/s4db
+<br>【360密碼】：0547
