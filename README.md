@@ -29,3 +29,19 @@
 <br>【360雲盤】：http://adf.ly/1ZWbde
 <br>【360雲盤】：http://www.linkbucks.com/tIWs
 <br>【360密碼】：536b
+
+<br>【節目名稱】：881 1圈圈 2016-04-17（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1ZWn7k
+<br>【360雲盤】：http://www.linkbucks.com/tBFr
+<br>【360密碼】：c7d3
+
+<br>【節目名稱】：903 兒童適宜 2016-04-17（HD）
+<br>【節目主持】：朱薰 | 陸永
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：Kiss Kiss Kids
+<br>【360雲盤】：http://adf.ly/1ZWn4P
+<br>【360雲盤】：http://www.linkbucks.com/tBZ1
+<br>【360密碼】：4a27
