@@ -173,3 +173,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZZewR
 <br>【百度雲盤】：http://www.linkbucks.com/tPun
 <br>【百度密碼】：p929
+
+<br>【節目名稱】：903 雲妮鍾情 2016-04-18（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1ZZeuF
+<br>【360雲盤】：http://www.linkbucks.com/tf6g
+<br>【360密碼】：b2f7
+<br>【百度雲盤】：http://adf.ly/1ZZmTN
+<br>【百度雲盤】：http://www.linkbucks.com/tf4d
+<br>【百度密碼】：hfme
+
+<br>【節目名稱】：881 光明頂 2016-04-18（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1ZZmvv
+<br>【360雲盤】：http://www.linkbucks.com/tftL
+<br>【360密碼】：48f7
+<br>【百度雲盤】：http://adf.ly/1ZZnLw
+<br>【百度雲盤】：http://www.linkbucks.com/tfkb
+<br>【百度密碼】：qead
