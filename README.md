@@ -137,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1ZZZrC
 <br>【360雲盤】：http://www.linkbucks.com/tQSI
 <br>【360密碼】：e266
+<br>【百度雲盤】：http://adf.ly/1ZZfD2
+<br>【百度雲盤】：http://www.linkbucks.com/tPsU
+<br>【百度密碼】：rk2x
 
 <br>【節目名稱】：881 人民大道中 2016-04-18（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -145,6 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1ZZZt4
 <br>【360雲盤】：http://www.linkbucks.com/tQRp
 <br>【360密碼】：452e
+<br>【百度雲盤】：http://adf.ly/1ZZf9A
+<br>【百度雲盤】：http://www.linkbucks.com/tPtK
+<br>【百度密碼】：q2rh
 
 <br>【節目名稱】：881 杏林茶 2016-04-18（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -153,6 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1ZZZV7
 <br>【360雲盤】：http://www.linkbucks.com/tQUO
 <br>【360密碼】：65d6
+<br>【百度雲盤】：http://adf.ly/1ZZfFv
+<br>【百度雲盤】：http://www.linkbucks.com/tPr9
+<br>【百度密碼】：x649
 
 <br>【節目名稱】：881 串 2016-04-18（HD）
 <br>【節目主持】：潘小濤 | 何亦文
