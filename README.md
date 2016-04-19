@@ -71,6 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1Zb3f7
 <br>【360雲盤】：http://www.linkbucks.com/tQrj
 <br>【360密碼】：543f
+<br>【百度雲盤】：http://adf.ly/1Zb5uH
+<br>【百度雲盤】：http://www.linkbucks.com/tP6I
+<br>【百度密碼】：x5ry
 
 <br>【節目名稱】：881 人生交叉盤 2016-04-19（HD）
 <br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
@@ -79,6 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1Zb3gz
 <br>【360雲盤】：http://www.linkbucks.com/tQpc
 <br>【360密碼】：c454
+<br>【百度雲盤】：http://adf.ly/1Zb5pm
+<br>【百度雲盤】：http://www.linkbucks.com/tP6f
+<br>【百度密碼】：q62c
 
 <br>【節目名稱】：903 口水多過浪花 2016-04-19（HD）
 <br>【節目主持】：鄭裕玲 | 占 | Donald
@@ -87,3 +93,6 @@
 <br>【360雲盤】：http://adf.ly/1Zb3iq
 <br>【360雲盤】：http://www.linkbucks.com/tQpN
 <br>【360密碼】：14c9
+<br>【百度雲盤】：http://adf.ly/1Zb5sI
+<br>【百度雲盤】：http://www.linkbucks.com/tP6W
+<br>【百度密碼】：bphx
