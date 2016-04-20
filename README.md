@@ -118,3 +118,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZdZOE
 <br>【百度雲盤】：http://www.linkbucks.com/tZ5c
 <br>【百度密碼】：4xpg
+
+<br>【節目名稱】：903 檸檸檸檸檸 2016-04-20（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：18:00 - 18:30
+<br>【檔案名稱】：Ning Ning Ning Ning Ning
+<br>【360雲盤】：待更新
+<br>【360雲盤】：待更新
+<br>【360密碼】：待更新
+<br>【百度雲盤】：http://adf.ly/1ZdafJ
+<br>【百度雲盤】：http://www.linkbucks.com/tZxD
+<br>【百度密碼】：tebn
+
+<br>【節目名稱】：903 今日正 2016-04-20（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：待更新
+<br>【360雲盤】：待更新
+<br>【360密碼】：待更新
+<br>【百度雲盤】：http://adf.ly/1ZdbmZ
+<br>【百度雲盤】：http://www.linkbucks.com/tkF3
+<br>【百度密碼】：38es
