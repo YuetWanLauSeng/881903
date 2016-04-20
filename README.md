@@ -181,6 +181,9 @@
 <br>【360雲盤】：http://adf.ly/1ZbmzE
 <br>【360雲盤】：http://www.linkbucks.com/tZVp
 <br>【360密碼】：df00
+<br>【百度雲盤】：http://adf.ly/1Zcb1J
+<br>【百度雲盤】：http://www.linkbucks.com/tSZu
+<br>【百度密碼】：7kcp
 
 <br>【節目名稱】：881 光明頂 2016-04-19（HD）
 <br>【節目主持】：陶傑
@@ -200,6 +203,9 @@
 <br>【360雲盤】：http://adf.ly/1ZcZoP
 <br>【360雲盤】：http://www.linkbucks.com/tSmy
 <br>【360密碼】：4a7f
+<br>【百度雲盤】：http://adf.ly/1ZcbzL
+<br>【百度雲盤】：http://www.linkbucks.com/tSPF
+<br>【百度密碼】：jfje
 
 <br>【節目名稱】：903 廣東爆谷 2016-04-19（HD）
 <br>【節目主持】：Colin
@@ -208,3 +214,6 @@
 <br>【360雲盤】：http://adf.ly/1ZcZmu
 <br>【360雲盤】：http://www.linkbucks.com/tSnV
 <br>【360密碼】：3333
+<br>【百度雲盤】：http://adf.ly/1Zcb4C
+<br>【百度雲盤】：http://www.linkbucks.com/tSZj
+<br>【百度密碼】：iz4y
