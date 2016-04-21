@@ -123,9 +123,9 @@
 <br>【節目主持】：檸
 <br>【節目時間】：18:00 - 18:30
 <br>【檔案名稱】：Ning Ning Ning Ning Ning
-<br>【360雲盤】：待更新
-<br>【360雲盤】：待更新
-<br>【360密碼】：待更新
+<br>【360雲盤】：http://adf.ly/1Zeoik
+<br>【360雲盤】：http://www.linkbucks.com/ttNx
+<br>【360密碼】：962d
 <br>【百度雲盤】：http://adf.ly/1ZdafJ
 <br>【百度雲盤】：http://www.linkbucks.com/tZxD
 <br>【百度密碼】：tebn
@@ -134,9 +134,9 @@
 <br>【節目主持】：梁文禮 | 麻利亞
 <br>【節目時間】：18:00 - 20:00
 <br>【檔案名稱】：Make My Day
-<br>【360雲盤】：待更新
-<br>【360雲盤】：待更新
-<br>【360密碼】：待更新
+<br>【360雲盤】：http://adf.ly/1Zeokx
+<br>【360雲盤】：http://www.linkbucks.com/ttNP
+<br>【360密碼】：0f56
 <br>【百度雲盤】：http://adf.ly/1ZdbmZ
 <br>【百度雲盤】：http://www.linkbucks.com/tkF3
 <br>【百度密碼】：38es
@@ -145,9 +145,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：待更新
-<br>【360雲盤】：待更新
-<br>【360密碼】：待更新
+<br>【360雲盤】：http://adf.ly/1Zeomz
+<br>【360雲盤】：http://www.linkbucks.com/ttM8
+<br>【360密碼】：f4ed
 <br>【百度雲盤】：http://adf.ly/1ZdxEK
 <br>【百度雲盤】：http://www.linkbucks.com/toQe
 <br>【百度密碼】：iccu
@@ -156,9 +156,31 @@
 <br>【節目主持】：陶傑
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：待更新
-<br>【360雲盤】：待更新
-<br>【360密碼】：待更新
+<br>【360雲盤】：http://adf.ly/1Zeoq9
+<br>【360雲盤】：http://www.linkbucks.com/ttMr
+<br>【360密碼】：e3b5
 <br>【百度雲盤】：http://adf.ly/1ZdxGs
 <br>【百度雲盤】：http://www.linkbucks.com/toPt
 <br>【百度密碼】：c225
+
+<br>【節目名稱】：903 雙截棍 2016-04-20（HD）
+<br>【節目主持】：火火 | 余迪偉
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：More Amour
+<br>【360雲盤】：http://adf.ly/1Zeple
+<br>【360雲盤】：http://www.linkbucks.com/ts7c
+<br>【360密碼】：a14a
+<br>【百度雲盤】：http://adf.ly/1Zeq0v
+<br>【百度雲盤】：http://www.linkbucks.com/ts1H
+<br>【百度密碼】：wdnm
+
+<br>【節目名稱】：903 廣東爆谷 2016-04-20（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1Zeos0
+<br>【360雲盤】：http://www.linkbucks.com/ttMM
+<br>【360密碼】：466f
+<br>【百度雲盤】：http://adf.ly/1Zeq3c
+<br>【百度雲盤】：http://www.linkbucks.com/ts0i
+<br>【百度密碼】：hnvx
