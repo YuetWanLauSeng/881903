@@ -107,3 +107,11 @@
 <br>【百度雲盤】：http://adf.ly/1ZfQ1T
 <br>【百度雲盤】：http://www.linkbucks.com/tnBs
 <br>【百度密碼】：4yae
+
+<br>【節目名稱】：903 好出奇 2016-04-21（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1ZfRsW
+<br>【360雲盤】：http://www.linkbucks.com/YbLF
+<br>【360密碼】：c951
