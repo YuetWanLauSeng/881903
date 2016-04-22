@@ -151,3 +151,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZhYzA
 <br>【百度雲盤】：http://www.linkbucks.com/t24v
 <br>【百度密碼】：mj6f
+
+<br>【節目名稱】：881 杏林茶 2016-04-22（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1Zhclf
+<br>【360雲盤】：http://www.linkbucks.com/t1MR
+<br>【360密碼】：4efb
+<br>【百度雲盤】：http://adf.ly/1Zhd42
+<br>【百度雲盤】：http://www.linkbucks.com/t1Ls
+<br>【百度密碼】：i5s6
+
+<br>【節目名稱】：903 集雜志 2016-04-22（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1Zhcnd
+<br>【360雲盤】：http://www.linkbucks.com/t1GL
+<br>【360密碼】：0b52
+<br>【百度雲盤】：http://adf.ly/1Zhd1s
+<br>【百度雲盤】：http://www.linkbucks.com/t1Lx
+<br>【百度密碼】：desy
