@@ -225,6 +225,9 @@
 <br>【360雲盤】：http://adf.ly/1Zjpno
 <br>【360雲盤】：http://www.linkbucks.com/t5tl
 <br>【360密碼】： 59e1
+<br>【百度雲盤】：http://adf.ly/1ZjvdX
+<br>【百度雲盤】：http://www.linkbucks.com/P4TW
+<br>【百度密碼】：qtqe
 
 <br>【節目名稱】：903 903 豁達推介 2016-04-23（HD）
 <br>【節目主持】：梁文禮
@@ -233,6 +236,9 @@
 <br>【360雲盤】：http://adf.ly/1ZjpY5
 <br>【360雲盤】：http://www.linkbucks.com/t588
 <br>【360密碼】：6f3a
+<br>【百度雲盤】：http://adf.ly/1ZjvY5
+<br>【百度雲盤】：http://www.linkbucks.com/QAWV
+<br>【百度密碼】：qfj4
 
 <br>【節目名稱】：903 3號螺絲釘 2016-04-23（HD）
 <br>【節目主持】：Colin
@@ -241,3 +247,17 @@
 <br>【360雲盤】：http://adf.ly/1ZjpLx
 <br>【360雲盤】：http://www.linkbucks.com/t6DZ
 <br>【360密碼】：df61
+<br>【百度雲盤】：http://adf.ly/1Zjvb3
+<br>【百度雲盤】：http://www.linkbucks.com/P6xx
+<br>【百度密碼】：7pjk
+
+<br>【節目名稱】：903 西瓜大發 ! 2016-04-23（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：WonderMelon !
+<br>【360雲盤】：http://adf.ly/1ZjvTH
+<br>【360雲盤】：http://www.linkbucks.com/QVRS
+<br>【360密碼】：e583
+<br>【百度雲盤】：http://adf.ly/1ZjvVq
+<br>【百度雲盤】：http://www.linkbucks.com/QHDt
+<br>【百度密碼】：ke1b
