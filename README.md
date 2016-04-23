@@ -129,3 +129,91 @@
 <br>【百度雲盤】：http://adf.ly/1Zj8vI
 <br>【百度雲盤】：http://www.linkbucks.com/uOQY
 <br>【百度密碼】：n167
+
+<br>【節目名稱】：903 好醒晨 2016-04-23（HD）
+<br>【節目主持】：細So
+<br>【節目時間】：06:00 - 09:00
+<br>【檔案名稱】：So Sunshine
+<br>【360雲盤】：http://adf.ly/1ZjDXt
+<br>【360雲盤】：http://www.linkbucks.com/uNV5
+<br>【360密碼】：d249
+<br>【百度雲盤】：http://adf.ly/1ZjFTf
+<br>【百度雲盤】：http://www.linkbucks.com/uM9T
+<br>【百度密碼】：c59x
+
+<br>【節目名稱】：881 政經星期六 2016-04-23（HD）
+<br>【節目主持】：陳淑薇 | 羅輝
+<br>【節目時間】：08:00 - 10:00
+<br>【檔案名稱】：Saturday Forum
+<br>【360雲盤】：http://adf.ly/1ZjDUo
+<br>【360雲盤】：http://www.linkbucks.com/uNWE
+<br>【360密碼】：3624
+<br>【百度雲盤】：http://adf.ly/1ZjE7v
+<br>【百度雲盤】：http://www.linkbucks.com/uNNz
+<br>【百度密碼】：e4rm
+
+<br>【節目名稱】：903 西加航空 2016-04-23（HD）
+<br>【節目主持】：謝茜嘉
+<br>【節目時間】：09:00 - 11:00
+<br>【檔案名稱】：J.A.L
+<br>【360雲盤】：http://adf.ly/1ZjDQD
+<br>【360雲盤】：http://www.linkbucks.com/uNXE
+<br>【360密碼】：ef76
+<br>【百度雲盤】：http://adf.ly/1ZjFW2
+<br>【百度雲盤】：http://www.linkbucks.com/uM9N
+<br>【百度密碼】：5h23
+
+<br>【節目名稱】：881 不平平則鳴 2016-04-23（HD）
+<br>【節目主持】：陳聰 | 王永平
+<br>【節目時間】：10:00 - 11:00
+<br>【檔案名稱】：LegCo Inside-Out
+<br>【360雲盤】：http://adf.ly/1ZjDSR
+<br>【360雲盤】：http://www.linkbucks.com/uNWV
+<br>【360密碼】：3b2b
+<br>【百度雲盤】：http://adf.ly/1ZjE0L
+<br>【百度雲盤】：http://www.linkbucks.com/uNPM
+<br>【百度密碼】：u3ut
+
+<br>【節目名稱】：881 考股專家 2016-04-23（HD）
+<br>【節目主持】：陳永陸 | 伍甄琪
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：Stockaeologist
+<br>【360雲盤】：http://adf.ly/1ZjDiJ
+<br>【360雲盤】：http://www.linkbucks.com/uNUD
+<br>【360密碼】：74e1
+<br>【百度雲盤】：http://adf.ly/1ZjE2q
+<br>【百度雲盤】：http://www.linkbucks.com/uNOx
+<br>【百度密碼】：chy2
+
+<br>【節目名稱】：903 903 專業推介 2016-04-23（HD）
+<br>【節目主持】：Donald
+<br>【節目時間】：11:00 - 13:00
+<br>【檔案名稱】：903 Top 20
+<br>【360雲盤】：http://adf.ly/1ZjDkZ
+<br>【360雲盤】：http://www.linkbucks.com/uNTl
+<br>【360密碼】：7e1c
+<br>【百度雲盤】：http://adf.ly/1ZjEAE
+<br>【百度雲盤】：http://www.linkbucks.com/uNNl
+<br>【百度密碼】：3m95
+
+<br>【節目名稱】：903 咪芝蓮 2016-04-23（HD）
+<br>【節目主持】：小儀
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Mr Chef
+<br>【360雲盤】：http://adf.ly/1ZjDmx
+<br>【360雲盤】：http://www.linkbucks.com/uNSJ
+<br>【360密碼】：eb8b
+<br>【百度雲盤】：http://adf.ly/1ZjE56
+<br>【百度雲盤】：http://www.linkbucks.com/uNOV
+<br>【百度密碼】：u1f9
+
+<br>【節目名稱】：903 滑鼠商店街 2016-04-23（HD）
+<br>【節目主持】：麻利亞
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Shopping Cart
+<br>【360雲盤】：http://adf.ly/1ZjFPN
+<br>【360雲盤】：http://www.linkbucks.com/uM9q
+<br>【360密碼】：f63d
+<br>【百度雲盤】：http://adf.ly/1ZjFRx
+<br>【百度雲盤】：http://www.linkbucks.com/uM9d
+<br>【百度密碼】：qy4k
