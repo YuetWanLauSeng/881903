@@ -261,3 +261,14 @@
 <br>【百度雲盤】：http://adf.ly/1ZjvVq
 <br>【百度雲盤】：http://www.linkbucks.com/QHDt
 <br>【百度密碼】：ke1b
+
+<br>【節目名稱】：903 Chi Chung's Class 2016-04-23（HD）
+<br>【節目主持】：黃志淙
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Chi Chung's Class
+<br>【360雲盤】：http://adf.ly/1Zk3db
+<br>【360雲盤】：http://www.linkbucks.com/uI7M
+<br>【360密碼】：887e
+<br>【百度雲盤】：http://adf.ly/1Zk3nO
+<br>【百度雲盤】：http://www.linkbucks.com/uI6S
+<br>【百度密碼】：sfz6
