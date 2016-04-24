@@ -85,3 +85,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZlaW2
 <br>【百度雲盤】：http://www.linkbucks.com/uLoC
 <br>【百度密碼】：395g
+
+<br>【節目名稱】：903 國語類 2016-04-24（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：18:00 - 21:00
+<br>【檔案名稱】：Bo Po Mo Fo
+<br>【360雲盤】：http://adf.ly/1ZleBE
+<br>【360雲盤】：http://www.linkbucks.com/uKg3
+<br>【360密碼】：070e
+<br>【百度雲盤】：http://adf.ly/1ZleXR
+<br>【百度雲盤】：http://www.linkbucks.com/uKef
+<br>【百度密碼】：djm6
+
+<br>【節目名稱】：881 泡菜粉絲煲 2016-04-24（HD） 
+<br>【節目主持】：伍甄琪 | 伍悅
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Kimchi Fans Club
+<br>【360雲盤】：http://adf.ly/1ZleEU
+<br>【360雲盤】：http://www.linkbucks.com/uKgo
+<br>【360密碼】：529a
+<br>【百度雲盤】：http://adf.ly/1ZleG6
+<br>【百度雲盤】：http://www.linkbucks.com/uKgb
+<br>【百度密碼】：b7kk
