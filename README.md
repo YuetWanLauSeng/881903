@@ -107,3 +107,14 @@
 <br>【百度雲盤】：http://adf.ly/1ZleG6
 <br>【百度雲盤】：http://www.linkbucks.com/uKgb
 <br>【百度密碼】：b7kk
+
+<br>【節目名稱】：881 細路強 2016-04-24（HD） 
+<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+<br>【節目時間】：21:00 - 22:00 
+<br>【檔案名稱】：Mighty Kids Mighty Parents
+<br>【360雲盤】：http://adf.ly/1Zlf5I
+<br>【360雲盤】：http://www.linkbucks.com/uKYh
+<br>【360密碼】：da9a
+<br>【百度雲盤】：http://adf.ly/1ZlfHI
+<br>【百度雲盤】：http://www.linkbucks.com/uKWu
+<br>【百度密碼】：azp4
