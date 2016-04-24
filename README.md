@@ -283,3 +283,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZkrCT
 <br>【百度雲盤】：http://www.linkbucks.com/uDjP
 <br>【百度密碼】：fqja
+
+<br>【節目名稱】：881 發式生活 2016-04-23（HD） 
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1ZkuKr
+<br>【360雲盤】：http://www.linkbucks.com/uB9Q
+<br>【360密碼】：ad5f
+<br>【百度雲盤】：http://adf.ly/1ZkuQS
+<br>【百度雲盤】：http://www.linkbucks.com/uB8K
+<br>【百度密碼】：fup9
+
+<br>【節目名稱】：903 皇牌出場 2016-04-23（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1ZkuMv
+<br>【360雲盤】：http://www.linkbucks.com/uB8u
+<br>【360密碼】：c276
+<br>【百度雲盤】：http://adf.ly/1ZkuOv
+<br>【百度雲盤】：http://www.linkbucks.com/uB8c
+<br>【百度密碼】：p7bw
