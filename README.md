@@ -41,3 +41,36 @@
 <br>【百度雲盤】：http://adf.ly/1Zl76S
 <br>【百度雲盤】：http://www.linkbucks.com/t7Pr
 <br>【百度密碼】：dcd7
+
+<br>【節目名稱】：903 兒童適宜 2016-04-24（HD）
+<br>【節目主持】：朱薰 | 陸永
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：Kiss Kiss Kids
+<br>【360雲盤】：http://adf.ly/1ZlZIl
+<br>【360雲盤】：http://www.linkbucks.com/uL2E
+<br>【360密碼】：5530
+<br>【百度雲盤】：http://adf.ly/1ZlZW7
+<br>【百度雲盤】：http://www.linkbucks.com/uL0q
+<br>【百度密碼】：7797
+
+<br>【節目名稱】：903 咆哮山莊 2016-04-24（HD）
+<br>【節目主持】：903 DJ
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：903 Band Time
+<br>【360雲盤】：http://adf.ly/1ZlZKy
+<br>【360雲盤】：http://www.linkbucks.com/uL1x
+<br>【360密碼】：4c10
+<br>【百度雲盤】：http://adf.ly/1ZlZSF
+<br>【百度雲盤】：http://www.linkbucks.com/uL1E
+<br>【百度密碼】：nypc
+
+<br>【節目名稱】：881 串 2016-04-24（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：18:30 - 19:00
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1ZlZMd
+<br>【360雲盤】：http://www.linkbucks.com/uL1g
+<br>【360密碼】：458c
+<br>【百度雲盤】：http://adf.ly/1ZlZQJ
+<br>【百度雲盤】：http://www.linkbucks.com/uL1S
+<br>【百度密碼】：j1g8
