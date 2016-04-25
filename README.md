@@ -184,3 +184,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZnWSe
 <br>【百度雲盤】：http://www.linkbucks.com/uUSa
 <br>【百度密碼】：9htt
+
+<br>【節目名稱】：903 雲妮鍾情 2016-04-25（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1ZncQX
+<br>【360雲盤】：http://www.linkbucks.com/uR1e
+<br>【360密碼】：a25d
+<br>【百度雲盤】：http://adf.ly/1Zncaa
+<br>【百度雲盤】：http://www.linkbucks.com/uRyf
+<br>【百度密碼】：a8pw
+
+<br>【節目名稱】：881 書.情.歌 2016-04-25（HD）
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time
+<br>【360雲盤】：http://adf.ly/1ZncMM
+<br>【360雲盤】：http://www.linkbucks.com/uR2J
+<br>【360密碼】：4931
+<br>【百度雲盤】：http://adf.ly/1ZncUk
+<br>【百度雲盤】：http://www.linkbucks.com/uRzp
+<br>【百度密碼】：vztj
