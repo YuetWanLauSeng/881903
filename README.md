@@ -140,3 +140,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZlnpK
 <br>【百度雲盤】：http://www.linkbucks.com/uGzo
 <br>【百度密碼】：3wu1
+
+<br>【節目名稱】：903 短期租約 2016-04-24（HD）
+<br>【節目主持】：Wasabi
+<br>【節目時間】：23:00 - 02:00
+<br>【檔案名稱】：Short-term Lease
+<br>【360雲盤】：http://adf.ly/1ZmWVr
+<br>【360雲盤】：http://www.linkbucks.com/kQUv
+<br>【360密碼】：d5a5
+<br>【百度雲盤】：http://adf.ly/1ZmWXQ
+<br>【百度雲盤】：http://www.linkbucks.com/glcv
+<br>【百度密碼】：fatj
+
+<br>【節目名稱】：881 寫生活 2016-04-24（HD）
+<br>【節目主持】：881 主持人
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Bedtime Readings
+<br>【360雲盤】：http://adf.ly/1ZmWU6
+<br>【360雲盤】：http://www.linkbucks.com/kobj
+<br>【360密碼】：541c
+<br>【百度雲盤】：http://adf.ly/1ZmWYs
+<br>【百度雲盤】：http://www.linkbucks.com/e4AB
+<br>【百度密碼】：8pm6
