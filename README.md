@@ -206,3 +206,14 @@
 <br>【百度雲盤】：http://adf.ly/1ZncUk
 <br>【百度雲盤】：http://www.linkbucks.com/uRzp
 <br>【百度密碼】：vztj
+
+<br>【節目名稱】：881 光明頂 2016-04-25（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1ZndJP
+<br>【360雲盤】：http://www.linkbucks.com/uRji
+<br>【360密碼】：36df
+<br>【百度雲盤】：http://adf.ly/1ZndT5
+<br>【百度雲盤】：http://www.linkbucks.com/uRf8
+<br>【百度密碼】：eezw
