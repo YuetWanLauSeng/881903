@@ -118,3 +118,14 @@
 <br>【百度雲盤】：http://adf.ly/1ZovlY
 <br>【百度雲盤】：http://www.linkbucks.com/uZRJ
 <br>【百度密碼】：irph
+
+<br>【節目名稱】：903 檸檸檸檸檸 2016-04-26（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：18:00 - 18:30
+<br>【檔案名稱】：Ning Ning Ning Ning Ning
+<br>【360雲盤】：http://adf.ly/1Zox9c
+<br>【360雲盤】：http://www.linkbucks.com/uZJW
+<br>【360密碼】：e77c
+<br>【百度雲盤】：http://adf.ly/1ZoxTT
+<br>【百度雲盤】：http://www.linkbucks.com/uZIX
+<br>【百度密碼】：3fq3
