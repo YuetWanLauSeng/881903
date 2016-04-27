@@ -140,3 +140,14 @@
 <br>【百度雲盤】：http://adf.ly/1ZrFAw
 <br>【百度雲盤】：http://www.linkbucks.com/u19O
 <br>【百度密碼】：im7c
+
+<br>【節目名稱】：903 集雜志 2016-04-27（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1ZrLyn
+<br>【360雲盤】：http://www.linkbucks.com/u0Zb
+<br>【360密碼】：52ce
+<br>【百度雲盤】：http://adf.ly/1ZrM1X
+<br>【百度雲盤】：http://www.linkbucks.com/u0XU
+<br>【百度密碼】：3nhz
