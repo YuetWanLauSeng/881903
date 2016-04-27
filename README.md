@@ -129,3 +129,14 @@
 <br>【百度雲盤】：http://adf.ly/1Zr8w7
 <br>【百度雲盤】：http://www.linkbucks.com/u3Oj
 <br>【百度密碼】：2vew
+
+<br>【節目名稱】：903 今日正 2016-04-27（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1ZrDyw
+<br>【360雲盤】：http://www.linkbucks.com/u2GH
+<br>【360密碼】：edf5
+<br>【百度雲盤】：http://adf.ly/1ZrFAw
+<br>【百度雲盤】：http://www.linkbucks.com/u19O
+<br>【百度密碼】：im7c
