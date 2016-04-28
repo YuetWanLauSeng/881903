@@ -173,3 +173,36 @@
 <br>【百度雲盤】：http://adf.ly/1ZrbBi
 <br>【百度雲盤】：http://www.linkbucks.com/vDCV
 <br>【百度密碼】：9hm5
+
+<br>【節目名稱】：903 雙截棍 2016-04-27（HD）
+<br>【節目主持】：火火 | 余迪偉
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：More Amour
+<br>【360雲盤】：http://adf.ly/1ZsGD1
+<br>【360雲盤】：http://www.linkbucks.com/u0sG
+<br>【360密碼】：6c34
+<br>【百度雲盤】：http://adf.ly/1ZsGgg
+<br>【百度雲盤】：http://www.linkbucks.com/u0aN
+<br>【百度密碼】：mvn7
+
+<br>【節目名稱】：881 月光光呵呵呵 2016-04-27（HD）
+<br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
+<br>【節目時間】：00:30 - 01:30
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss
+<br>【360雲盤】：http://adf.ly/1ZsGBE
+<br>【360雲盤】：http://www.linkbucks.com/u0sL
+<br>【360密碼】：9b6e
+<br>【百度雲盤】：http://adf.ly/1ZsGiK
+<br>【百度雲盤】：http://www.linkbucks.com/u0ZV
+<br>【百度密碼】：utw8
+
+<br>【節目名稱】：903 廣東爆谷 2016-04-27（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1ZsG84
+<br>【360雲盤】：http://www.linkbucks.com/u0sc
+<br>【360密碼】：4c6f
+<br>【百度雲盤】：http://adf.ly/1ZsGdx
+<br>【百度雲盤】：http://www.linkbucks.com/u0a3
+<br>【百度密碼】：e6xt
