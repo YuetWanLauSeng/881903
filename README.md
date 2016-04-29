@@ -63,3 +63,36 @@
 <br>【百度雲盤】：http://adf.ly/1ZubKu
 <br>【百度雲盤】：http://www.linkbucks.com/u27k
 <br>【百度密碼】：a7bg
+
+<br>【節目名稱】：903 叱咤樂壇 2016-04-29（HD）
+<br>【節目主持】：謝茜嘉 | Colin
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1Zupy3
+<br>【360雲盤】：http://www.linkbucks.com/uxmL
+<br>【360密碼】：1e4b
+<br>【百度雲盤】：http://adf.ly/1Zuq7i
+<br>【百度雲盤】：http://www.linkbucks.com/uxlW
+<br>【百度密碼】：mywc
+
+<br>【節目名稱】：881 人生交叉盤 2016-04-29（HD）
+<br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1Zuq0Q
+<br>【360雲盤】：http://www.linkbucks.com/uxmH
+<br>【360密碼】：6b4d
+<br>【百度雲盤】：http://adf.ly/1Zuq5G
+<br>【百度雲盤】：http://www.linkbucks.com/uxlg
+<br>【百度密碼】：pw7i
+
+<br>【節目名稱】：903 口水多過浪花 2016-04-29（HD）
+<br>【節目主持】：鄭裕玲 | 占 | Donald
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1Zuq1o
+<br>【360雲盤】：http://www.linkbucks.com/uxl8
+<br>【360密碼】：0241
+<br>【百度雲盤】：http://adf.ly/1ZuqaM
+<br>【百度雲盤】：http://www.linkbucks.com/uxjy
+<br>【百度密碼】：4ayw
