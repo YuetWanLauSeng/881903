@@ -162,3 +162,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZvJBC
 <br>【百度雲盤】：http://www.linkbucks.com/vLZT
 <br>【百度密碼】：nyb6
+
+<br>【節目名稱】：903 集雜志 2016-04-29（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1ZvOXL
+<br>【360雲盤】：http://www.linkbucks.com/vJzJ
+<br>【360密碼】：ba4f
+<br>【百度雲盤】：http://adf.ly/1ZvOdz
+<br>【百度雲盤】：http://www.linkbucks.com/vJwj
+<br>【百度密碼】：huap
+
+<br>【節目名稱】：881 串 2016-04-29（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1ZvOkG
+<br>【360雲盤】：http://www.linkbucks.com/vJlJ
+<br>【360密碼】：a2bd
+<br>【百度雲盤】：http://adf.ly/1ZvP0y
+<br>【百度雲盤】：http://www.linkbucks.com/vJip
+<br>【百度密碼】：w9h3
