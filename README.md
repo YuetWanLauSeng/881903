@@ -107,3 +107,25 @@
 <br>【百度雲盤】：http://adf.ly/1ZuwNR
 <br>【百度雲盤】：http://www.linkbucks.com/uvA4
 <br>【百度密碼】：pkyy
+
+<br>【節目名稱】：903 好出奇 2016-04-29（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1ZvAlp
+<br>【360雲盤】：http://www.linkbucks.com/BKT4w
+<br>【360密碼】：112e
+<br>【百度雲盤】：http://adf.ly/1ZvAus
+<br>【百度雲盤】：http://www.linkbucks.com/BPYLj
+<br>【百度密碼】：my8q
+
+<br>【節目名稱】：903 檸檸檸檸檸 2016-04-29（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：18:00 - 18:30
+<br>【檔案名稱】：Ning Ning Ning Ning Ning
+<br>【360雲盤】：http://adf.ly/1ZvAp5
+<br>【360雲盤】：http://www.linkbucks.com/BKTCW
+<br>【360密碼】：c7e5
+<br>【百度雲盤】：http://adf.ly/1ZvB0t
+<br>【百度雲盤】：http://www.linkbucks.com/BPUPy
+<br>【百度密碼】：gnjc
