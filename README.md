@@ -184,3 +184,58 @@
 <br>【百度雲盤】：http://adf.ly/1Zwi10
 <br>【百度雲盤】：http://www.linkbucks.com/vIrt
 <br>【百度密碼】：ifef
+
+<br>【節目名稱】：903 滑鼠商店街 2016-04-30（HD）
+<br>【節目主持】：麻利亞
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Shopping Cart
+<br>【360雲盤】：http://adf.ly/1ZxQ2L
+<br>【360雲盤】：http://www.linkbucks.com/vJ1m
+<br>【360密碼】：4003
+<br>【百度雲盤】：http://adf.ly/1ZxQhb
+<br>【百度雲盤】：http://www.linkbucks.com/vJnC
+<br>【百度密碼】：ticc
+
+<br>【節目名稱】：881 1圈圈 2016-04-30（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1ZxQAG
+<br>【360雲盤】：http://www.linkbucks.com/vJ0x
+<br>【360密碼】： 2205
+<br>【百度雲盤】：http://adf.ly/1ZxQGu
+<br>【百度雲盤】：http://www.linkbucks.com/vJwg
+<br>【百度密碼】：2h5x
+
+<br>【節目名稱】：903 903 豁達推介 2016-04-30（HD）
+<br>【節目主持】：梁文禮
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1ZxQ7k
+<br>【360雲盤】：http://www.linkbucks.com/vJ1E
+<br>【360密碼】：cd43
+<br>【百度雲盤】：http://adf.ly/1ZxQM0
+<br>【百度雲盤】：http://www.linkbucks.com/vJvk
+<br>【百度密碼】：g46w
+
+<br>【節目名稱】：903 3號螺絲釘 2016-04-30（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Screw No.3
+<br>【360雲盤】：http://adf.ly/1ZxQ4U
+<br>【360雲盤】：http://www.linkbucks.com/vJ1b
+<br>【360密碼】：4d8a
+<br>【百度雲盤】：http://adf.ly/1ZxQJz
+<br>【百度雲盤】：http://www.linkbucks.com/vJwV
+<br>【百度密碼】：4tmf
+
+<br>【節目名稱】：903 西瓜大發 ! 2016-04-30（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：WonderMelon !
+<br>【360雲盤】：http://adf.ly/1ZxPzH
+<br>【360雲盤】：http://www.linkbucks.com/vJ2N
+<br>【360密碼】：53f3
+<br>【百度雲盤】：http://adf.ly/1ZxQrQ
+<br>【百度雲盤】：http://www.linkbucks.com/vJky
+<br>【百度密碼】：2tsk
