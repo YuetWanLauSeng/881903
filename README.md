@@ -31,6 +31,17 @@
 <br>【百度雲盤】：http://www.linkbucks.com/vJa6
 <br>【百度密碼】：3nf7
 
+<br>【節目名稱】：881903 一切從音樂開始 2016-04-26（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1ZyItr
+<br>【360雲盤】：http://www.linkbucks.com/vcsP
+<br>【360密碼】：89c8
+<br>【百度雲盤】：http://adf.ly/1ZyJcB
+<br>【百度雲盤】：http://www.linkbucks.com/vc0U
+<br>【百度密碼】：w3cu
+
 <br>【節目名稱】：881903 一切從音樂開始 2016-04-27（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
@@ -74,6 +85,17 @@
 <br>【百度雲盤】：http://adf.ly/1ZwezX
 <br>【百度雲盤】：http://www.linkbucks.com/vJTw
 <br>【百度密碼】：hywp
+
+<br>【節目名稱】：903 有誰共鳴 2016-04-26（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1ZyIvl
+<br>【360雲盤】：http://www.linkbucks.com/vccA
+<br>【360密碼】：e74b
+<br>【百度雲盤】：http://adf.ly/1ZyJ4N
+<br>【百度雲盤】：http://www.linkbucks.com/vcZz
+<br>【百度密碼】：cmg4
 
 <br>【節目名稱】：903 有誰共鳴 2016-04-27（HD） 
 <br>【節目主持】：何利利 | 嘉賓主持 
@@ -239,3 +261,47 @@
 <br>【百度雲盤】：http://adf.ly/1ZxQrQ
 <br>【百度雲盤】：http://www.linkbucks.com/vJky
 <br>【百度密碼】：2tsk
+
+<br>【節目名稱】：903 Chi Chung's Class 2016-04-30（HD）
+<br>【節目主持】：黃志淙
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Chi Chung's Class
+<br>【360雲盤】：http://adf.ly/1ZyIyF
+<br>【360雲盤】：http://www.linkbucks.com/vcax
+<br>【360密碼】：ebc6
+<br>【百度雲盤】：http://adf.ly/1ZyJdU
+<br>【百度雲盤】：http://www.linkbucks.com/vchV
+<br>【百度密碼】：ffdy
+
+<br>【節目名稱】：903 公子會 2016-04-30（HD）
+<br>【節目主持】：森美
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The Playtoy Mansion
+<br>【360雲盤】：http://adf.ly/1ZyJ28
+<br>【360雲盤】：http://www.linkbucks.com/vcq4
+<br>【360密碼】：1715
+<br>【百度雲盤】：http://adf.ly/1ZyKqX
+<br>【百度雲盤】：http://www.linkbucks.com/vb7m
+<br>【百度密碼】：y4ux
+
+<br>【節目名稱】：881 發式生活 2016-04-30（HD） 
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1ZyIzU
+<br>【360雲盤】：http://www.linkbucks.com/vc8L
+<br>【360密碼】：3ddf
+<br>【百度雲盤】：http://adf.ly/1ZyJeh
+<br>【百度雲盤】：http://www.linkbucks.com/vcgx
+<br>【百度密碼】：en35
+
+<br>【節目名稱】：903 皇牌出場 2016-04-30（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1ZyJ0b
+<br>【360雲盤】：http://www.linkbucks.com/vcaS
+<br>【360密碼】：4b0d
+<br>【百度雲盤】：http://adf.ly/1ZyKuE
+<br>【百度雲盤】：http://www.linkbucks.com/vcAM
+<br>【百度密碼】：vx6k
