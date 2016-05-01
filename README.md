@@ -41,3 +41,36 @@
 <br>【百度雲盤】：http://adf.ly/1ZyenH
 <br>【百度雲盤】：http://www.linkbucks.com/vFw4
 <br>【百度密碼】：mv6m
+
+<br>【節目名稱】：903 兒童適宜 2016-05-01（HD）
+<br>【節目主持】：朱薰 | 陸永
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：Kiss Kiss Kids
+<br>【360雲盤】：http://adf.ly/1Zz0IX
+<br>【360雲盤】：http://www.linkbucks.com/vTtv
+<br>【360密碼】：815b
+<br>【百度雲盤】：http://adf.ly/1Zz0BE
+<br>【百度雲盤】：http://www.linkbucks.com/vUWQ
+<br>【百度密碼】：wvdg
+
+<br>【節目名稱】：903 扭扭擰擰扭扭擰 2016-05-01（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：16:00 - 17:00
+<br>【檔案名稱】：Twisty Risky Story
+<br>【360雲盤】：http://adf.ly/1Zz0Gb
+<br>【360雲盤】：http://www.linkbucks.com/vUVr
+<br>【360密碼】：1a34
+<br>【百度雲盤】：http://adf.ly/1Zz09J
+<br>【百度雲盤】：http://www.linkbucks.com/vUWZ
+<br>【百度密碼】：is9q
+
+<br>【節目名稱】：903 咆哮山莊 2016-05-01（HD）
+<br>【節目主持】：903 DJ
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：903 Band Time
+<br>【360雲盤】：http://adf.ly/1Zz0EO
+<br>【360雲盤】：http://www.linkbucks.com/vUV1
+<br>【360密碼】：af8d
+<br>【百度雲盤】：http://adf.ly/1Zz06H
+<br>【百度雲盤】：http://www.linkbucks.com/vUWl
+<br>【百度密碼】：894s
