@@ -118,3 +118,14 @@
 <br>【百度雲盤】：http://adf.ly/1a0ltu
 <br>【百度雲盤】：http://www.linkbucks.com/v0rF
 <br>【百度密碼】：xcaa
+
+<br>【節目名稱】：903 好出奇 2016-05-02（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1a0non
+<br>【360雲盤】：http://www.linkbucks.com/v0OW
+<br>【360密碼】：e3cd
+<br>【百度雲盤】：http://adf.ly/1a0nw5
+<br>【百度雲盤】：http://www.linkbucks.com/v0M9
+<br>【百度密碼】：mbkx
