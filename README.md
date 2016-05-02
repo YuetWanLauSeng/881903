@@ -173,3 +173,14 @@
 <br>【百度雲盤】：http://adf.ly/1a15Hx
 <br>【百度雲盤】：http://www.linkbucks.com/vifr
 <br>【百度密碼】：9b1a
+
+<br>【節目名稱】：881 串 2016-05-02（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1a1BI9
+<br>【360雲盤】：http://www.linkbucks.com/vfR0
+<br>【360密碼】：da87
+<br>【百度雲盤】：http://adf.ly/1a1BQj
+<br>【百度雲盤】：http://www.linkbucks.com/vfPg
+<br>【百度密碼】：ppzy
