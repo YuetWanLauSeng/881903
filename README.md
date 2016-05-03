@@ -184,3 +184,36 @@
 <br>【百度雲盤】：http://adf.ly/1a2cLG
 <br>【百度雲盤】：http://www.linkbucks.com/vyGQ
 <br>【百度密碼】：n3ye
+
+<br>【節目名稱】：903 雲妮鍾情 2016-05-03（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1a2jTd
+<br>【360雲盤】：http://www.linkbucks.com/BD6BS
+<br>【360密碼】：b4fe
+<br>【百度雲盤】：http://adf.ly/1a2jVy
+<br>【百度雲盤】：http://www.linkbucks.com/BD6A2
+<br>【百度密碼】：ssv4
+
+<br>【節目名稱】：881 書.情.歌 2016-05-03（HD）
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time
+<br>【360雲盤】：http://adf.ly/1a2jRd
+<br>【360雲盤】：http://www.linkbucks.com/BD6F4
+<br>【360密碼】：55ee
+<br>【百度雲盤】：http://adf.ly/1a2jXL
+<br>【百度雲盤】：http://www.linkbucks.com/BD6Ay
+<br>【百度密碼】：cdmp
+
+<br>【節目名稱】：881 光明頂 2016-05-03（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1a2jip
+<br>【360雲盤】：http://www.linkbucks.com/BD57Z
+<br>【360密碼】：2877
+<br>【百度雲盤】：http://adf.ly/1a2jnK
+<br>【百度雲盤】：http://www.linkbucks.com/BD57J
+<br>【百度密碼】：913i
