@@ -225,6 +225,9 @@
 <br>【360雲盤】：http://adf.ly/1a3NaD
 <br>【360雲盤】：http://www.linkbucks.com/wIXC
 <br>【360密碼】：0914
+<br>【百度雲盤】：http://adf.ly/1a3TXe
+<br>【百度雲盤】：http://www.linkbucks.com/wFyb
+<br>【百度密碼】：vwje
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-05-03（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
