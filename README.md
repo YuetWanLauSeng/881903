@@ -141,3 +141,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wN6V
 <br>【百度密碼】：m6yc
 <br>【城通雲盤】：http://v.ctfile.com/info/WjJ57670
+
+<br>【節目名稱】：903 今日正 2016-05-04（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1a3wxy
+<br>【360雲盤】：http://www.linkbucks.com/wLKL
+<br>【360密碼】：a923
+<br>【百度雲盤】：http://adf.ly/1a3wzs
+<br>【百度雲盤】：http://www.linkbucks.com/wLJu
+<br>【百度密碼】：y7sv
+<br>【城通雲盤】：http://v.ctfile.com/info/ETK57757
