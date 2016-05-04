@@ -46,6 +46,18 @@
 <br>【百度密碼】：htjr
 <br>【城通雲盤】：http://v.ctfile.com/info/r5356236
 
+<br>【節目名稱】：903 早霸王 2016-05-04（HD）
+<br>【節目主持】：森美 | 阮小儀
+<br>【節目時間】：10:00 - 12:00
+<br>【檔案名稱】：Good Morning King
+<br>【360雲盤】：http://adf.ly/1a3hw1
+<br>【360雲盤】：http://www.linkbucks.com/wP2S
+<br>【360密碼】：b980
+<br>【百度雲盤】：http://adf.ly/1a3iRr
+<br>【百度雲盤】：http://www.linkbucks.com/wPpr
+<br>【百度密碼】：q165
+<br>【城通雲盤】：http://v.ctfile.com/info/RVg57046
+
 <br>【節目名稱】：881 1圈圈 2016-05-04（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：10:30 - 12:00
@@ -69,15 +81,3 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wDwR
 <br>【百度密碼】：5qu6
 <br>【城通雲盤】：http://v.ctfile.com/info/9Gs56284
-
-<br>【節目名稱】：903 早霸王 2016-05-04（HD）
-<br>【節目主持】：森美 | 阮小儀
-<br>【節目時間】：10:00 - 12:00
-<br>【檔案名稱】：Good Morning King
-<br>【360雲盤】：http://adf.ly/1a3hw1
-<br>【360雲盤】：http://www.linkbucks.com/wP2S
-<br>【360密碼】：b980
-<br>【百度雲盤】：http://adf.ly/1a3iRr
-<br>【百度雲盤】：http://www.linkbucks.com/wPpr
-<br>【百度密碼】：q165
-<br>【城通雲盤】：http://v.ctfile.com/info/RVg57046
