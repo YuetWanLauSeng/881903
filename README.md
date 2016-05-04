@@ -30,6 +30,7 @@
 <br>【百度雲盤】：http://adf.ly/1a26Qp
 <br>【百度雲盤】：http://www.linkbucks.com/vnON
 <br>【百度密碼】：ex6j
+<br>【城通網盤】：http://v.ctfile.com/info/SJp54823
 
 <br>【節目名稱】：881 雲常開 2016-05-03（HD）
 <br>【節目主持】：陳志雲
@@ -52,6 +53,7 @@
 <br>【百度雲盤】：http://adf.ly/1a26Mi
 <br>【百度雲盤】：http://www.linkbucks.com/voEc
 <br>【百度密碼】：58ir
+<br>【城通網盤】：http://v.ctfile.com/info/4wa54820
 
 <br>【節目名稱】：881 1圈圈 2016-05-03（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -107,6 +109,7 @@
 <br>【百度雲盤】：http://adf.ly/1a2F55
 <br>【百度雲盤】：http://www.linkbucks.com/vgqK
 <br>【百度密碼】：1wcd
+<br>【城通網盤】：http://v.ctfile.com/info/jNb54805
 
 <br>【節目名稱】：881 大玩派 2016-05-03（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -162,6 +165,7 @@
 <br>【百度雲盤】：http://adf.ly/1a2Whl
 <br>【百度雲盤】：http://www.linkbucks.com/v1hS
 <br>【百度密碼】：ypvb
+<br>【城通網盤】：http://v.ctfile.com/info/riQ54814
 
 <br>【節目名稱】：903 集雜志 2016-05-03（HD）
 <br>【節目主持】：急急子
@@ -173,6 +177,7 @@
 <br>【百度雲盤】：http://adf.ly/1a2WsI
 <br>【百度雲盤】：http://www.linkbucks.com/v1Xz
 <br>【百度密碼】：bxsg
+<br>【城通網盤】：http://v.ctfile.com/info/gM754811
 
 <br>【節目名稱】：881 串 2016-05-03（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -184,6 +189,7 @@
 <br>【百度雲盤】：http://adf.ly/1a2cLG
 <br>【百度雲盤】：http://www.linkbucks.com/vyGQ
 <br>【百度密碼】：n3ye
+<br>【城通網盤】：http://v.ctfile.com/info/G6b54829
 
 <br>【節目名稱】：903 雲妮鍾情 2016-05-03（HD）
 <br>【節目主持】：Vani
