@@ -92,6 +92,7 @@
 <br>【百度雲盤】：http://adf.ly/1a3l9C
 <br>【百度雲盤】：http://www.linkbucks.com/wPEw
 <br>【百度密碼】：jib8
+<br>【城通雲盤】：http://v.ctfile.com/info/XHO57676
 
 <br>【節目名稱】：881 人生交叉盤 2016-05-04（HD）
 <br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
@@ -103,6 +104,7 @@
 <br>【百度雲盤】：http://adf.ly/1a3lHd
 <br>【百度雲盤】：http://www.linkbucks.com/wPAv
 <br>【百度密碼】：mvv9
+<br>【城通雲盤】：http://v.ctfile.com/info/X0Z57679
 
 <br>【節目名稱】：903 口水多過浪花 2016-05-04（HD）
 <br>【節目主持】：鄭裕玲 | 占 | Donald
@@ -126,6 +128,7 @@
 <br>【百度雲盤】：http://adf.ly/1a3pEw
 <br>【百度雲盤】：http://www.linkbucks.com/wN9F
 <br>【百度密碼】：hj6t
+<br>【城通雲盤】：http://v.ctfile.com/info/QVg57673
 
 <br>【節目名稱】：903 好出奇 2016-05-04（HD）
 <br>【節目主持】：朱薰 | 細So | Marco
@@ -137,3 +140,4 @@
 <br>【百度雲盤】：http://adf.ly/1a3pXO
 <br>【百度雲盤】：http://www.linkbucks.com/wN6V
 <br>【百度密碼】：m6yc
+<br>【城通雲盤】：http://v.ctfile.com/info/WjJ57670
