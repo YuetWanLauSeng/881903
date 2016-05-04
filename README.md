@@ -165,3 +165,27 @@
 <br>【百度雲盤】：http://www.linkbucks.com/u5Ej
 <br>【百度密碼】：abyw
 <br>【城通雲盤】：http://v.ctfile.com/info/2oL58147
+
+<br>【節目名稱】：903 雲妮鍾情 2016-05-04（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1a4D4U
+<br>【360雲盤】：http://www.linkbucks.com/v9Ir
+<br>【360密碼】：a1e6
+<br>【百度雲盤】：http://adf.ly/1a4DGS
+<br>【百度雲盤】：http://www.linkbucks.com/v9G6
+<br>【百度密碼】：x193
+<br>【城通雲盤】：http://v.ctfile.com/info/jaK58480
+
+<br>【節目名稱】：881 光明頂 2016-05-04（HD）
+<br>【節目主持】：陶傑
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1a4D64
+<br>【360雲盤】：http://www.linkbucks.com/v9Ia
+<br>【360密碼】：5785
+<br>【百度雲盤】：http://adf.ly/1a4DJe
+<br>【百度雲盤】：http://www.linkbucks.com/v9Ge
+<br>【百度密碼】：jbkj
+<br>【城通雲盤】：http://v.ctfile.com/info/VeO58477
