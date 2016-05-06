@@ -129,3 +129,63 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wU5m
 <br>【百度密碼】：w93s
 <br>【城通雲盤】：http://v.ctfile.com/info/bT767342
+
+<br>【節目名稱】：903 好出奇 2016-05-06（HD）
+<br>【節目主持】：朱薰 | 細So | Marco
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：Holy Tricky
+<br>【360雲盤】：http://adf.ly/1a6oPW
+<br>【360雲盤】：http://www.linkbucks.com/wgVV
+<br>【360密碼】：e08f
+<br>【百度雲盤】：http://adf.ly/1a6oQu
+<br>【百度雲盤】：http://www.linkbucks.com/wgVG
+<br>【百度密碼】：98wj
+<br>【城通雲盤】：http://v.ctfile.com/info/mWA68347
+
+<br>【節目名稱】：903 今日正 2016-05-06（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:00 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1a6o3v
+<br>【360雲盤】：http://www.linkbucks.com/wgs5
+<br>【360密碼】：6752
+<br>【百度雲盤】：http://adf.ly/1a6oDo
+<br>【百度雲盤】：http://www.linkbucks.com/wgnx
+<br>【百度密碼】：q1kh
+<br>【城通雲盤】：http://v.ctfile.com/info/5b268350
+
+<br>【節目名稱】：881 人民大道中 2016-05-06（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1a6o6S
+<br>【360雲盤】：http://www.linkbucks.com/wiVg
+<br>【360密碼】：7ef9
+<br>【百度雲盤】：http://adf.ly/1a6oF7
+<br>【百度雲盤】：http://www.linkbucks.com/wgqH
+<br>【百度密碼】：xdhb
+<br>【城通雲盤】：http://v.ctfile.com/info/6nx68353
+
+<br>【節目名稱】：881 杏林茶 2016-05-06（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1a6o1F
+<br>【360雲盤】：http://www.linkbucks.com/wgrV
+<br>【360密碼】：aa11
+<br>【百度雲盤】：http://adf.ly/1a6oCp
+<br>【百度雲盤】：http://www.linkbucks.com/wiSZ
+<br>【百度密碼】：p4mm
+<br>【城通雲盤】：http://v.ctfile.com/info/R5v68356
+
+<br>【節目名稱】：903 集雜志 2016-05-06（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1a6nyy
+<br>【360雲盤】：http://www.linkbucks.com/wibP
+<br>【360密碼】：9012
+<br>【百度雲盤】：http://adf.ly/1a6oAs
+<br>【百度雲盤】：http://www.linkbucks.com/wgWf
+<br>【百度密碼】：83nr
+<br>【城通雲盤】：http://v.ctfile.com/info/CoQ68413
