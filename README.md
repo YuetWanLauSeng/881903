@@ -1,3 +1,27 @@
+<br>【節目名稱】：903 早安，同學早! 2016-05-06（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：07:00 - 08:00
+<br>【檔案名稱】：Hey, Learners!
+<br>【360雲盤】：http://adf.ly/1a6OlO
+<br>【360雲盤】：http://www.linkbucks.com/wbPU
+<br>【360密碼】：1295
+<br>【百度雲盤】：http://adf.ly/1a6Oyo
+<br>【百度雲盤】：http://www.linkbucks.com/wbNt
+<br>【百度密碼】：8s2w
+<br>【城通雲盤】：http://v.ctfile.com/info/GqZ66100
+
+<br>【節目名稱】：881 在晴朗的一天出發 2016-05-06（HD）
+<br>【節目主持】：陳志雲 | 郭志仁 | 陳聰 | 謝遜
+<br>【節目時間】：06:30 - 10:00
+<br>【檔案名稱】：On a Clear Day（881）
+<br>【360雲盤】：http://adf.ly/1a6On5
+<br>【360雲盤】：http://www.linkbucks.com/wbPN
+<br>【360密碼】：be05
+<br>【百度雲盤】：http://adf.ly/1a6Osl
+<br>【百度雲盤】：http://www.linkbucks.com/wbOR
+<br>【百度密碼】：iuki
+<br>【城通雲盤】：http://v.ctfile.com/info/4oL66106
+
 <br>【節目名稱】：903 在晴朗的一天出發 2016-05-06（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
@@ -10,6 +34,18 @@
 <br>【百度密碼】：e7sy
 <br>【城通雲盤】：http://v.ctfile.com/info/z9e65680
 
+<br>【節目名稱】：881 雲常開 2016-05-06（HD）
+<br>【節目主持】：陳志雲
+<br>【節目時間】：10:00 - 10:30
+<br>【檔案名稱】：Under the Sun
+<br>【360雲盤】：http://adf.ly/1a6OoQ
+<br>【360雲盤】：http://www.linkbucks.com/wbO5
+<br>【360密碼】：701d
+<br>【百度雲盤】：http://adf.ly/1a6Owz
+<br>【百度雲盤】：http://www.linkbucks.com/wbN0
+<br>【百度密碼】：8d63
+<br>【城通雲盤】：http://v.ctfile.com/info/7N966094
+
 <br>【節目名稱】：903 早霸王 2016-05-06（HD）
 <br>【節目主持】：森美 | 阮小儀
 <br>【節目時間】：10:00 - 12:00
@@ -21,6 +57,18 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wc7q
 <br>【百度密碼】：fbed
 <br>【城通雲盤】：http://v.ctfile.com/info/sxH65686
+
+<br>【節目名稱】：881 1圈圈 2016-05-06（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：10:30 - 12:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1a6OkF
+<br>【360雲盤】：http://www.linkbucks.com/wbPt
+<br>【360密碼】：1ba2
+<br>【百度雲盤】：http://adf.ly/1a6Ou4
+<br>【百度雲盤】：http://www.linkbucks.com/wbOH
+<br>【百度密碼】：rdhv
+<br>【城通雲盤】：http://v.ctfile.com/info/4WH66097
 
 <br>【節目名稱】：881 十八樓C座 2016-05-06（HD）
 <br>【節目主持】：金剛 | 陳森 | 朱雪梅
