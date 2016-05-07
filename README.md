@@ -85,3 +85,25 @@
 <br>【百度雲盤】：http://adf.ly/1a7pGY
 <br>【百度雲盤】：http://www.linkbucks.com/wba7
 <br>【百度密碼】：986d
+
+<br>【節目名稱】：903 903 豁達推介 2016-05-07（HD）
+<br>【節目主持】：梁文禮
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1a82AV
+<br>【360雲盤】：http://www.linkbucks.com/wkiq
+<br>【360密碼】：252f
+<br>【百度雲盤】：http://adf.ly/1a82E7
+<br>【百度雲盤】：http://www.linkbucks.com/wkhE
+<br>【百度密碼】：xyvw
+
+<br>【節目名稱】：903 3號螺絲釘 2016-05-07（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Screw No.3
+<br>【360雲盤】：http://adf.ly/1a82BZ
+<br>【360雲盤】：http://www.linkbucks.com/wkiB
+<br>【360密碼】：c835
+<br>【百度雲盤】：http://adf.ly/1a82Cx
+<br>【百度雲盤】：http://www.linkbucks.com/wkhf
+<br>【百度密碼】：khei
