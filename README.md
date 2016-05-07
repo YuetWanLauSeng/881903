@@ -248,6 +248,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7Xqr
 <br>【百度雲盤】：http://www.linkbucks.com/wg2V
 <br>【百度密碼】：rauq
+<br>【城通雲盤】：http://v.ctfile.com/info/jR569310
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-05-06（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
@@ -259,6 +260,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7XsG
 <br>【百度雲盤】：http://www.linkbucks.com/wg2F
 <br>【百度密碼】：ekwi
+<br>【城通雲盤】：http://v.ctfile.com/info/XJg69304
 
 <br>【節目名稱】：903 廣東爆谷 2016-05-06（HD）
 <br>【節目主持】：Colin
@@ -270,3 +272,4 @@
 <br>【百度雲盤】：http://adf.ly/1a7XoM
 <br>【百度雲盤】：http://www.linkbucks.com/wg2z
 <br>【百度密碼】：6tdx
+<br>【城通雲盤】：http://v.ctfile.com/info/Lz869301
