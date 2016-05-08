@@ -68,6 +68,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7pF3
 <br>【百度雲盤】：http://www.linkbucks.com/wbbF
 <br>【百度密碼】：bc4h
+<br>【城通雲盤】：http://v.ctfile.com/info/YLJ72301
 
 <br>【節目名稱】：903 咪芝蓮 2016-05-07（HD）
 <br>【節目主持】：小儀
@@ -147,6 +148,7 @@
 <br>【百度雲盤】：http://adf.ly/1a8zty
 <br>【百度雲盤】：http://www.linkbucks.com/wgQy
 <br>【百度密碼】：epvx
+<br>【城通雲盤】：http://v.ctfile.com/info/VVl72298
 
 <br>【節目名稱】：881 發式生活 2016-05-07（HD） 
 <br>【節目主持】：余宜發
@@ -158,6 +160,7 @@
 <br>【百度雲盤】：http://adf.ly/1a8ziv
 <br>【百度雲盤】：http://www.linkbucks.com/wgzH
 <br>【百度密碼】：5cxb
+<br>【城通雲盤】：http://v.ctfile.com/info/58872304
 
 <br>【節目名稱】：903 皇牌出場 2016-05-07（HD）
 <br>【節目主持】：Marco | Keyman
@@ -169,4 +172,4 @@
 <br>【百度雲盤】：http://adf.ly/1a8zlE
 <br>【百度雲盤】：http://www.linkbucks.com/wgsu
 <br>【百度密碼】：699j
-
+<br>【城通雲盤】：http://v.ctfile.com/info/oog72295
