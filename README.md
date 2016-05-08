@@ -137,6 +137,7 @@
 <br>【百度雲盤】：http://adf.ly/1a8zjg
 <br>【百度雲盤】：http://www.linkbucks.com/wgtO
 <br>【百度密碼】：i3jg
+<br>【城通雲盤】：http://v.ctfile.com/info/aHy72337
 
 <br>【節目名稱】：903 公子會 2016-05-07（HD）
 <br>【節目主持】：森美
