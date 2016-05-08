@@ -189,3 +189,51 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wajn
 <br>【百度密碼】：5uff
 <br>【城通雲盤】：http://v.ctfile.com/info/nmj72904
+
+<br>【節目名稱】：903 兒童適宜 2016-05-08（HD）
+<br>【節目主持】：朱薰 | 陸永
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：Kiss Kiss Kids
+<br>【360雲盤】：http://adf.ly/1a9QWZ
+<br>【360雲盤】：http://www.linkbucks.com/wX4L
+<br>【360密碼】：91a8
+<br>【百度雲盤】：http://adf.ly/1a9Qkf
+<br>【百度雲盤】：http://www.linkbucks.com/wX08
+<br>【百度密碼】：uc8z
+<br>【城通雲盤】：http://v.ctfile.com/info/JpU73255
+
+<br>【節目名稱】：881 1圈圈 2016-05-08（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1a9QVA
+<br>【360雲盤】：http://www.linkbucks.com/wX4g
+<br>【360密碼】： 23b5
+<br>【百度雲盤】：http://adf.ly/1a9Qhc
+<br>【百度雲盤】：http://www.linkbucks.com/wX1i
+<br>【百度密碼】： 3d9r
+<br>【城通雲盤】：http://v.ctfile.com/info/Zjb73258
+
+<br>【節目名稱】：903 扭扭擰擰扭扭擰 2016-05-08（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：16:00 - 17:00
+<br>【檔案名稱】：Twisty Risky Story
+<br>【360雲盤】：http://adf.ly/1a9QTh
+<br>【360雲盤】：http://www.linkbucks.com/wX42
+<br>【360密碼】：78f8
+<br>【百度雲盤】：http://adf.ly/1a9QjA
+<br>【百度雲盤】：http://www.linkbucks.com/wX1f
+<br>【百度密碼】：rybi
+<br>【城通雲盤】：http://v.ctfile.com/info/cEK73252
+
+<br>【節目名稱】：903 咆哮山莊 2016-05-08（HD）
+<br>【節目主持】：903 DJ
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：903 Band Time
+<br>【360雲盤】：http://adf.ly/1a9QS6
+<br>【360雲盤】：http://www.linkbucks.com/wX5M
+<br>【360密碼】：4f91
+<br>【百度雲盤】：http://adf.ly/1a9QgN
+<br>【百度雲盤】：http://www.linkbucks.com/wX1s
+<br>【百度密碼】：gd94
+<br>【城通雲盤】：http://v.ctfile.com/info/HYJ73270
