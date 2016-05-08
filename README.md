@@ -237,3 +237,27 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wX1s
 <br>【百度密碼】：gd94
 <br>【城通雲盤】：http://v.ctfile.com/info/HYJ73270
+
+<br>【節目名稱】：881 串 2016-05-08（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：18:30 - 19:00
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1a9VqP
+<br>【360雲盤】：http://www.linkbucks.com/wlPx
+<br>【360密碼】：6330
+<br>【百度雲盤】：http://adf.ly/1a9WZt
+<br>【百度雲盤】：http://www.linkbucks.com/wlds
+<br>【百度密碼】：3nmj
+<br>【城通雲盤】：http://v.ctfile.com/info/AYJ73543
+
+<br>【節目名稱】：881 讀懂中國 2016-05-08（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：19:00 - 20:00
+<br>【檔案名稱】：Sino Stream - Reading
+<br>【360雲盤】：http://adf.ly/1a9Vs2
+<br>【360雲盤】：http://www.linkbucks.com/wlQB
+<br>【360密碼】：3fdc
+<br>【百度雲盤】：http://adf.ly/1a9WXu
+<br>【百度雲盤】：http://www.linkbucks.com/wld3
+<br>【百度密碼】：ub51
+<br>【城通雲盤】：http://v.ctfile.com/info/6G073549
