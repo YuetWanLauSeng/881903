@@ -8,6 +8,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7pQH
 <br>【百度雲盤】：http://www.linkbucks.com/wbYE
 <br>【百度密碼】：9n8t
+<br>【城通雲盤】：http://v.ctfile.com/info/dOm71941
 
 <br>【節目名稱】：881 政經星期六 2016-05-07（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -19,6 +20,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7pKQ
 <br>【百度雲盤】：http://www.linkbucks.com/wbaD
 <br>【百度密碼】：frni
+<br>【城通雲盤】：http://v.ctfile.com/info/mMb71959
 
 <br>【節目名稱】：903 西加航空 2016-05-07（HD）
 <br>【節目主持】：謝茜嘉
@@ -30,6 +32,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7pJT
 <br>【百度雲盤】：http://www.linkbucks.com/wbai
 <br>【百度密碼】：3cjt
+<br>【城通雲盤】：http://v.ctfile.com/info/1fA71968
 
 <br>【節目名稱】：881 不平平則鳴 2016-05-07（HD）
 <br>【節目主持】：陳聰 | 王永平
@@ -41,6 +44,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7pNI
 <br>【百度雲盤】：http://www.linkbucks.com/wbZy
 <br>【百度密碼】：hruc
+<br>【城通雲盤】：http://v.ctfile.com/info/kBg71971
 
 <br>【節目名稱】：881 考股專家 2016-05-07（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -52,6 +56,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7pLu
 <br>【百度雲盤】：http://www.linkbucks.com/wbZ3
 <br>【百度密碼】：fyaf
+<br>【城通雲盤】：http://v.ctfile.com/info/86H71929
 
 <br>【節目名稱】：903 903 專業推介 2016-05-07（HD）
 <br>【節目主持】：Donald
@@ -74,6 +79,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7pIQ
 <br>【百度雲盤】：http://www.linkbucks.com/wbam
 <br>【百度密碼】：7g7s
+<br>【城通雲盤】：http://v.ctfile.com/info/lZF71962
 
 <br>【節目名稱】：903 滑鼠商店街 2016-05-07（HD）
 <br>【節目主持】：麻利亞
@@ -85,6 +91,7 @@
 <br>【百度雲盤】：http://adf.ly/1a7pGY
 <br>【百度雲盤】：http://www.linkbucks.com/wba7
 <br>【百度密碼】：986d
+<br>【城通雲盤】：http://v.ctfile.com/info/OQs71947
 
 <br>【節目名稱】：903 903 豁達推介 2016-05-07（HD）
 <br>【節目主持】：梁文禮
@@ -96,6 +103,7 @@
 <br>【百度雲盤】：http://adf.ly/1a82E7
 <br>【百度雲盤】：http://www.linkbucks.com/wkhE
 <br>【百度密碼】：xyvw
+<br>【城通雲盤】：http://v.ctfile.com/info/YEJ71953
 
 <br>【節目名稱】：903 3號螺絲釘 2016-05-07（HD）
 <br>【節目主持】：Colin
@@ -107,3 +115,4 @@
 <br>【百度雲盤】：http://adf.ly/1a82Cx
 <br>【百度雲盤】：http://www.linkbucks.com/wkhf
 <br>【百度密碼】：khei
+<br>【城通雲盤】：http://v.ctfile.com/info/FnG71950
