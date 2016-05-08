@@ -141,3 +141,51 @@
 <br>【百度雲盤】：http://www.linkbucks.com/whPn
 <br>【百度密碼】：nu8t
 <br>【城通雲盤】：http://v.ctfile.com/info/Kwp71989
+
+<br>【節目名稱】：881 政好星期天 2016-05-08（HD）
+<br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
+<br>【節目時間】：08:00 - 10:00
+<br>【檔案名稱】：Beautiful Sunday
+<br>【360雲盤】：http://adf.ly/1a9Ebn
+<br>【360雲盤】：http://www.linkbucks.com/wbYb
+<br>【360密碼】：a1a6
+<br>【百度雲盤】：http://adf.ly/1a9Gr3
+<br>【百度雲盤】：http://www.linkbucks.com/wak0
+<br>【百度密碼】：12v1
+<br>【城通雲盤】：http://v.ctfile.com/info/1CD72916
+
+<br>【節目名稱】：903 Urban Touch 2016-05-08（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：09:00 - 11:00
+<br>【檔案名稱】：Urban Touch
+<br>【360雲盤】：http://adf.ly/1a9Ei9
+<br>【360雲盤】：http://www.linkbucks.com/wbX0
+<br>【360密碼】：7273
+<br>【百度雲盤】：http://adf.ly/1a9Gta
+<br>【百度雲盤】：http://www.linkbucks.com/wajZ
+<br>【百度密碼】：g7a5
+<br>【城通雲盤】：http://v.ctfile.com/info/Idt72919
+
+<br>【節目名稱】：903 阿叔殖民地 2016-05-08（HD）
+<br>【節目主持】：何兆基
+<br>【節目時間】：11:00 - 12:00
+<br>【檔案名稱】：Music Frog
+<br>【360雲盤】：http://adf.ly/1a9EeO
+<br>【360雲盤】：http://www.linkbucks.com/wbYS
+<br>【360密碼】：f089
+<br>【百度雲盤】：http://adf.ly/1a9GvF
+<br>【百度雲盤】：http://www.linkbucks.com/wajD
+<br>【百度密碼】：fqyv
+<br>【城通雲盤】：http://v.ctfile.com/info/DT172907
+
+<br>【節目名稱】：903 讀賣Sunday 2016-05-08（HD）
+<br>【節目主持】：占 | 王貽興
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：Sunny Day Readings
+<br>【360雲盤】：http://adf.ly/1a9EgH
+<br>【360雲盤】：http://www.linkbucks.com/wbYH
+<br>【360密碼】：0d5d
+<br>【百度雲盤】：http://adf.ly/1a9GsV
+<br>【百度雲盤】：http://www.linkbucks.com/wajn
+<br>【百度密碼】：5uff
+<br>【城通雲盤】：http://v.ctfile.com/info/nmj72904
