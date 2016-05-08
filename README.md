@@ -261,3 +261,54 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wld3
 <br>【百度密碼】：ub51
 <br>【城通雲盤】：http://v.ctfile.com/info/6G073549
+
+<br>【節目名稱】：903 國語類 2016-05-08（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：18:00 - 21:00
+<br>【檔案名稱】：Bo Po Mo Fo
+<br>【360雲盤】：http://adf.ly/1a9oov
+<br>【360雲盤】：http://www.linkbucks.com/wuoa
+<br>【360密碼】：b3f6
+<br>【城通雲盤】：http://v.ctfile.com/info/fsx74269
+
+<br>【節目名稱】：881 泡菜粉絲煲 2016-05-08（HD） 
+<br>【節目主持】：伍甄琪 | 伍悅
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Kimchi Fans Club
+<br>【360雲盤】：http://adf.ly/1a9oqG
+<br>【360雲盤】：http://www.linkbucks.com/wun0
+<br>【360密碼】：d22f
+<br>【城通雲盤】：http://v.ctfile.com/info/rfg74266
+
+<br>【節目名稱】：881 細路強 2016-05-08（HD） 
+<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+<br>【節目時間】：21:00 - 22:00 
+<br>【檔案名稱】：Mighty Kids Mighty Parents
+<br>【360雲盤】：http://adf.ly/1a9orn
+<br>【360雲盤】：http://www.linkbucks.com/wuni
+<br>【360密碼】：b283
+<br>【城通雲盤】：http://v.ctfile.com/info/gRK74260
+
+<br>【節目名稱】：903 903國民教育 2016-05-08（HD）
+<br>【節目主持】：健吾
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Time's Up Pen's Down
+<br>【360雲盤】：http://adf.ly/1a9ouY
+<br>【360雲盤】：http://www.linkbucks.com/wunT
+<br>【360密碼】：11d4
+<br>【百度雲盤】：http://adf.ly/1a9p3i
+<br>【百度雲盤】：http://www.linkbucks.com/wumW
+<br>【百度密碼】：9d4u
+<br>【城通雲盤】：http://v.ctfile.com/info/lU274257
+
+<br>【節目名稱】：881 葛民教育 2016-05-08（HD）
+<br>【節目主持】：葛民輝
+<br>【節目時間】：23:00 - 23:30
+<br>【檔案名稱】：Kot’s ology
+<br>【360雲盤】：http://adf.ly/1a9ox8
+<br>【360雲盤】：http://www.linkbucks.com/wumi
+<br>【360密碼】：29a7
+<br>【百度雲盤】：http://adf.ly/1a9p6f
+<br>【百度雲盤】：http://www.linkbucks.com/wulw
+<br>【百度密碼】：mngy
+<br>【城通雲盤】：http://v.ctfile.com/info/V5e74263
