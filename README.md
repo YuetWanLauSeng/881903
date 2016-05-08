@@ -130,6 +130,9 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class
+<br>【360雲盤】：http://adf.ly/1a92SA
+<br>【360雲盤】：http://www.linkbucks.com/wfR8
+<br>【360密碼】：6601
 <br>【百度雲盤】：http://adf.ly/1a8zjg
 <br>【百度雲盤】：http://www.linkbucks.com/wgtO
 <br>【百度密碼】：i3jg
@@ -141,6 +144,9 @@
 <br>【百度雲盤】：http://adf.ly/1a8zty
 <br>【百度雲盤】：http://www.linkbucks.com/wgQy
 <br>【百度密碼】：epvx
+<br>【360雲盤】：http://adf.ly/1a92Xj
+<br>【360雲盤】：http://www.linkbucks.com/wfPS
+<br>【360密碼】：3415
 
 <br>【節目名稱】：881 發式生活 2016-05-07（HD） 
 <br>【節目主持】：余宜發
@@ -149,6 +155,9 @@
 <br>【百度雲盤】：http://adf.ly/1a8ziv
 <br>【百度雲盤】：http://www.linkbucks.com/wgzH
 <br>【百度密碼】：5cxb
+<br>【360雲盤】：http://adf.ly/1a92Tq
+<br>【360雲盤】：http://www.linkbucks.com/wfQH
+<br>【360密碼】：2dd5
 
 <br>【節目名稱】：903 皇牌出場 2016-05-07（HD）
 <br>【節目主持】：Marco | Keyman
@@ -157,3 +166,6 @@
 <br>【百度雲盤】：http://adf.ly/1a8zlE
 <br>【百度雲盤】：http://www.linkbucks.com/wgsu
 <br>【百度密碼】：699j
+<br>【360雲盤】：http://adf.ly/1a92Vy
+<br>【360雲盤】：http://www.linkbucks.com/wfPe
+<br>【360密碼】：4a95
