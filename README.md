@@ -312,3 +312,21 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wulw
 <br>【百度密碼】：mngy
 <br>【城通雲盤】：http://v.ctfile.com/info/V5e74263
+
+<br>【節目名稱】：903 短期租約 2016-05-08（HD）
+<br>【節目主持】：Wasabi
+<br>【節目時間】：23:00 - 02:00
+<br>【檔案名稱】：Short-term Lease
+<br>【360雲盤】：http://adf.ly/1aAKrl
+<br>【360雲盤】：http://www.linkbucks.com/wncX
+<br>【360密碼】：d8d7
+<br>【城通雲盤】：http://v.ctfile.com/info/M1L74815
+
+<br>【節目名稱】：881 寫生活 2016-05-08（HD）
+<br>【節目主持】：881 主持人
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Bedtime Readings
+<br>【360雲盤】：http://adf.ly/1aAKoL
+<br>【360雲盤】：http://www.linkbucks.com/wned
+<br>【360密碼】：7232
+<br>【城通雲盤】：http://v.ctfile.com/info/piz74821
