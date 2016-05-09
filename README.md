@@ -186,3 +186,15 @@
 <br>【360雲盤】：http://www.linkbucks.com/wxFA
 <br>【360密碼】：28c2
 <br>【城通雲盤】：http://v.ctfile.com/info/TDr76453
+
+<br>【節目名稱】：881 串 2016-05-09（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1aB4qX
+<br>【360雲盤】：http://www.linkbucks.com/w9q1
+<br>【360密碼】：45c0
+<br>【百度雲盤】：http://adf.ly/1aB506
+<br>【百度雲盤】：http://www.linkbucks.com/w9qa
+<br>【百度密碼】：gmbn
+<br>【城通雲盤】：http://v.ctfile.com/info/tnQ76828
