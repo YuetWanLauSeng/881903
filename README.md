@@ -120,3 +120,30 @@
 <br>【360雲盤】：http://www.linkbucks.com/wred
 <br>【360密碼】：c562
 <br>【城通雲盤】：http://v.ctfile.com/info/b9K78709
+
+<br>【節目名稱】：903 檸檸檸檸檸 2016-05-10（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：18:00 - 18:30
+<br>【檔案名稱】：Ning Ning Ning Ning Ning
+<br>【360雲盤】：http://adf.ly/1aCPzG
+<br>【360雲盤】：http://www.linkbucks.com/w9UR
+<br>【360密碼】：e12b
+<br>【城通雲盤】：http://v.ctfile.com/info/jJU79000
+
+<br>【節目名稱】：903 今日正 2016-05-10（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1aCPxd
+<br>【360雲盤】：http://www.linkbucks.com/w9Ur
+<br>【360密碼】：2592
+<br>【城通雲盤】：http://v.ctfile.com/info/8JE79003
+
+<br>【節目名稱】：881 人民大道中 2016-05-10（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1aCQ1a
+<br>【360雲盤】：http://www.linkbucks.com/w9UE
+<br>【360密碼】：040f
+<br>【城通雲盤】：http://v.ctfile.com/info/SAX79006
