@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1aC1KG
 <br>【360雲盤】：http://www.linkbucks.com/w1xi
 <br>【360密碼】：a801
+<br>【百度雲盤】：http://adf.ly/1aCcBI
+<br>【百度雲盤】：http://www.linkbucks.com/wvks
+<br>【百度密碼】：8y2c
 <br>【城通雲盤】：http://v.ctfile.com/info/9FK77962
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-05-10（HD）
@@ -38,6 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1aC1NV
 <br>【360雲盤】：http://www.linkbucks.com/w08s
 <br>【360密碼】：c70e
+<br>【百度雲盤】：http://adf.ly/1aCcL8
+<br>【百度雲盤】：http://www.linkbucks.com/wvNT
+<br>【百度密碼】：zx79
 <br>【城通雲盤】：http://v.ctfile.com/info/hNj77953
 
 <br>【節目名稱】：903 早霸王 2016-05-10（HD）
@@ -83,6 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1aCBNi
 <br>【360雲盤】：http://www.linkbucks.com/wwqa
 <br>【360密碼】：9db6
+<br>【百度雲盤】：http://adf.ly/1aCcXn
+<br>【百度雲盤】：http://www.linkbucks.com/wvLq
+<br>【百度密碼】：kimn
 <br>【城通雲盤】：http://v.ctfile.com/info/Zgm78391
 
 <br>【節目名稱】：881 人生交叉盤 2016-05-10（HD）
@@ -116,6 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1aCDvK
 <br>【360雲盤】：http://www.linkbucks.com/wtzS
 <br>【360密碼】：4619
+<br>【百度雲盤】：http://adf.ly/1aCc13
+<br>【百度雲盤】：http://www.linkbucks.com/wvo2
+<br>【百度密碼】：nwae
 <br>【城通雲盤】：http://v.ctfile.com/info/Stk78601
 
 <br>【節目名稱】：903 好出奇 2016-05-10（HD）
@@ -125,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1aCIJD
 <br>【360雲盤】：http://www.linkbucks.com/wred
 <br>【360密碼】：c562
+<br>【百度雲盤】：http://adf.ly/1aCcRQ
+<br>【百度雲盤】：http://www.linkbucks.com/wvMk
+<br>【百度密碼】：6t6t
 <br>【城通雲盤】：http://v.ctfile.com/info/b9K78709
 
 <br>【節目名稱】：903 檸檸檸檸檸 2016-05-10（HD）
@@ -134,6 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1aCPzG
 <br>【360雲盤】：http://www.linkbucks.com/w9UR
 <br>【360密碼】：e12b
+<br>【百度雲盤】：http://adf.ly/1aCcVx
+<br>【百度雲盤】：http://www.linkbucks.com/wvVu
+<br>【百度密碼】：h5th
 <br>【城通雲盤】：http://v.ctfile.com/info/jJU79000
 
 <br>【節目名稱】：903 今日正 2016-05-10（HD）
@@ -143,6 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1aCPxd
 <br>【360雲盤】：http://www.linkbucks.com/w9Ur
 <br>【360密碼】：2592
+<br>【百度雲盤】：http://adf.ly/1aCcTX
+<br>【百度雲盤】：http://www.linkbucks.com/wvMP
+<br>【百度密碼】：2y9q
 <br>【城通雲盤】：http://v.ctfile.com/info/8JE79003
 
 <br>【節目名稱】：881 人民大道中 2016-05-10（HD）
@@ -152,6 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1aCQ1a
 <br>【360雲盤】：http://www.linkbucks.com/w9UE
 <br>【360密碼】：040f
+<br>【百度雲盤】：http://adf.ly/1aCcOc
+<br>【百度雲盤】：http://www.linkbucks.com/wvWW
+<br>【百度密碼】：tnwk
 <br>【城通雲盤】：http://v.ctfile.com/info/SAX79006
 
 <br>【節目名稱】：881 杏林茶 2016-05-10（HD）
@@ -161,6 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1aCUFy
 <br>【360雲盤】：http://www.linkbucks.com/w73I
 <br>【360密碼】：5586
+<br>【百度雲盤】：http://adf.ly/1aCc7c
+<br>【百度雲盤】：http://www.linkbucks.com/wvZZ
+<br>【百度密碼】：6w9n
 <br>【城通雲盤】：http://v.ctfile.com/info/axi79159
 
 <br>【節目名稱】：903 集雜志 2016-05-10（HD）
@@ -170,6 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1aCUNG
 <br>【360雲盤】：http://www.linkbucks.com/w72h
 <br>【360密碼】：57fb
+<br>【百度雲盤】：http://adf.ly/1aCc4U
+<br>【百度雲盤】：http://www.linkbucks.com/wvnM
+<br>【百度密碼】：4pzw
 <br>【城通雲盤】：http://v.ctfile.com/info/5Ma79156
 
 <br>【節目名稱】：881 串 2016-05-10（HD）
@@ -179,4 +209,7 @@
 <br>【360雲盤】：http://adf.ly/1aCaRg
 <br>【360雲盤】：http://www.linkbucks.com/w42D
 <br>【360密碼】：88f3
+<br>【百度雲盤】：http://adf.ly/1aCbrl
+<br>【百度雲盤】：http://www.linkbucks.com/wveI
+<br>【百度密碼】：rjbi
 <br>【城通雲盤】：http://v.ctfile.com/info/58979324
