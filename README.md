@@ -60,3 +60,30 @@
 <br>【360雲盤】：http://www.linkbucks.com/w08T
 <br>【360密碼】：ecbc
 <br>【城通雲盤】：http://v.ctfile.com/info/RTZ77974
+
+<br>【節目名稱】：903 叱咤樂壇 2016-05-10（HD）
+<br>【節目主持】：謝茜嘉 | Colin
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1aCBNi
+<br>【360雲盤】：http://www.linkbucks.com/wwqa
+<br>【360密碼】：9db6
+<br>【城通雲盤】：http://v.ctfile.com/info/Zgm78391
+
+<br>【節目名稱】：881 人生交叉盤 2016-05-10（HD）
+<br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1aCBOi
+<br>【360雲盤】：http://www.linkbucks.com/ww2W
+<br>【360密碼】：dbe8
+<br>【城通雲盤】：http://v.ctfile.com/info/ugv78388
+
+<br>【節目名稱】：903 口水多過浪花 2016-05-10（HD）
+<br>【節目主持】：鄭裕玲 | 占 | Donald
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1aCBPp
+<br>【360雲盤】：http://www.linkbucks.com/ww06
+<br>【360密碼】：062a
+<br>【城通雲盤】：http://v.ctfile.com/info/QNf78385
