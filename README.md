@@ -153,3 +153,21 @@
 <br>【360雲盤】：http://www.linkbucks.com/w9UE
 <br>【360密碼】：040f
 <br>【城通雲盤】：http://v.ctfile.com/info/SAX79006
+
+<br>【節目名稱】：881 杏林茶 2016-05-10（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1aCUFy
+<br>【360雲盤】：http://www.linkbucks.com/w73I
+<br>【360密碼】：5586
+<br>【城通雲盤】：http://v.ctfile.com/info/axi79159
+
+<br>【節目名稱】：903 集雜志 2016-05-10（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1aCUNG
+<br>【360雲盤】：http://www.linkbucks.com/w72h
+<br>【360密碼】：57fb
+<br>【城通雲盤】：http://v.ctfile.com/info/5Ma79156
