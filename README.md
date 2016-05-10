@@ -14,6 +14,9 @@
 <br>【360雲盤】：http://adf.ly/1aC1LS
 <br>【360雲盤】：http://www.linkbucks.com/w1xe
 <br>【360密碼】：bdc8
+<br>【百度雲盤】：http://adf.ly/1aCSvz
+<br>【百度雲盤】：http://www.linkbucks.com/w8YY
+<br>【百度密碼】：qwev
 <br>【城通雲盤】：http://v.ctfile.com/info/O7O77959
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-05-10（HD）
@@ -23,6 +26,9 @@
 <br>【360雲盤】：http://adf.ly/1aC1Mb
 <br>【360雲盤】：http://www.linkbucks.com/w1nP
 <br>【360密碼】：dcef
+<br>【百度雲盤】：http://adf.ly/1aCNrV
+<br>【百度雲盤】：http://www.linkbucks.com/w9sy
+<br>【百度密碼】：n3vg
 <br>【城通雲盤】：http://v.ctfile.com/info/hOG77956
 
 <br>【節目名稱】：881 雲常開 2016-05-10（HD）
@@ -98,9 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1aCBPp
 <br>【360雲盤】：http://www.linkbucks.com/ww06
 <br>【360密碼】：062a
-<br>【百度雲盤】：http://adf.ly/1aCNrV
-<br>【百度雲盤】：http://www.linkbucks.com/w9sy
-<br>【百度密碼】：n3vg
+<br>【百度雲盤】：http://adf.ly/1aCSz3
+<br>【百度雲盤】：http://www.linkbucks.com/w8Xf
+<br>【百度密碼】：gcse
 <br>【城通雲盤】：http://v.ctfile.com/info/QNf78385
 
 <br>【節目名稱】：881 大玩派 2016-05-10（HD）
