@@ -141,3 +141,39 @@
 <br>【百度雲盤】：http://www.linkbucks.com/w60o
 <br>【百度密碼】：iwrd
 <br>【城通雲盤】：http://v.ctfile.com/info/XG281895
+
+<br>【節目名稱】：903 檸檸檸檸檸 2016-05-11（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：18:00 - 18:30
+<br>【檔案名稱】：Ning Ning Ning Ning Ning
+<br>【360雲盤】：http://adf.ly/1aDq8c
+<br>【360雲盤】：http://www.linkbucks.com/w4wL
+<br>【360密碼】：35a7
+<br>【百度雲盤】：http://adf.ly/1aDldk
+<br>【百度雲盤】：http://www.linkbucks.com/w61f
+<br>【百度密碼】：3vu8
+<br>【城通雲盤】：http://v.ctfile.com/info/4rH82162
+
+<br>【節目名稱】：903 今日正 2016-05-11（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1aDsjX
+<br>【360雲盤】：http://www.linkbucks.com/BSHtp
+<br>【360密碼】：8b73
+<br>【百度雲盤】：http://adf.ly/1aDslL
+<br>【百度雲盤】：http://www.linkbucks.com/BQuLv
+<br>【百度密碼】：pxvx
+<br>【城通雲盤】：http://v.ctfile.com/info/tmz82228
+
+<br>【節目名稱】：903 集雜志 2016-05-11（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1aDtew
+<br>【360雲盤】：http://www.linkbucks.com/xIov
+<br>【360密碼】：fd0e
+<br>【百度雲盤】：http://adf.ly/1aDtnr
+<br>【百度雲盤】：http://www.linkbucks.com/xIoB
+<br>【百度密碼】：9zi8
+<br>【城通雲盤】：http://v.ctfile.com/info/yWn82288
