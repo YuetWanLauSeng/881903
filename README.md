@@ -96,3 +96,12 @@
 <br>【360雲盤】：http://www.linkbucks.com/wwXx
 <br>【360密碼】：2c71
 <br>【城通雲盤】：http://v.ctfile.com/info/PO581472
+
+<br>【節目名稱】：881 大玩派 2016-05-11（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1aDgRR
+<br>【360雲盤】：http://www.linkbucks.com/w8uy
+<br>【360密碼】：27ea
+<br>【城通雲盤】：http://v.ctfile.com/info/nQm81751
