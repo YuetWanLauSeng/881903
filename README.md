@@ -141,3 +141,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wlGc
 <br>【百度密碼】：75eq
 <br>【城通雲盤】：http://v.ctfile.com/info/VPS84319
+
+<br>【節目名稱】：903 檸檸檸檸檸 2016-05-12（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：18:00 - 18:30
+<br>【檔案名稱】：Ning Ning Ning Ning Ning
+<br>【360雲盤】：http://adf.ly/1aF9Ol
+<br>【360雲盤】：http://www.linkbucks.com/owwc
+<br>【360密碼】：2d3a
+<br>【百度雲盤】：http://adf.ly/1aF9et
+<br>【百度雲盤】：http://www.linkbucks.com/s5ea
+<br>【百度密碼】：9n8p
+<br>【城通雲盤】：http://v.ctfile.com/info/ViF84367
