@@ -81,3 +81,39 @@
 <br>【百度雲盤】：http://www.linkbucks.com/xNr3
 <br>【百度密碼】：nnef
 <br>【城通雲盤】：http://v.ctfile.com/info/LOn86200
+
+<br>【節目名稱】：903 叱咤樂壇 2016-05-13（HD）
+<br>【節目主持】：謝茜嘉 | Colin
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1aGUjM
+<br>【360雲盤】：http://www.linkbucks.com/xSfv
+<br>【360密碼】：0c83
+<br>【百度雲盤】：http://adf.ly/1aGUwD
+<br>【百度雲盤】：http://www.linkbucks.com/xSe4
+<br>【百度密碼】：b9d8
+<br>【城通雲盤】：http://v.ctfile.com/info/l7x86527
+
+<br>【節目名稱】：881 人生交叉盤 2016-05-13（HD）
+<br>【節目主持】：陳永陸 | 陳慧儀 | 郭思治 | 何永宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1aGUkx
+<br>【360雲盤】：http://www.linkbucks.com/xSfi
+<br>【360密碼】：4bfc
+<br>【百度雲盤】：http://adf.ly/1aGUtk
+<br>【百度雲盤】：http://www.linkbucks.com/xSfA
+<br>【百度密碼】：bqy1
+<br>【城通雲盤】：http://v.ctfile.com/info/ScR86524
+
+<br>【節目名稱】：903 口水多過浪花 2016-05-13（HD）
+<br>【節目主持】：鄭裕玲 | 占 | Donald
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1aGUmI
+<br>【360雲盤】：http://www.linkbucks.com/xSfc
+<br>【360密碼】：ef76
+<br>【百度雲盤】：http://adf.ly/1aGVZu
+<br>【百度雲盤】：http://www.linkbucks.com/xSZo
+<br>【百度密碼】：5kef
+<br>【城通雲盤】：http://v.ctfile.com/info/2cs86521
