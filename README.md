@@ -141,3 +141,57 @@
 <br>【百度雲盤】：http://www.linkbucks.com/xRcD
 <br>【百度密碼】：ssy5
 <br>【城通雲盤】：http://v.ctfile.com/info/8op86767
+
+<br>【節目名稱】：903 檸檸檸檸檸 2016-05-13（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：18:00 - 18:30
+<br>【檔案名稱】：Ning Ning Ning Ning Ning
+<br>【360雲盤】：http://adf.ly/1aGwQh
+<br>【360雲盤】：http://www.linkbucks.com/xGm9
+<br>【360密碼】：95c4
+<br>【城通雲盤】：http://v.ctfile.com/info/VsN87835
+
+<br>【節目名稱】：903 今日正 2016-05-13（HD）
+<br>【節目主持】：梁文禮 | 麻利亞
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Make My Day
+<br>【360雲盤】：http://adf.ly/1aGwKz
+<br>【360雲盤】：http://www.linkbucks.com/xGny
+<br>【360密碼】：51c1
+<br>【城通雲盤】：http://v.ctfile.com/info/aSn87838
+
+<br>【節目名稱】：881 人民大道中 2016-05-13（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1aGwTB
+<br>【360雲盤】：http://www.linkbucks.com/xGmj
+<br>【360密碼】：faf7
+<br>【城通雲盤】：http://v.ctfile.com/info/T0T87832
+
+<br>【節目名稱】：881 杏林茶 2016-05-13（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1aGwXT
+<br>【360雲盤】：http://www.linkbucks.com/xGmA
+<br>【360密碼】：257c
+<br>【城通雲盤】：http://v.ctfile.com/info/EJ387826
+
+<br>【節目名稱】：903 集雜志 2016-05-13（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1aGwZp
+<br>【360雲盤】：http://www.linkbucks.com/xGl5
+<br>【360密碼】：9682
+<br>【城通雲盤】：http://v.ctfile.com/info/rQS87823
+
+<br>【節目名稱】：881 串 2016-05-13（HD）
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1aGwVK
+<br>【360雲盤】：http://www.linkbucks.com/xGmJ
+<br>【360密碼】：bbfb
+<br>【城通雲盤】：http://v.ctfile.com/info/XzG87829
