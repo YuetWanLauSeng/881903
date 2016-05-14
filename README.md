@@ -69,3 +69,147 @@
 <br>【360雲盤】：http://www.linkbucks.com/xoFy
 <br>【360密碼】：c75c
 <br>【城通雲盤】：http://v.ctfile.com/info/c8n89236
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-07（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aHqyL
+<br>【360雲盤】：http://www.linkbucks.com/xc7W
+<br>【360密碼】：aa0f
+<br>【百度雲盤】：http://adf.ly/1aHrIQ
+<br>【百度雲盤】：http://www.linkbucks.com/xc04
+<br>【百度密碼】：gem1
+<br>【城通雲盤】：http://v.ctfile.com/info/2GL88969
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-08（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aHqzf
+<br>【360雲盤】：http://www.linkbucks.com/xc68
+<br>【360密碼】：cdf8
+<br>【百度雲盤】：http://adf.ly/1aHrJy
+<br>【百度雲盤】：http://www.linkbucks.com/xc0g
+<br>【百度密碼】：hhqw
+<br>【城通雲盤】：http://v.ctfile.com/info/wps88972
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-09（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aHr17
+<br>【360雲盤】：http://www.linkbucks.com/xc65
+<br>【360密碼】：1f84
+<br>【百度雲盤】：http://adf.ly/1aHrFX
+<br>【百度雲盤】：http://www.linkbucks.com/xc3y
+<br>【百度密碼】：32vn
+<br>【城通雲盤】：http://v.ctfile.com/info/6LM88975
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-10（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aHr2m
+<br>【360雲盤】：http://www.linkbucks.com/xc6t
+<br>【360密碼】：27c6
+<br>【百度雲盤】：http://adf.ly/1aHrg8
+<br>【百度雲盤】：http://www.linkbucks.com/xcsd
+<br>【百度密碼】：du3f
+<br>【城通雲盤】：http://v.ctfile.com/info/t7e88981
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-11（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aHr43
+<br>【360雲盤】：http://www.linkbucks.com/xc6Z
+<br>【360密碼】：1dd4
+<br>【百度雲盤】：http://adf.ly/1aHrTL
+<br>【百度雲盤】：http://www.linkbucks.com/xcud
+<br>【百度密碼】：s5d5
+<br>【城通雲盤】：http://v.ctfile.com/info/uOw88984
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-12（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aHr5j
+<br>【360雲盤】：http://www.linkbucks.com/xc6M
+<br>【360密碼】：1a21
+<br>【百度雲盤】：http://adf.ly/1aHrPf
+<br>【百度雲盤】：http://www.linkbucks.com/xcvW
+<br>【百度密碼】：52b3
+<br>【城通雲盤】：http://v.ctfile.com/info/z4X88987
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-13（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aHr7s
+<br>【360雲盤】：http://www.linkbucks.com/xc5Z
+<br>【360密碼】：0730
+<br>【百度雲盤】：http://adf.ly/1aHrD8
+<br>【百度雲盤】：http://www.linkbucks.com/xc4E
+<br>【百度密碼】：n94v
+<br>【城通雲盤】：http://v.ctfile.com/info/ceA88990
+
+<br>【節目名稱】：903 有誰共鳴 2016-05-09（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1aHs0i
+<br>【360雲盤】：http://www.linkbucks.com/xcjc
+<br>【360密碼】：380f
+<br>【百度雲盤】：http://adf.ly/1aHsIj
+<br>【百度雲盤】：http://www.linkbucks.com/xcec
+<br>【百度密碼】：53z8
+<br>【城通雲盤】：http://v.ctfile.com/info/MTI89002
+
+<br>【節目名稱】：903 有誰共鳴 2016-05-10（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1aHs2d
+<br>【360雲盤】：http://www.linkbucks.com/xcia
+<br>【360密碼】：d8b3
+<br>【百度雲盤】：http://adf.ly/1aHsN7
+<br>【百度雲盤】：http://www.linkbucks.com/xccU
+<br>【百度密碼】：ug8a
+<br>【城通雲盤】：http://v.ctfile.com/info/5tG89005
+
+<br>【節目名稱】：903 有誰共鳴 2016-05-11（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1aHs5G
+<br>【360雲盤】：http://www.linkbucks.com/xciD
+<br>【360密碼】：e745
+<br>【百度雲盤】：http://adf.ly/1aHsMC
+<br>【百度雲盤】：http://www.linkbucks.com/xcdm
+<br>【百度密碼】：rcn8
+<br>【城通雲盤】：http://v.ctfile.com/info/Plp89008
+
+<br>【節目名稱】：903 有誰共鳴 2016-05-12（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1aHs6V
+<br>【360雲盤】：http://www.linkbucks.com/xch0
+<br>【360密碼】：0550
+<br>【百度雲盤】：http://adf.ly/1aHsKH
+<br>【百度雲盤】：http://www.linkbucks.com/xceM
+<br>【百度密碼】：txtg
+<br>【城通雲盤】：http://v.ctfile.com/info/Xit89011
+
+<br>【節目名稱】：903 有誰共鳴 2016-05-13（HD） 
+<br>【節目主持】：何利利 | 嘉賓主持 
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1aHs8U
+<br>【360雲盤】：http://www.linkbucks.com/xchW
+<br>【360密碼】：8f14
+<br>【百度雲盤】：http://adf.ly/1aHsHI
+<br>【百度雲盤】：http://www.linkbucks.com/xcfc
+<br>【百度密碼】：nvgm
+<br>【城通雲盤】：http://v.ctfile.com/info/HhF89014    
