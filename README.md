@@ -176,6 +176,9 @@
 <br>【360雲盤】：http://adf.ly/1aGwXT
 <br>【360雲盤】：http://www.linkbucks.com/xGmA
 <br>【360密碼】：257c
+<br>【百度雲盤】：http://adf.ly/1aHf3D
+<br>【百度雲盤】：http://www.linkbucks.com/xgkw
+<br>【百度密碼】：ruhq
 <br>【城通雲盤】：http://v.ctfile.com/info/EJ387826
 
 <br>【節目名稱】：903 集雜志 2016-05-13（HD）
@@ -185,6 +188,9 @@
 <br>【360雲盤】：http://adf.ly/1aGwZp
 <br>【360雲盤】：http://www.linkbucks.com/xGl5
 <br>【360密碼】：9682
+<br>【百度雲盤】：http://adf.ly/1aHexB
+<br>【百度雲盤】：http://www.linkbucks.com/xglR
+<br>【百度密碼】：3tec
 <br>【城通雲盤】：http://v.ctfile.com/info/rQS87823
 
 <br>【節目名稱】：881 串 2016-05-13（HD）
@@ -203,6 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1aH0lO
 <br>【360雲盤】：http://www.linkbucks.com/xGFN
 <br>【360密碼】：e397
+<br>【百度雲盤】：http://adf.ly/1aHetS
+<br>【百度雲盤】：http://www.linkbucks.com/xgls
+<br>【百度密碼】：dbhu
 <br>【城通雲盤】：http://v.ctfile.com/info/lqM87916
 
 <br>【節目名稱】：881 書.情.歌 2016-05-13（HD）
@@ -212,6 +221,9 @@
 <br>【360雲盤】：http://adf.ly/1aH0ji
 <br>【360雲盤】：http://www.linkbucks.com/xGFT
 <br>【360密碼】：2b91
+<br>【百度雲盤】：http://adf.ly/1aHf5m
+<br>【百度雲盤】：http://www.linkbucks.com/xgig
+<br>【百度密碼】：jfgr
 <br>【城通雲盤】：http://v.ctfile.com/info/QVe87922
 
 <br>【節目名稱】：881 光明頂 2016-05-13（HD）
