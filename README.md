@@ -209,6 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1aGwVK
 <br>【360雲盤】：http://www.linkbucks.com/xGmJ
 <br>【360密碼】：bbfb
+<br>【百度雲盤】：http://adf.ly/1aHfIW
+<br>【百度雲盤】：http://www.linkbucks.com/xggq
+<br>【百度密碼】：vf6s
 <br>【城通雲盤】：http://v.ctfile.com/info/XzG87829
 
 <br>【節目名稱】：903 雲妮鍾情 2016-05-13（HD）
