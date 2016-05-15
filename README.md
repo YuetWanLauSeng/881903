@@ -240,3 +240,39 @@
 <br>【360雲盤】：http://www.linkbucks.com/xWgg
 <br>【360密碼】：c822
 <br>【城通雲盤】：http://v.ctfile.com/info/r3R89857
+
+<br>【節目名稱】：881 雷霆音樂圈 2016-05-14（HD）
+<br>【節目主持】：楊美琪
+<br>【節目時間】：20:00 - 23:00
+<br>【檔案名稱】：881 Music Station
+<br>【360雲盤】：http://adf.ly/1aJ4GF
+<br>【360雲盤】：http://www.linkbucks.com/xaMT
+<br>【360密碼】：da27
+<br>【城通雲盤】：http://v.ctfile.com/info/o2A90430
+
+<br>【節目名稱】：903 公子會 2016-05-14（HD）
+<br>【節目主持】：森美
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The Playtoy Mansion
+<br>【360雲盤】：http://adf.ly/1aJ4Kx
+<br>【360雲盤】：http://www.linkbucks.com/xaL5
+<br>【360密碼】：b6a8
+<br>【城通雲盤】：http://v.ctfile.com/info/yd490433
+
+<br>【節目名稱】：881 發式生活 2016-05-14（HD） 
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1aJ4Hg
+<br>【360雲盤】：http://www.linkbucks.com/xaMI
+<br>【360密碼】：7b86
+<br>【城通雲盤】：http://v.ctfile.com/info/TKm90427
+
+<br>【節目名稱】：903 皇牌出場 2016-05-14（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1aJ4JF
+<br>【360雲盤】：http://www.linkbucks.com/xaMB
+<br>【360密碼】：b73b
+<br>【城通雲盤】：http://v.ctfile.com/info/5TG90436
