@@ -114,3 +114,13 @@
 <br>【360雲盤】：http://www.linkbucks.com/xzSa
 <br>【360密碼】：739a
 <br>【城通雲盤】：http://v.ctfile.com/info/oPG94744
+
+<br>【節目名稱】：903 毒檸王國 2016-05-16（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：毒檸王國
+<br>【360雲盤】：http://adf.ly/1aKwuE
+<br>【360雲盤】：http://www.linkbucks.com/xy39
+<br>【360密碼】：80af
+<br>【城通雲盤】：http://v.ctfile.com/info/kR494804
+
