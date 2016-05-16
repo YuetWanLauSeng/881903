@@ -23,6 +23,7 @@
 <br>【360雲盤】：http://adf.ly/1aKi00
 <br>【360雲盤】：http://www.linkbucks.com/x2x7
 <br>【360密碼】：641d
+<br>【城通雲盤】：http://v.ctfile.com/info/cJg94129
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-05-16（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
