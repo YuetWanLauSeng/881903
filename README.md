@@ -201,3 +201,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/xuhO
 <br>【百度密碼】：133f
 <br>【城通雲盤】：http://v.ctfile.com/info/lsE95113
+
+<br>【節目名稱】：881 串 2016-05-16（HD）
+<br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1aLFzh
+<br>【360雲盤】：http://www.linkbucks.com/x9Fm
+<br>【360密碼】：5cab
+<br>【百度雲盤】：http://adf.ly/1aLG5v
+<br>【百度雲盤】：http://www.linkbucks.com/x9FG
+<br>【百度密碼】：32qv
+<br>【城通雲盤】：http://v.ctfile.com/info/TcI95398
