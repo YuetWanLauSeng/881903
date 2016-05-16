@@ -29,9 +29,9 @@
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）
-<br>【360雲盤】：http://adf.ly/1aKi2U
-<br>【360雲盤】：http://www.linkbucks.com/x2xZ
-<br>【360密碼】：8085
+<br>【360雲盤】：http://adf.ly/1aKve8
+<br>【360雲盤】：http://www.linkbucks.com/xzMK
+<br>【360密碼】：e5f3
 <br>【城通雲盤】：http://v.ctfile.com/info/ZNb94003
 
 <br>【節目名稱】：881 雲常開 2016-05-16（HD）
