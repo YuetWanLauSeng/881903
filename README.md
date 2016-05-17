@@ -257,6 +257,9 @@
 <br>【360雲盤】：http://adf.ly/1aLwi3
 <br>【360雲盤】：http://www.linkbucks.com/x2Dk
 <br>【360密碼】：0f73
+<br>【百度雲盤】：http://adf.ly/1aLxD8
+<br>【百度雲盤】：http://www.linkbucks.com/x17Y
+<br>【百度密碼】：s8yk
 <br>【城通雲盤】：http://v.ctfile.com/info/mA096031
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-05-16（HD）
