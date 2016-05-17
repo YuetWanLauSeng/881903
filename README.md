@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1aM72H
 <br>【360雲盤】：http://www.linkbucks.com/xzJB
 <br>【360密碼】：12e9
+<br>【百度雲盤】：http://adf.ly/1aMWLC
+<br>【百度雲盤】：http://www.linkbucks.com/x3tL
+<br>【百度密碼】：pbtf
 <br>【城通雲盤】：http://v.ctfile.com/info/qy096544
 
 <br>【節目名稱】：903 早安，同學早! 2016-05-17（HD）
@@ -14,6 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1aM6yo
 <br>【360雲盤】：http://www.linkbucks.com/xzJe
 <br>【360密碼】：7c58
+<br>【百度雲盤】：http://adf.ly/1aMWd0
+<br>【百度雲盤】：http://www.linkbucks.com/x3pH
+<br>【百度密碼】：7553
 <br>【城通雲盤】：http://v.ctfile.com/info/al996556
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-05-17（HD）
@@ -23,6 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1aM6zo
 <br>【360雲盤】：http://www.linkbucks.com/xzJc
 <br>【360密碼】：d39a
+<br>【百度雲盤】：http://adf.ly/1aMWYb
+<br>【百度雲盤】：http://www.linkbucks.com/x3pY
+<br>【百度密碼】：7wc2
 <br>【城通雲盤】：http://v.ctfile.com/info/51p96553
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-05-17（HD）
@@ -32,6 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1aM710
 <br>【360雲盤】：http://www.linkbucks.com/xzJL
 <br>【360密碼】：a32c
+<br>【百度雲盤】：http://adf.ly/1aMWUw
+<br>【百度雲盤】：http://www.linkbucks.com/x3pw
+<br>【百度密碼】：d2du
 <br>【城通雲盤】：http://v.ctfile.com/info/d3l96550
 
 <br>【節目名稱】：881 雲常開 2016-05-17（HD）
@@ -50,6 +62,9 @@
 <br>【360雲盤】：http://adf.ly/1aM74I
 <br>【360雲盤】：http://www.linkbucks.com/xzIu
 <br>【360密碼】：6bbb
+<br>【百度雲盤】：http://adf.ly/1aMWry
+<br>【百度雲盤】：http://www.linkbucks.com/x3ml
+<br>【百度密碼】：jsrh
 <br>【城通雲盤】：http://v.ctfile.com/info/zYE96559
 
 <br>【節目名稱】：903 早霸王 2016-05-17（HD）
@@ -59,6 +74,9 @@
 <br>【360雲盤】：http://adf.ly/1aM759
 <br>【360雲盤】：http://www.linkbucks.com/xzGh
 <br>【360密碼】：7f3e
+<br>【百度雲盤】：http://adf.ly/1aMWS5
+<br>【百度雲盤】：http://www.linkbucks.com/x3qJ
+<br>【百度密碼】：9ad5
 <br>【城通雲盤】：http://v.ctfile.com/info/D5V96571
 
 <br>【節目名稱】：881 十八樓C座 2016-05-17（HD）
@@ -68,6 +86,9 @@
 <br>【360雲盤】：http://adf.ly/1aM76s
 <br>【360雲盤】：http://www.linkbucks.com/xzGY
 <br>【360密碼】：204a
+<br>【百度雲盤】：http://adf.ly/1aMWvj
+<br>【百度雲盤】：http://www.linkbucks.com/x3mf
+<br>【百度密碼】：7a27
 <br>【城通雲盤】：http://v.ctfile.com/info/AjQ96568
 
 <br>【節目名稱】：903 叱咤樂壇 2016-05-17（HD）
@@ -77,6 +98,10 @@
 <br>【360雲盤】：http://adf.ly/1aMFtG
 <br>【360雲盤】：http://www.linkbucks.com/xvjx
 <br>【360密碼】：6b98
+<br>【百度雲盤】：http://adf.ly/1aMWks
+<br>【百度雲盤】：http://www.linkbucks.com/x3oP
+<br>【百度密碼】：2bs5
+<br>【城通雲盤】：http://v.ctfile.com/info/2Ss97204
 
 <br>【節目名稱】：881 人生交叉盤 2016-05-17（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -85,6 +110,9 @@
 <br>【360雲盤】：http://adf.ly/1aMFuq
 <br>【360雲盤】：http://www.linkbucks.com/xvcH
 <br>【360密碼】：15bb
+<br>【百度雲盤】：http://adf.ly/1aMWhg
+<br>【百度雲盤】：http://www.linkbucks.com/x3om
+<br>【百度密碼】：qvyu
 <br>【城通雲盤】：http://v.ctfile.com/info/OFC97201
 
 <br>【節目名稱】：903 關公災難 2016-05-17（HD）
