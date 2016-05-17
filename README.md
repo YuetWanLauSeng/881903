@@ -221,6 +221,9 @@
 <br>【360雲盤】：http://adf.ly/1aLMxp
 <br>【360雲盤】：http://www.linkbucks.com/x5y8
 <br>【360密碼】：4729
+<br>【百度雲盤】：http://adf.ly/1aLx4V
+<br>【百度雲盤】：http://www.linkbucks.com/x19J
+<br>【百度密碼】：qxm3
 <br>【城通雲盤】：http://v.ctfile.com/info/MP095563
 
 <br>【節目名稱】：903 雲妮鍾情 2016-05-16（HD）
@@ -230,6 +233,9 @@
 <br>【360雲盤】：http://adf.ly/1aLN0b
 <br>【360雲盤】：http://www.linkbucks.com/x5yo
 <br>【360密碼】：7e92
+<br>【百度雲盤】：http://adf.ly/1aLwtg
+<br>【百度雲盤】：http://www.linkbucks.com/x2Al
+<br>【百度密碼】：8f8d
 <br>【城通雲盤】：http://v.ctfile.com/info/XOy95557
 
 <br>【節目名稱】：881 光明頂 2016-05-16（HD）
@@ -260,6 +266,9 @@
 <br>【360雲盤】：http://adf.ly/1aLwgj
 <br>【360雲盤】：http://www.linkbucks.com/x2Ec
 <br>【360密碼】：43a8
+<br>【百度雲盤】：http://adf.ly/1aLx2o
+<br>【百度雲盤】：http://www.linkbucks.com/x19S
+<br>【百度密碼】：36ha
 <br>【城通雲盤】：http://v.ctfile.com/info/gcz96037
 
 <br>【節目名稱】：903 廣東爆谷 2016-05-16（HD）
@@ -269,4 +278,7 @@
 <br>【360雲盤】：http://adf.ly/1aLwfw
 <br>【360雲盤】：http://www.linkbucks.com/x2gS
 <br>【360密碼】：173f
+<br>【百度雲盤】：http://adf.ly/1aLx0f
+<br>【百度雲盤】：http://www.linkbucks.com/x19l
+<br>【百度密碼】：ukiv
 <br>【城通雲盤】：http://v.ctfile.com/info/15E96040
