@@ -177,3 +177,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/yG55
 <br>【百度密碼】：arni
 <br>【城通雲盤】：http://v.ctfile.com/info/jkS102733
+
+<br>【節目名稱】：903 雲妮鍾情 2016-05-18（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1aOZP6
+<br>【360雲盤】：http://www.linkbucks.com/yGwf
+<br>【360密碼】：714b
+<br>【百度雲盤】：http://adf.ly/1aOYZO
+<br>【百度雲盤】：http://www.linkbucks.com/yG9K
+<br>【百度密碼】：836x
+<br>【城通雲盤】：http://v.ctfile.com/info/idm102748
