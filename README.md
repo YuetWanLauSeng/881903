@@ -165,3 +165,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/yOwO
 <br>【百度密碼】：sfyf
 <br>【城通雲盤】：http://v.ctfile.com/info/MYQ101398
+
+<br>【節目名稱】：903 生活日常 2016-05-18（HD）
+<br>【節目主持】：細So
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】： My Daily Life
+<br>【360雲盤】：http://adf.ly/1aOYh0
+<br>【360雲盤】：http://www.linkbucks.com/yG5A
+<br>【360密碼】：9cd2
+<br>【百度雲盤】：http://adf.ly/1aOYd8
+<br>【百度雲盤】：http://www.linkbucks.com/yG55
+<br>【百度密碼】：arni
+<br>【城通雲盤】：http://v.ctfile.com/info/jkS102733
