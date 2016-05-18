@@ -257,6 +257,9 @@
 <br>【360雲盤】：http://adf.ly/1aNSbf
 <br>【360雲盤】：http://www.linkbucks.com/x5Eb
 <br>【360密碼】：11e1
+<br>【百度雲盤】：http://adf.ly/1aNUa7
+<br>【百度雲盤】：http://www.linkbucks.com/BT81a
+<br>【百度密碼】：763m
 <br>【城通雲盤】：http://v.ctfile.com/info/4qb99085
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-05-17（HD）
@@ -266,6 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1aNSaD
 <br>【360雲盤】：http://www.linkbucks.com/x5GB
 <br>【360密碼】：8edb
+<br>【百度雲盤】：http://adf.ly/1aNUYB
+<br>【百度雲盤】：http://www.linkbucks.com/BT8Mq
+<br>【百度密碼】：fpx7
 <br>【城通雲盤】：http://v.ctfile.com/info/YUK99091
 
 <br>【節目名稱】：903 廣東爆谷 2016-05-17（HD）
@@ -275,4 +281,7 @@
 <br>【360雲盤】：http://adf.ly/1aNSKW
 <br>【360雲盤】：http://www.linkbucks.com/x5Hg
 <br>【360密碼】：c2e0
+<br>【百度雲盤】：http://adf.ly/1aNUdb
+<br>【百度雲盤】：http://www.linkbucks.com/BUB4V
+<br>【百度密碼】：3c4a
 <br>【城通雲盤】：http://v.ctfile.com/info/rfW99094
