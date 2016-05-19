@@ -237,3 +237,12 @@
 <br>【百度雲盤】：http://www.linkbucks.com/yji1
 <br>【百度密碼】：5m6j
 <br>【城通雲盤】：http://v.ctfile.com/info/qMT105649
+
+<br>【節目名稱】：881 光明頂 2016-05-19（HD）
+<br>【節目主持】：陶傑 | 嘉賓主持
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1aQMR6
+<br>【360雲盤】：http://www.linkbucks.com/yjY9
+<br>【360密碼】：8794
+<br>【城通雲盤】：http://v.ctfile.com/info/tuR105670
