@@ -69,3 +69,21 @@
 <br>【百度雲盤】：http://www.linkbucks.com/yQNE
 <br>【百度密碼】：29bs
 <br>【城通雲盤】：http://v.ctfile.com/info/Dbb104044
+
+<br>【節目名稱】：903 早霸王 2016-05-19（HD）
+<br>【節目主持】：森美 | 小儀
+<br>【節目時間】：10:00 - 12:00
+<br>【檔案名稱】：Good Morning King
+<br>【360雲盤】：http://adf.ly/1aPlnd
+<br>【360雲盤】：http://www.linkbucks.com/yHJN
+<br>【360密碼】：2c29
+<br>【城通雲盤】：http://v.ctfile.com/info/LXW104956
+
+<br>【節目名稱】：881 十八樓C座 2016-05-19（HD）
+<br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C
+<br>【360雲盤】：http://adf.ly/1aPlk2
+<br>【360雲盤】：http://www.linkbucks.com/yHJg
+<br>【360密碼】：cfce
+<br>【城通雲盤】：http://v.ctfile.com/info/uQb104959
