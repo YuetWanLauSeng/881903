@@ -114,3 +114,30 @@
 <br>【360雲盤】：http://www.linkbucks.com/yHI9
 <br>【360密碼】：f4f6
 <br>【城通雲盤】：http://v.ctfile.com/info/4TE104953
+
+<br>【節目名稱】：881 大玩派 2016-05-19（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1aPpMG
+<br>【360雲盤】：http://www.linkbucks.com/yGwt
+<br>【360密碼】：22d0
+<br>【城通雲盤】：http://v.ctfile.com/info/pAH105004
+
+<br>【節目名稱】：903 口水多過浪花 2016-05-19（HD）
+<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1aPpNv
+<br>【360雲盤】：http://www.linkbucks.com/yGwh
+<br>【360密碼】：75e0
+<br>【城通雲盤】：http://v.ctfile.com/info/T7j105001
+
+<br>【節目名稱】：903 毒檸王國 2016-05-19（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Dokureioukoku
+<br>【360雲盤】：http://adf.ly/1aPpPk
+<br>【360雲盤】：http://www.linkbucks.com/yGwc
+<br>【360密碼】：6704
+<br>【城通雲盤】：http://v.ctfile.com/info/hmp105007
