@@ -53,7 +53,7 @@
 <br>【360雲盤】：http://adf.ly/1aPRUp
 <br>【360雲盤】：http://www.linkbucks.com/yQNn
 <br>【360密碼】：6760
-<br>【百度雲盤】：http://pan.baidu.com/s/1o8timJg
+<br>【百度雲盤】：http://adf.ly/1aPRaN
 <br>【百度雲盤】：http://www.linkbucks.com/yQM4
 <br>【百度密碼】：kavu
 <br>【城通雲盤】：http://v.ctfile.com/info/dlH103990
