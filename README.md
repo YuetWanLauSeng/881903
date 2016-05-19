@@ -95,6 +95,7 @@
 <br>【360雲盤】：http://adf.ly/1aPliO
 <br>【360雲盤】：http://www.linkbucks.com/yHJr
 <br>【360密碼】：5dd6
+<br>【城通雲盤】：http://v.ctfile.com/info/3d7104971
 
 <br>【節目名稱】：881 人生交叉盤 2016-05-19（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -103,6 +104,7 @@
 <br>【360雲盤】：http://adf.ly/1aPllt
 <br>【360雲盤】：http://www.linkbucks.com/yHJb
 <br>【360密碼】：752f
+<br>【城通雲盤】：http://v.ctfile.com/info/nE7104968
 
 <br>【節目名稱】：903 關公災難 2016-05-19（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -111,3 +113,4 @@
 <br>【360雲盤】：http://adf.ly/1aPlq5
 <br>【360雲盤】：http://www.linkbucks.com/yHI9
 <br>【360密碼】：f4f6
+<br>【城通雲盤】：http://v.ctfile.com/info/4TE104953
