@@ -185,6 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1aQ9zg
 <br>【360雲盤】：http://www.linkbucks.com/yV1Y
 <br>【360密碼】：1c5a
+<br>【百度雲盤】：http://adf.ly/1aQL6Y
+<br>【百度雲盤】：http://www.linkbucks.com/yjhu
+<br>【百度密碼】：xw1n
 <br>【城通雲盤】：http://v.ctfile.com/info/62M105454
 
 <br>【節目名稱】：903 生活日常 2016-05-19（HD）
@@ -194,4 +197,43 @@
 <br>【360雲盤】：http://adf.ly/1aQ9sQ
 <br>【360雲盤】：http://www.linkbucks.com/yV11
 <br>【360密碼】：84c7
+<br>【百度雲盤】：http://adf.ly/1aQL2w
+<br>【百度雲盤】：http://www.linkbucks.com/yjh6
+<br>【百度密碼】：x78m
 <br>【城通雲盤】：http://v.ctfile.com/info/6rN105457
+
+<br>【節目名稱】：881 串 2016-05-19（HD）
+<br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1aQKdW
+<br>【360雲盤】：http://www.linkbucks.com/yjlN
+<br>【360密碼】：f4f3
+<br>【百度雲盤】：http://adf.ly/1aQL12
+<br>【百度雲盤】：http://www.linkbucks.com/yjiQ
+<br>【百度密碼】：mctq
+<br>【城通雲盤】：http://v.ctfile.com/info/k3q105652
+
+<br>【節目名稱】：881 書.情.歌 2016-05-19（HD）
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time
+<br>【360雲盤】：http://adf.ly/1aQKk3
+<br>【360雲盤】：http://www.linkbucks.com/yjkz
+<br>【360密碼】：6eb9
+<br>【百度雲盤】：http://adf.ly/1aQKyd
+<br>【百度雲盤】：http://www.linkbucks.com/yjii
+<br>【百度密碼】：adyi
+<br>【城通雲盤】：http://v.ctfile.com/info/eoO105655
+
+<br>【節目名稱】：903 雲妮鍾情 2016-05-19（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1aQKlo
+<br>【360雲盤】：http://www.linkbucks.com/yjkf
+<br>【360密碼】：88f5
+<br>【百度雲盤】：http://adf.ly/1aQKvc
+<br>【百度雲盤】：http://www.linkbucks.com/yji1
+<br>【百度密碼】：5m6j
+<br>【城通雲盤】：http://v.ctfile.com/info/qMT105649
