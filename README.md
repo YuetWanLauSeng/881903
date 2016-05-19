@@ -201,3 +201,30 @@
 <br>【百度雲盤】：http://www.linkbucks.com/yGsx
 <br>【百度密碼】：jnim
 <br>【城通雲盤】：http://v.ctfile.com/info/KKY102760
+
+<br>【節目名稱】：903 聖艾粒忌廉夜校 2016-05-18（HD）
+<br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：St. ILUB Gay Lim Yeah How
+<br>【360雲盤】：http://adf.ly/1aPBQx
+<br>【360雲盤】：http://www.linkbucks.com/yJiF
+<br>【360密碼】：131d
+<br>【城通雲盤】：http://v.ctfile.com/info/MMS103171
+
+<br>【節目名稱】：881 月光光呵呵呵 2016-05-18（HD）
+<br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
+<br>【節目時間】：00:30 - 01:30
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss
+<br>【360雲盤】：http://adf.ly/1aPBP5
+<br>【360雲盤】：http://www.linkbucks.com/yJiQ
+<br>【360密碼】：f48b
+<br>【城通雲盤】：http://v.ctfile.com/info/lLg103141
+
+<br>【節目名稱】：903 廣東爆谷 2016-05-18（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1aPBMW
+<br>【360雲盤】：http://www.linkbucks.com/yJii
+<br>【360密碼】：c821
+<br>【城通雲盤】：http://v.ctfile.com/info/Mhd103144
