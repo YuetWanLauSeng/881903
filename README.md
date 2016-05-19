@@ -165,3 +165,12 @@
 <br>【百度雲盤】：http://www.linkbucks.com/yWce
 <br>【百度密碼】：4xqv
 <br>【城通雲盤】：http://v.ctfile.com/info/hmp105007
+
+<br>【節目名稱】：881 人民大道中 2016-05-19（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1aQ0Zu
+<br>【360雲盤】：http://www.linkbucks.com/BaB
+<br>【360密碼】：066c
+<br>【城通雲盤】：http://v.ctfile.com/info/l3X105217
