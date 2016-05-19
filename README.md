@@ -173,4 +173,7 @@
 <br>【360雲盤】：http://adf.ly/1aQ0Zu
 <br>【360雲盤】：http://www.linkbucks.com/BaB
 <br>【360密碼】：066c
+<br>【百度雲盤】：http://adf.ly/1aQ2kF
+<br>【百度雲盤】：http://www.linkbucks.com/yaZu
+<br>【百度密碼】：89r4
 <br>【城通雲盤】：http://v.ctfile.com/info/l3X105217
