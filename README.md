@@ -77,6 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1aPlnd
 <br>【360雲盤】：http://www.linkbucks.com/yHJN
 <br>【360密碼】：2c29
+<br>【百度雲盤】：http://adf.ly/1aPy37
+<br>【百度雲盤】：http://www.linkbucks.com/yWYJ
+<br>【百度密碼】：xgqe
 <br>【城通雲盤】：http://v.ctfile.com/info/LXW104956
 
 <br>【節目名稱】：881 十八樓C座 2016-05-19（HD）
@@ -86,6 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1aPlk2
 <br>【360雲盤】：http://www.linkbucks.com/yHJg
 <br>【360密碼】：cfce
+<br>【百度雲盤】：http://adf.ly/1aPyDP
+<br>【百度雲盤】：http://www.linkbucks.com/yWIa
+<br>【百度密碼】：t58t
 <br>【城通雲盤】：http://v.ctfile.com/info/uQb104959
 
 <br>【節目名稱】：903 叱咤樂壇 2016-05-19（HD）
@@ -95,6 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1aPliO
 <br>【360雲盤】：http://www.linkbucks.com/yHJr
 <br>【360密碼】：5dd6
+<br>【百度雲盤】：http://adf.ly/1aPy7N
+<br>【百度雲盤】：http://www.linkbucks.com/yWTV
+<br>【百度密碼】：7urz
 <br>【城通雲盤】：http://v.ctfile.com/info/3d7104971
 
 <br>【節目名稱】：881 人生交叉盤 2016-05-19（HD）
@@ -104,6 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1aPllt
 <br>【360雲盤】：http://www.linkbucks.com/yHJb
 <br>【360密碼】：752f
+<br>【百度雲盤】：http://adf.ly/1aPyAh
+<br>【百度雲盤】：http://www.linkbucks.com/yWKI
+<br>【百度密碼】：68tn
 <br>【城通雲盤】：http://v.ctfile.com/info/nE7104968
 
 <br>【節目名稱】：903 關公災難 2016-05-19（HD）
@@ -113,6 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1aPlq5
 <br>【360雲盤】：http://www.linkbucks.com/yHI9
 <br>【360密碼】：f4f6
+<br>【百度雲盤】：http://adf.ly/1aPxq1
+<br>【百度雲盤】：http://www.linkbucks.com/yWt1
+<br>【百度密碼】：jbhf
 <br>【城通雲盤】：http://v.ctfile.com/info/4TE104953
 
 <br>【節目名稱】：881 大玩派 2016-05-19（HD）
@@ -122,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1aPpMG
 <br>【360雲盤】：http://www.linkbucks.com/yGwt
 <br>【360密碼】：22d0
+<br>【百度雲盤】：http://adf.ly/1aPxt5
+<br>【百度雲盤】：http://www.linkbucks.com/yWh4
+<br>【百度密碼】：3jq5
 <br>【城通雲盤】：http://v.ctfile.com/info/pAH105004
 
 <br>【節目名稱】：903 口水多過浪花 2016-05-19（HD）
@@ -131,6 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1aPpNv
 <br>【360雲盤】：http://www.linkbucks.com/yGwh
 <br>【360密碼】：75e0
+<br>【百度雲盤】：http://adf.ly/1aPxio
+<br>【百度雲盤】：http://www.linkbucks.com/yX03
+<br>【百度密碼】：8kru
 <br>【城通雲盤】：http://v.ctfile.com/info/T7j105001
 
 <br>【節目名稱】：903 毒檸王國 2016-05-19（HD）
@@ -140,4 +161,7 @@
 <br>【360雲盤】：http://adf.ly/1aPpPk
 <br>【360雲盤】：http://www.linkbucks.com/yGwc
 <br>【360密碼】：6704
+<br>【百度雲盤】：http://adf.ly/1aPxwc
+<br>【百度雲盤】：http://www.linkbucks.com/yWce
+<br>【百度密碼】：4xqv
 <br>【城通雲盤】：http://v.ctfile.com/info/hmp105007
