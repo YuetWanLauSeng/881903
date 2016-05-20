@@ -165,3 +165,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/wGAs
 <br>【百度密碼】：id43
 <br>【城通雲盤】：http://v.ctfile.com/info/FMl107995
+
+<br>【節目名稱】：903 集雜志 2016-05-20（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1aRmkb
+<br>【360雲盤】：http://www.linkbucks.com/PtVR
+<br>【360密碼】：5cff
+<br>【百度雲盤】：http://adf.ly/1aRnBJ
+<br>【百度雲盤】：http://www.linkbucks.com/yi2A
+<br>【百度密碼】：yt3y
+<br>【城通雲盤】：http://v.ctfile.com/info/YkE108172
