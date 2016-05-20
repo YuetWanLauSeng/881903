@@ -161,4 +161,7 @@
 <br>【360雲盤】：http://adf.ly/1aRgzq
 <br>【360雲盤】：http://www.linkbucks.com/xOSP
 <br>【360密碼】：0689
+<br>【百度雲盤】：http://adf.ly/1aRhoA
+<br>【百度雲盤】：http://www.linkbucks.com/wGAs
+<br>【百度密碼】：id43
 <br>【城通雲盤】：http://v.ctfile.com/info/FMl107995
