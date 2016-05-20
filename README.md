@@ -197,6 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1aRvV7
 <br>【360雲盤】：http://www.linkbucks.com/yhh6
 <br>【360密碼】：1844
+<br>【百度雲盤】：http://adf.ly/1aS1LF
+<br>【百度雲盤】：http://www.linkbucks.com/yfn1
+<br>【百度密碼】：ukcx
 <br>【城通雲盤】：http://v.ctfile.com/info/5on108502
 
 <br>【節目名稱】：903 生活日常 2016-05-20（HD）
@@ -206,6 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1aS0oW
 <br>【360雲盤】：http://www.linkbucks.com/yfs7
 <br>【360密碼】：6854
+<br>【百度雲盤】：http://adf.ly/1aS1Vu
+<br>【百度雲盤】：http://www.linkbucks.com/yfmF
+<br>【百度密碼】：qnrk
 <br>【城通雲盤】：http://v.ctfile.com/info/yHI108718
 
 <br>【節目名稱】：881 串 2016-05-20（HD）
@@ -215,4 +221,7 @@
 <br>【360雲盤】：http://adf.ly/1aS0tg
 <br>【360雲盤】：http://www.linkbucks.com/yfqM
 <br>【360密碼】：425f
+<br>【百度雲盤】：http://adf.ly/1aS1O6
+<br>【百度雲盤】：http://www.linkbucks.com/yfnC
+<br>【百度密碼】：jxaf
 <br>【城通雲盤】：http://v.ctfile.com/info/lFE108715
