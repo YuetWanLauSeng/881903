@@ -105,3 +105,27 @@
 <br>【百度雲盤】：http://www.linkbucks.com/yXWS
 <br>【百度密碼】：456g
 <br>【城通雲盤】：http://v.ctfile.com/info/7k7107002
+
+<br>【節目名稱】：881 人生交叉盤 2016-05-20（HD）
+<br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1aRVLz
+<br>【360雲盤】：http://www.linkbucks.com/yWzu
+<br>【360密碼】：cb44
+<br>【百度雲盤】：http://adf.ly/1aRVzU
+<br>【百度雲盤】：http://www.linkbucks.com/yWt6
+<br>【百度密碼】：5bbb
+<br>【城通雲盤】：http://v.ctfile.com/info/Xya107131
+
+<br>【節目名稱】：903 關公災難 2016-05-20（HD）
+<br>【節目主持】：劉翁 | 王迪詩
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：PR
+<br>【360雲盤】：http://adf.ly/1aRVNJ
+<br>【360雲盤】：http://www.linkbucks.com/yWzm
+<br>【360密碼】：bf86
+<br>【百度雲盤】：http://adf.ly/1aRVy9
+<br>【百度雲盤】：http://www.linkbucks.com/yWt9
+<br>【百度密碼】：231m
+<br>【城通雲盤】：http://v.ctfile.com/info/x3G107128
