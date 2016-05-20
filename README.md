@@ -137,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1aRf2J
 <br>【360雲盤】：http://www.linkbucks.com/xr6k
 <br>【360密碼】：0b65
+<br>【百度雲盤】：http://adf.ly/1aRh2c
+<br>【百度雲盤】：http://www.linkbucks.com/xLAl
+<br>【百度密碼】：c7pa
 <br>【城通雲盤】：http://v.ctfile.com/info/Hm8107923
 
 <br>【節目名稱】：903 口水多過浪花 2016-05-20（HD）
@@ -146,4 +149,7 @@
 <br>【360雲盤】：http://adf.ly/1aRf40
 <br>【360雲盤】：http://www.linkbucks.com/yCcy
 <br>【360密碼】：411d
+<br>【百度雲盤】：http://adf.ly/1aRh4E
+<br>【百度雲盤】：http://www.linkbucks.com/xJrD
+<br>【百度密碼】：8sde
 <br>【城通雲盤】：http://v.ctfile.com/info/ZbV107920
