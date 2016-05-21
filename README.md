@@ -61,3 +61,27 @@
 <br>【360雲盤】：http://adf.ly/1aTCAs
 <br>【360雲盤】：http://www.linkbucks.com/yvMU
 <br>【360密碼】：e1e6
+
+<br>【節目名稱】：881 1圈圈 2016-05-21（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1aTVhP
+<br>【360雲盤】：http://www.linkbucks.com/y5h3
+<br>【360密碼】： 8a9b
+
+<br>【節目名稱】：903 903 豁達推介 2016-05-21（HD）
+<br>【節目主持】：梁文禮
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1aTVWk
+<br>【360雲盤】：http://www.linkbucks.com/y5j2
+<br>【360密碼】：c65f
+
+<br>【節目名稱】：903 3號螺絲釘 2016-05-21（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Screw No.3
+<br>【360雲盤】：http://adf.ly/1aTVUJ
+<br>【360雲盤】：http://www.linkbucks.com/y5lB
+<br>【360密碼】：57b9
