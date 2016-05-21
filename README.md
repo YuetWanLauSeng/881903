@@ -89,6 +89,7 @@
 <br>【360雲盤】：http://adf.ly/1aTCHd
 <br>【360雲盤】：http://www.linkbucks.com/yvKM
 <br>【360密碼】：a059
+<br>【城通雲盤】：http://v.ctfile.com/info/64W111634
 
 <br>【節目名稱】：881 政經星期六 2016-05-21（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -97,6 +98,7 @@
 <br>【360雲盤】：http://adf.ly/1aTCJu
 <br>【360雲盤】：http://www.linkbucks.com/yvJt
 <br>【360密碼】：ee39
+<br>【城通雲盤】：http://v.ctfile.com/info/aqX111643
 
 <br>【節目名稱】：903 西加航空 2016-05-21（HD）
 <br>【節目主持】：謝茜嘉
@@ -105,6 +107,7 @@
 <br>【360雲盤】：http://adf.ly/1aTCO4
 <br>【360雲盤】：http://www.linkbucks.com/yvJH
 <br>【360密碼】：76da
+<br>【城通雲盤】：http://v.ctfile.com/info/VE5111655
 
 <br>【節目名稱】：881 不平平則鳴 2016-05-21（HD）
 <br>【節目主持】：陳聰 | 王永平
@@ -113,6 +116,7 @@
 <br>【360雲盤】：http://adf.ly/1aTCM6
 <br>【360雲盤】：http://www.linkbucks.com/yvJZ
 <br>【360密碼】：0203
+<br>【城通雲盤】：http://v.ctfile.com/info/veW111652
 
 <br>【節目名稱】：881 考股專家 2016-05-21（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -121,6 +125,7 @@
 <br>【360雲盤】：http://adf.ly/1aTCFk
 <br>【360雲盤】：http://www.linkbucks.com/yvKc
 <br>【360密碼】：1d82
+<br>【城通雲盤】：http://v.ctfile.com/info/7uI111631
 
 <br>【節目名稱】：903 903 專業推介 2016-05-21（HD）
 <br>【節目主持】：Donald
@@ -129,6 +134,7 @@
 <br>【360雲盤】：http://adf.ly/1aTCEP
 <br>【360雲盤】：http://www.linkbucks.com/yvK7
 <br>【360密碼】：37e0
+<br>【城通雲盤】：http://v.ctfile.com/info/NlE111658
 
 <br>【節目名稱】：903 咪芝蓮 2016-05-21（HD）
 <br>【節目主持】：小儀
@@ -137,6 +143,7 @@
 <br>【360雲盤】：http://adf.ly/1aTCD2
 <br>【360雲盤】：http://www.linkbucks.com/yvLV
 <br>【360密碼】：5832
+<br>【城通雲盤】：http://v.ctfile.com/info/VWi111649
 
 <br>【節目名稱】：903 滑鼠商店街 2016-05-21（HD）
 <br>【節目主持】：麻利亞
@@ -145,6 +152,7 @@
 <br>【360雲盤】：http://adf.ly/1aTCAs
 <br>【360雲盤】：http://www.linkbucks.com/yvMU
 <br>【360密碼】：e1e6
+<br>【城通雲盤】：http://v.ctfile.com/info/3Mi111637
 
 <br>【節目名稱】：881 1圈圈 2016-05-21（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -153,6 +161,7 @@
 <br>【360雲盤】：http://adf.ly/1aTVhP
 <br>【360雲盤】：http://www.linkbucks.com/y5h3
 <br>【360密碼】： 8a9b
+<br>【城通雲盤】：http://v.ctfile.com/info/Sdp111661
 
 <br>【節目名稱】：903 903 豁達推介 2016-05-21（HD）
 <br>【節目主持】：梁文禮
@@ -161,6 +170,7 @@
 <br>【360雲盤】：http://adf.ly/1aTVWk
 <br>【360雲盤】：http://www.linkbucks.com/y5j2
 <br>【360密碼】：c65f
+<br>【城通雲盤】：http://v.ctfile.com/info/HYI111646
 
 <br>【節目名稱】：903 3號螺絲釘 2016-05-21（HD）
 <br>【節目主持】：Colin
@@ -169,3 +179,4 @@
 <br>【360雲盤】：http://adf.ly/1aTVUJ
 <br>【360雲盤】：http://www.linkbucks.com/y5lB
 <br>【360密碼】：57b9
+<br>【城通雲盤】：http://v.ctfile.com/info/c3L111640
