@@ -1,3 +1,87 @@
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-14（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aTWzX
+<br>【360雲盤】：http://www.linkbucks.com/y5Hr
+<br>【360密碼】：6e9f
+<br>【百度雲盤】：http://adf.ly/1aTXXQ
+<br>【百度雲盤】：http://www.linkbucks.com/y45g
+<br>【百度密碼】：1cfk
+<br>【城通雲盤】：http://v.ctfile.com/info/h1W111178
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-15（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aTWxb
+<br>【360雲盤】：http://www.linkbucks.com/y5In
+<br>【360密碼】：1aae
+<br>【百度雲盤】：http://adf.ly/1aTXU3
+<br>【百度雲盤】：http://www.linkbucks.com/y477
+<br>【百度密碼】：8794
+<br>【城通雲盤】：http://v.ctfile.com/info/lft111175
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-16（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aTWt6
+<br>【360雲盤】：http://www.linkbucks.com/y5J6
+<br>【360密碼】：0804
+<br>【百度雲盤】：http://adf.ly/1aTXfU
+<br>【百度雲盤】：http://www.linkbucks.com/y44P
+<br>【百度密碼】：8rmu
+<br>【城通雲盤】：http://v.ctfile.com/info/B2W111172
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-17（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aTWkp
+<br>【360雲盤】：http://www.linkbucks.com/y5UO
+<br>【360密碼】：f53c
+<br>【百度雲盤】：http://adf.ly/1aTXbq
+<br>【百度雲盤】：http://www.linkbucks.com/y446
+<br>【百度密碼】：c24u
+<br>【城通雲盤】：http://v.ctfile.com/info/LdX111169
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-18（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aTWh2
+<br>【360雲盤】：http://www.linkbucks.com/y5Uv
+<br>【360密碼】：1610
+<br>【百度雲盤】：http://adf.ly/1aTXSD
+<br>【百度雲盤】：http://www.linkbucks.com/y48S
+<br>【百度密碼】：3pvz
+<br>【城通雲盤】：http://v.ctfile.com/info/FJH111166
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-19（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aTWen
+<br>【360雲盤】：http://www.linkbucks.com/y5VE
+<br>【360密碼】：0edc
+<br>【百度雲盤】：http://adf.ly/1aTXHm
+<br>【百度雲盤】：http://www.linkbucks.com/y5CS
+<br>【百度密碼】：u6ha
+<br>【城通雲盤】：http://v.ctfile.com/info/b5z111163
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-05-20（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1aTWcd
+<br>【360雲盤】：http://www.linkbucks.com/y5VK
+<br>【360密碼】：2326
+<br>【百度雲盤】：http://adf.ly/1aTXDk
+<br>【百度雲盤】：http://www.linkbucks.com/y5Ez
+<br>【百度密碼】：7qyt
+<br>【城通雲盤】：http://v.ctfile.com/info/Sq7111160
+
 <br>【節目名稱】：903 好醒晨 2016-05-21（HD）
 <br>【節目主持】：細So
 <br>【節目時間】：06:00 - 09:00
