@@ -188,6 +188,7 @@
 <br>【360雲盤】：http://adf.ly/1aUeD6
 <br>【360雲盤】：http://www.linkbucks.com/yx8m
 <br>【360密碼】：f9e3
+<br>【城通雲盤】：http://v.ctfile.com/info/PF3113878
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-05-21（HD）
 <br>【節目主持】：楊美琪
@@ -204,6 +205,7 @@
 <br>【360雲盤】：http://adf.ly/1aUeIt
 <br>【360雲盤】：http://www.linkbucks.com/yx6y
 <br>【360密碼】：7f1c
+<br>【城通雲盤】：http://v.ctfile.com/info/0TA113881
 
 <br>【節目名稱】：881 發式生活 2016-05-21（HD） 
 <br>【節目主持】：余宜發
@@ -212,6 +214,7 @@
 <br>【360雲盤】：http://adf.ly/1aUeFA
 <br>【360雲盤】：http://www.linkbucks.com/yx8O
 <br>【360密碼】：7889
+<br>【城通雲盤】：http://v.ctfile.com/info/bUv113893
 
 <br>【節目名稱】：903 皇牌出場 2016-05-21（HD）
 <br>【節目主持】：Marco | Keyman
@@ -220,3 +223,4 @@
 <br>【360雲盤】：http://adf.ly/1aUeHV
 <br>【360雲盤】：http://www.linkbucks.com/yx7g
 <br>【360密碼】：bda0
+<br>【城通雲盤】：http://v.ctfile.com/info/PIg113884
