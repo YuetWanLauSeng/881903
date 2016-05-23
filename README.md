@@ -137,6 +137,7 @@
 <br>【360雲盤】：http://adf.ly/1aY74V
 <br>【360雲盤】：http://www.linkbucks.com/zC86
 <br>【360密碼】：69d1
+<br>【城通雲盤】：http://v.ctfile.com/info/IJL121462
 
 <br>【節目名稱】：903 口水多過浪花 2016-05-23（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -145,6 +146,7 @@
 <br>【360雲盤】：http://adf.ly/1aY76O
 <br>【360雲盤】：http://www.linkbucks.com/zC9F
 <br>【360密碼】：66b7
+<br>【城通雲盤】：http://v.ctfile.com/info/mDb121456
 
 <br>【節目名稱】：903 毒檸王國 2016-05-23（HD）
 <br>【節目主持】：檸
@@ -153,6 +155,7 @@
 <br>【360雲盤】：http://adf.ly/1aY71E
 <br>【360雲盤】：http://www.linkbucks.com/zC8a
 <br>【360密碼】：d7e6
+<br>【城通雲盤】：http://v.ctfile.com/info/hEe121468
 
 <br>【節目名稱】：903 集雜志 2016-05-23（HD）
 <br>【節目主持】：急急子
@@ -161,3 +164,13 @@
 <br>【360雲盤】：http://adf.ly/1aY786
 <br>【360雲盤】：http://www.linkbucks.com/zC9e
 <br>【360密碼】：fde7
+<br>【城通雲盤】：http://v.ctfile.com/info/Kmp121453
+
+<br>【節目名稱】：881 人民大道中 2016-05-23（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1aY8vB
+<br>【360雲盤】：http://www.linkbucks.com/zC0g
+<br>【360密碼】：0183
+<br>【城通雲盤】：http://v.ctfile.com/info/P9v121465
