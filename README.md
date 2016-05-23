@@ -122,6 +122,7 @@
 <br>【360雲盤】：http://adf.ly/1aWyIZ
 <br>【360雲盤】：http://www.linkbucks.com/zIlt
 <br>【360密碼】：15b1
+<br>【城通雲盤】：http://v.ctfile.com/info/a4V115948
 
 <br>【節目名稱】：903 短期租約 2016-05-22（HD）
 <br>【節目主持】：Wasabi
@@ -130,6 +131,7 @@
 <br>【360雲盤】：http://adf.ly/1aWyKL
 <br>【360雲盤】：http://www.linkbucks.com/zIl7
 <br>【360密碼】：abfd
+<br>【城通雲盤】：http://v.ctfile.com/info/cdo115945
 
 <br>【節目名稱】：881 寫生活 2016-05-22（HD）
 <br>【節目主持】：881 主持人
@@ -138,3 +140,4 @@
 <br>【360雲盤】：http://adf.ly/1aWyGU
 <br>【360雲盤】：http://www.linkbucks.com/zIkm
 <br>【360密碼】：70f9
+<br>【城通雲盤】：http://v.ctfile.com/info/HkB115951
