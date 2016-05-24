@@ -165,3 +165,27 @@
 <br>【百度雲盤】：http://www.linkbucks.com/zRWg
 <br>【百度密碼】：qafh
 <br>【城通雲盤】：http://v.ctfile.com/info/gVy124489
+
+<br>【節目名稱】：903 集雜志 2016-05-24（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1aZw2w
+<br>【360雲盤】：http://www.linkbucks.com/zQYw
+<br>【360密碼】：1700
+<br>【百度雲盤】：http://adf.ly/1aZwkS
+<br>【百度雲盤】：http://www.linkbucks.com/zQSB
+<br>【百度密碼】：pw75
+<br>【城通雲盤】：http://v.ctfile.com/info/qHv125011
+
+<br>【節目名稱】：881 人民大道中 2016-05-24（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1aZw6A
+<br>【360雲盤】：http://www.linkbucks.com/zQYk
+<br>【360密碼】：a0dc
+<br>【百度雲盤】：http://adf.ly/1aZwh8
+<br>【百度雲盤】：http://www.linkbucks.com/zQSF
+<br>【百度密碼】：7xyr
+<br>【城通雲盤】：http://v.ctfile.com/info/IXm125020
