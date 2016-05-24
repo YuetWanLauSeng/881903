@@ -129,3 +129,27 @@
 <br>【百度雲盤】：http://www.linkbucks.com/zAhZ
 <br>【百度密碼】：iget
 <br>【城通雲盤】：http://v.ctfile.com/info/Zdk123619
+
+<br>【節目名稱】：881 大玩派 2016-05-24（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1aZeCK
+<br>【360雲盤】：http://www.linkbucks.com/zSBp
+<br>【360密碼】：f495
+<br>【百度雲盤】：http://adf.ly/1aZera
+<br>【百度雲盤】：http://www.linkbucks.com/zR8A
+<br>【百度密碼】：srni
+<br>【城通雲盤】：http://v.ctfile.com/info/Mkn124375
+
+<br>【節目名稱】：903 口水多過浪花 2016-05-24（HD）
+<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1aZeFE
+<br>【360雲盤】：http://www.linkbucks.com/zSBR
+<br>【360密碼】：13d6
+<br>【百度雲盤】：http://adf.ly/1aZevQ
+<br>【百度雲盤】：http://www.linkbucks.com/zR70
+<br>【百度密碼】：iiwb
+<br>【城通雲盤】：http://v.ctfile.com/info/TSm124387
