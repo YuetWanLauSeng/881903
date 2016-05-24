@@ -32,6 +32,7 @@
 <br>【百度雲盤】：http://adf.ly/1aZICn
 <br>【百度雲盤】：http://www.linkbucks.com/zEIa
 <br>【百度密碼】：n37s
+<br>【城通雲盤】：http://v.ctfile.com/info/XHP123061
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-05-24（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -67,6 +68,7 @@
 <br>【百度雲盤】：http://adf.ly/1aZIAf
 <br>【百度雲盤】：http://www.linkbucks.com/zEJE
 <br>【百度密碼】：r4hd
+<br>【城通雲盤】：http://v.ctfile.com/info/SYh123055
 
 <br>【節目名稱】：903 早霸王 2016-05-24（HD）
 <br>【節目主持】：森美 | 小儀
@@ -78,6 +80,7 @@
 <br>【百度雲盤】：http://adf.ly/1aZI8X
 <br>【百度雲盤】：http://www.linkbucks.com/zEJR
 <br>【百度密碼】：qg97
+<br>【城通雲盤】：http://v.ctfile.com/info/0hg123034
 
 <br>【節目名稱】：881 十八樓C座 2016-05-24（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
