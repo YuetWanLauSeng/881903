@@ -165,3 +165,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/yw1V
 <br>【百度密碼】：ypvt
 <br>【城通雲盤】：http://v.ctfile.com/info/9Qn128698
+
+<br>【節目名稱】：881 杏林茶 2016-05-25（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1abfcy
+<br>【360雲盤】：http://www.linkbucks.com/kkIE
+<br>【360密碼】：069e
+<br>【百度雲盤】：http://adf.ly/1abffb
+<br>【百度雲盤】：http://www.linkbucks.com/kgCc
+<br>【百度密碼】：gzja
+<br>【城通雲盤】：http://v.ctfile.com/info/WXK129118
