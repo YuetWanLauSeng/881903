@@ -57,3 +57,11 @@
 <br>【百度雲盤】：http://www.linkbucks.com/zkkC
 <br>【百度密碼】：tfyt
 <br>【城通雲盤】：http://v.ctfile.com/info/LiD126970
+
+<br>【節目名稱】：903 早霸王 2016-05-25（HD）
+<br>【節目主持】：森美 | 小儀
+<br>【節目時間】：10:00 - 12:00
+<br>【檔案名稱】：Good Morning King
+<br>【360雲盤】：http://adf.ly/1ab1oU
+<br>【360雲盤】：http://www.linkbucks.com/zkAQ
+<br>【360密碼】：e81c
