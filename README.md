@@ -104,6 +104,7 @@
 <br>【百度雲盤】：http://adf.ly/1abHQk
 <br>【百度雲盤】：http://www.linkbucks.com/zXUu
 <br>【百度密碼】：5vdf
+<br>【城通雲盤】：http://v.ctfile.com/info/Pmu128740
 
 <br>【節目名稱】：881 人生交叉盤 2016-05-25（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -115,6 +116,7 @@
 <br>【百度雲盤】：http://adf.ly/1abHHL
 <br>【百度雲盤】：http://www.linkbucks.com/zXVa
 <br>【百度密碼】：scwz
+<br>【城通雲盤】：http://v.ctfile.com/info/2Qj128728
 
 <br>【節目名稱】：903 關公災難 2016-05-25（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -126,6 +128,7 @@
 <br>【百度雲盤】：http://adf.ly/1abHS3
 <br>【百度雲盤】：http://www.linkbucks.com/zWw6
 <br>【百度密碼】：4g8j
+<br>【城通雲盤】：http://v.ctfile.com/info/NQQ128722
 
 <br>【節目名稱】：881 大玩派 2016-05-25（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -137,6 +140,7 @@
 <br>【百度雲盤】：http://adf.ly/1abNJi
 <br>【百度雲盤】：http://www.linkbucks.com/zVQl
 <br>【百度密碼】：mp5p
+<br>【城通雲盤】：http://v.ctfile.com/info/wYZ128716
 
 <br>【節目名稱】：903 口水多過浪花 2016-05-25（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -148,3 +152,4 @@
 <br>【百度雲盤】：http://adf.ly/1abNHp
 <br>【百度雲盤】：http://www.linkbucks.com/zVQx
 <br>【百度密碼】：hkfv
+<br>【城通雲盤】：http://v.ctfile.com/info/EcG128641
