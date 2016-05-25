@@ -93,3 +93,36 @@
 <br>【百度雲盤】：http://www.linkbucks.com/zYS5
 <br>【百度密碼】：rvyb
 <br>【城通雲盤】：http://v.ctfile.com/info/Ur8127594
+
+<br>【節目名稱】：903 叱咤樂壇 2016-05-25（HD）
+<br>【節目主持】：謝茜嘉 | 梁文禮
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1abHG9
+<br>【360雲盤】：http://www.linkbucks.com/zXV3
+<br>【360密碼】：2922
+<br>【百度雲盤】：http://adf.ly/1abHQk
+<br>【百度雲盤】：http://www.linkbucks.com/zXUu
+<br>【百度密碼】：5vdf
+
+<br>【節目名稱】：881 人生交叉盤 2016-05-25（HD）
+<br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1abHDK
+<br>【360雲盤】：http://www.linkbucks.com/zXWG
+<br>【360密碼】：6e50
+<br>【百度雲盤】：http://adf.ly/1abHHL
+<br>【百度雲盤】：http://www.linkbucks.com/zXVa
+<br>【百度密碼】：scwz
+
+<br>【節目名稱】：903 關公災難 2016-05-25（HD）
+<br>【節目主持】：劉翁 | 王迪詩
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：PR
+<br>【360雲盤】：http://adf.ly/1abHEq
+<br>【360雲盤】：http://www.linkbucks.com/zXV6
+<br>【360密碼】：6b30
+<br>【百度雲盤】：http://adf.ly/1abHS3
+<br>【百度雲盤】：http://www.linkbucks.com/zWw6
+<br>【百度密碼】：4g8j
