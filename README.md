@@ -68,6 +68,7 @@
 <br>【百度雲盤】：http://adf.ly/1abCnH
 <br>【百度雲盤】：http://www.linkbucks.com/zYWa
 <br>【百度密碼】：5zkq
+<br>【城通雲盤】：http://v.ctfile.com/info/kUo127585
 
 <br>【節目名稱】：903 早霸王 2016-05-25（HD）
 <br>【節目主持】：森美 | 小儀
@@ -79,6 +80,7 @@
 <br>【百度雲盤】：http://adf.ly/1abCp5
 <br>【百度雲盤】：http://www.linkbucks.com/zYU7
 <br>【百度密碼】：jqu2
+<br>【城通雲盤】：http://v.ctfile.com/info/tnE127582
 
 <br>【節目名稱】：881 十八樓C座 2016-05-25（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -90,3 +92,4 @@
 <br>【百度雲盤】：http://adf.ly/1abCvn
 <br>【百度雲盤】：http://www.linkbucks.com/zYS5
 <br>【百度密碼】：rvyb
+<br>【城通雲盤】：http://v.ctfile.com/info/Ur8127594
