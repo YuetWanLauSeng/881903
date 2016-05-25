@@ -58,6 +58,17 @@
 <br>【百度密碼】：tfyt
 <br>【城通雲盤】：http://v.ctfile.com/info/LiD126970
 
+<br>【節目名稱】：881 1圈圈 2016-05-25（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：10:30 - 12:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1abCj1
+<br>【360雲盤】：http://www.linkbucks.com/zYWu
+<br>【360密碼】：930f
+<br>【百度雲盤】：http://adf.ly/1abCnH
+<br>【百度雲盤】：http://www.linkbucks.com/zYWa
+<br>【百度密碼】：5zkq
+
 <br>【節目名稱】：903 早霸王 2016-05-25（HD）
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
@@ -65,3 +76,17 @@
 <br>【360雲盤】：http://adf.ly/1ab1oU
 <br>【360雲盤】：http://www.linkbucks.com/zkAQ
 <br>【360密碼】：e81c
+<br>【百度雲盤】：http://adf.ly/1abCp5
+<br>【百度雲盤】：http://www.linkbucks.com/zYU7
+<br>【百度密碼】：jqu2
+
+<br>【節目名稱】：881 十八樓C座 2016-05-25（HD）
+<br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C
+<br>【360雲盤】：http://adf.ly/1abCgs
+<br>【360雲盤】：http://www.linkbucks.com/zYW7
+<br>【360密碼】：2d52
+<br>【百度雲盤】：http://adf.ly/1abCvn
+<br>【百度雲盤】：http://www.linkbucks.com/zYS5
+<br>【百度密碼】：rvyb
