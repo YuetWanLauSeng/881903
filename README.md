@@ -81,3 +81,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/zmeZ
 <br>【百度密碼】：bc58
 <br>【城通雲盤】：http://v.ctfile.com/info/boM130672
+
+<br>【節目名稱】：881 十八樓C座 2016-05-26（HD）
+<br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C
+<br>【360雲盤】：http://adf.ly/1acgRS
+<br>【360雲盤】：http://www.linkbucks.com/zmTu
+<br>【360密碼】：ecda
+<br>【百度雲盤】：http://adf.ly/1acgYG
+<br>【百度雲盤】：http://www.linkbucks.com/zmTC
+<br>【百度密碼】：kcu8
+<br>【城通雲盤】：http://v.ctfile.com/info/Yvh130792
