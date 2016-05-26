@@ -153,3 +153,15 @@
 <br>【百度雲盤】：http://www.linkbucks.com/zkHd
 <br>【百度密碼】：tf9d
 <br>【城通雲盤】：http://v.ctfile.com/info/EG8131818
+
+<br>【節目名稱】：903 毒檸王國 2016-05-26（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Dokureioukoku
+<br>【360雲盤】：http://adf.ly/1aczSH
+<br>【360雲盤】：http://www.linkbucks.com/zjue
+<br>【360密碼】：4714
+<br>【百度雲盤】：http://adf.ly/1aczyI
+<br>【百度雲盤】：http://www.linkbucks.com/zjoy
+<br>【百度密碼】：v7md
+<br>【城通雲盤】：http://v.ctfile.com/info/TI2131914
