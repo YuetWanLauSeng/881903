@@ -189,3 +189,27 @@
 <br>【百度雲盤】：http://www.linkbucks.com/zhP6
 <br>【百度密碼】：pzp6
 <br>【城通雲盤】：http://v.ctfile.com/info/bDJ132133
+
+<br>【節目名稱】：881 杏林茶 2016-05-26（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1adCfW
+<br>【360雲盤】：http://www.linkbucks.com/zfSk
+<br>【360密碼】：433d
+<br>【百度雲盤】：http://adf.ly/1adDhs
+<br>【百度雲盤】：http://www.linkbucks.com/zfME
+<br>【百度密碼】：hz8c
+<br>【城通雲盤】：http://v.ctfile.com/info/uKc132313
+
+<br>【節目名稱】：903 生活日常 2016-05-26（HD）
+<br>【節目主持】：細So
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：My Daily Life
+<br>【360雲盤】：http://adf.ly/1adCcn
+<br>【360雲盤】：http://www.linkbucks.com/zfSz
+<br>【360密碼】：e28a
+<br>【百度雲盤】：http://adf.ly/1adDjF
+<br>【百度雲盤】：http://www.linkbucks.com/zfLw
+<br>【百度密碼】：57m9
+<br>【城通雲盤】：http://v.ctfile.com/info/YAn132319
