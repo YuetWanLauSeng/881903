@@ -1,263 +1,83 @@
-<br>【節目名稱】：903 有誰共鳴 2016-05-25（HD） 
+<br>【節目名稱】：903 有誰共鳴 2016-05-26（HD） 
 <br>【節目主持】：Wasabi | 嘉賓主持
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song
-<br>【360雲盤】：http://adf.ly/1ab0JQ
-<br>【360雲盤】：http://www.linkbucks.com/zkXO
-<br>【360密碼】：9b95
-<br>【百度雲盤】：http://adf.ly/1ab0VA
-<br>【百度雲盤】：http://www.linkbucks.com/zkQ4
-<br>【百度密碼】：gsen
-<br>【城通雲盤】：http://v.ctfile.com/info/XN6126925
+<br>【360雲盤】：http://adf.ly/1acfBR
+<br>【360雲盤】：http://www.linkbucks.com/zmfd
+<br>【360密碼】：92c4
+<br>【百度雲盤】：http://adf.ly/1acfNc
+<br>【百度雲盤】：http://www.linkbucks.com/zmdU
+<br>【百度密碼】：p14y
+<br>【城通雲盤】：http://v.ctfile.com/info/Sj3130660
 
-<br>【節目名稱】：903 早安，同學早! 2016-05-25（HD）
+<br>【節目名稱】：903 早安，同學早! 2016-05-26（HD）
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!
-<br>【360雲盤】：http://adf.ly/1ab0PR
-<br>【360雲盤】：http://www.linkbucks.com/zkUb
-<br>【360密碼】：927b
-<br>【百度雲盤】：http://adf.ly/1ab0Wb
-<br>【百度雲盤】：http://www.linkbucks.com/zkgH
-<br>【百度密碼】：fqhg
-<br>【城通雲盤】：http://v.ctfile.com/info/mz4126928
+<br>【360雲盤】：http://adf.ly/1acfCq
+<br>【360雲盤】：http://www.linkbucks.com/zme2
+<br>【360密碼】：156d
+<br>【百度雲盤】：http://adf.ly/1acfMW
+<br>【百度雲盤】：http://www.linkbucks.com/zmdq
+<br>【百度密碼】：pgen
+<br>【城通雲盤】：http://fun.ctfile.com/info/2El130669
 
-<br>【節目名稱】：881 在晴朗的一天出發 2016-05-25（HD）
+<br>【節目名稱】：881 在晴朗的一天出發 2016-05-26（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）
-<br>【360雲盤】：http://adf.ly/1ab0HU
-<br>【360雲盤】：http://www.linkbucks.com/zkpv
-<br>【360密碼】：96e5
-<br>【百度雲盤】：http://adf.ly/1ab0R9
-<br>【百度雲盤】：http://www.linkbucks.com/zkTK
-<br>【百度密碼】：kgx7
-<br>【城通雲盤】：http://v.ctfile.com/info/hAJ126985
+<br>【360雲盤】：http://adf.ly/1acfA8
+<br>【360雲盤】：http://www.linkbucks.com/zmfp
+<br>【360密碼】：e976
+<br>【百度雲盤】：http://adf.ly/1acfHb
+<br>【百度雲盤】：http://www.linkbucks.com/zmeO
+<br>【百度密碼】：psjh
+<br>【城通雲盤】：http://fun.ctfile.com/info/Yy9130666
 
-<br>【節目名稱】：903 在晴朗的一天出發 2016-05-25（HD）
+<br>【節目名稱】：903 在晴朗的一天出發 2016-05-26（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）
-<br>【360雲盤】：http://adf.ly/1ab0Fk
-<br>【360雲盤】：http://www.linkbucks.com/zkqt
-<br>【360密碼】：33fe
-<br>【百度雲盤】：http://adf.ly/1ab0Sh
-<br>【百度雲盤】：http://www.linkbucks.com/zklJ
-<br>【百度密碼】：68im
-<br>【城通雲盤】：http://v.ctfile.com/info/X5F126973
+<br>【360雲盤】：http://adf.ly/1acf8Z
+<br>【360雲盤】：http://www.linkbucks.com/zmf6
+<br>【360密碼】：464b
+<br>【百度雲盤】：http://adf.ly/1acfL2
+<br>【百度雲盤】：http://www.linkbucks.com/zmd1
+<br>【百度密碼】：4u71
+<br>【城通雲盤】：http://fun.ctfile.com/info/ITK130663
 
-<br>【節目名稱】：881 雲常開 2016-05-25（HD）
+<br>【節目名稱】：881 雲常開 2016-05-26（HD）
 <br>【節目主持】：陳志雲
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Under the Sun
-<br>【360雲盤】：http://adf.ly/1ab0ER
-<br>【360雲盤】：http://www.linkbucks.com/zkrC
-<br>【360密碼】：12e8
-<br>【百度雲盤】：http://adf.ly/1ab0UF
-<br>【百度雲盤】：http://www.linkbucks.com/zkkC
-<br>【百度密碼】：tfyt
-<br>【城通雲盤】：http://v.ctfile.com/info/LiD126970
+<br>【360雲盤】：http://adf.ly/1acf7Q
+<br>【360雲盤】：http://www.linkbucks.com/zmgB
+<br>【360密碼】：680f
+<br>【百度雲盤】：http://adf.ly/1acfJg
+<br>【百度雲盤】：http://www.linkbucks.com/zmeA
+<br>【百度密碼】：98ew
+<br>【城通雲盤】：http://v.ctfile.com/info/h0i130657
 
-<br>【節目名稱】：881 1圈圈 2016-05-25（HD）
+<br>【節目名稱】：881 1圈圈 2016-05-26（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles
-<br>【360雲盤】：http://adf.ly/1abCj1
-<br>【360雲盤】：http://www.linkbucks.com/zYWu
-<br>【360密碼】：930f
-<br>【百度雲盤】：http://adf.ly/1abCnH
-<br>【百度雲盤】：http://www.linkbucks.com/zYWa
-<br>【百度密碼】：5zkq
-<br>【城通雲盤】：http://v.ctfile.com/info/kUo127585
+<br>【360雲盤】：http://adf.ly/1acf4U
+<br>【360雲盤】：http://www.linkbucks.com/zmgJ
+<br>【360密碼】：a054
+<br>【百度雲盤】：http://adf.ly/1acfGI
+<br>【百度雲盤】：http://www.linkbucks.com/zmeV
+<br>【百度密碼】：eh5q
+<br>【城通雲盤】：http://fun.ctfile.com/info/WzR130678
 
-<br>【節目名稱】：903 早霸王 2016-05-25（HD）
+<br>【節目名稱】：903 早霸王 2016-05-26（HD）
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King
-<br>【360雲盤】：http://adf.ly/1ab1oU
-<br>【360雲盤】：http://www.linkbucks.com/zkAQ
-<br>【360密碼】：e81c
-<br>【百度雲盤】：http://adf.ly/1abCp5
-<br>【百度雲盤】：http://www.linkbucks.com/zYU7
-<br>【百度密碼】：jqu2
-<br>【城通雲盤】：http://v.ctfile.com/info/tnE127582
-
-<br>【節目名稱】：881 十八樓C座 2016-05-25（HD）
-<br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目時間】：12:30 - 13:00
-<br>【檔案名稱】：18F Block C
-<br>【360雲盤】：http://adf.ly/1abCgs
-<br>【360雲盤】：http://www.linkbucks.com/zYW7
-<br>【360密碼】：2d52
-<br>【百度雲盤】：http://adf.ly/1abCvn
-<br>【百度雲盤】：http://www.linkbucks.com/zYS5
-<br>【百度密碼】：rvyb
-<br>【城通雲盤】：http://v.ctfile.com/info/Ur8127594
-
-<br>【節目名稱】：903 叱咤樂壇 2016-05-25（HD）
-<br>【節目主持】：謝茜嘉 | 梁文禮
-<br>【節目時間】：12:00 - 14:00
-<br>【檔案名稱】：903 Music
-<br>【360雲盤】：http://adf.ly/1abHG9
-<br>【360雲盤】：http://www.linkbucks.com/zXV3
-<br>【360密碼】：2922
-<br>【百度雲盤】：http://adf.ly/1abHQk
-<br>【百度雲盤】：http://www.linkbucks.com/zXUu
-<br>【百度密碼】：5vdf
-<br>【城通雲盤】：http://v.ctfile.com/info/Pmu128740
-
-<br>【節目名稱】：881 人生交叉盤 2016-05-25（HD）
-<br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
-<br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：http://adf.ly/1abHDK
-<br>【360雲盤】：http://www.linkbucks.com/zXWG
-<br>【360密碼】：6e50
-<br>【百度雲盤】：http://adf.ly/1abHHL
-<br>【百度雲盤】：http://www.linkbucks.com/zXVa
-<br>【百度密碼】：scwz
-<br>【城通雲盤】：http://v.ctfile.com/info/2Qj128728
-
-<br>【節目名稱】：903 關公災難 2016-05-25（HD）
-<br>【節目主持】：劉翁 | 王迪詩
-<br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：PR
-<br>【360雲盤】：http://adf.ly/1abHEq
-<br>【360雲盤】：http://www.linkbucks.com/zXV6
-<br>【360密碼】：6b30
-<br>【百度雲盤】：http://adf.ly/1abHS3
-<br>【百度雲盤】：http://www.linkbucks.com/zWw6
-<br>【百度密碼】：4g8j
-<br>【城通雲盤】：http://v.ctfile.com/info/NQQ128722
-
-<br>【節目名稱】：881 大玩派 2016-05-25（HD）
-<br>【節目主持】：蘇施黃 | Tristan | 朱菁
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：http://adf.ly/1abNGf
-<br>【360雲盤】：http://www.linkbucks.com/zVQ9
-<br>【360密碼】：649b
-<br>【百度雲盤】：http://adf.ly/1abNJi
-<br>【百度雲盤】：http://www.linkbucks.com/zVQl
-<br>【百度密碼】：mp5p
-<br>【城通雲盤】：http://v.ctfile.com/info/wYZ128716
-
-<br>【節目名稱】：903 口水多過浪花 2016-05-25（HD）
-<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：http://adf.ly/1abNFI
-<br>【360雲盤】：http://www.linkbucks.com/zVRI
-<br>【360密碼】：0c18
-<br>【百度雲盤】：http://adf.ly/1abNHp
-<br>【百度雲盤】：http://www.linkbucks.com/zVQx
-<br>【百度密碼】：hkfv
-<br>【城通雲盤】：http://v.ctfile.com/info/EcG128641
-
-<br>【節目名稱】：903 毒檸王國 2016-05-25（HD）
-<br>【節目主持】：檸
-<br>【節目時間】：17:00 - 18:00
-<br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：http://adf.ly/1acQP5
-<br>【360雲盤】：http://www.linkbucks.com/zaLw
-<br>【360密碼】：f975
-
-<br>【節目名稱】：903 集雜志 2016-05-25（HD）
-<br>【節目主持】：急急子
-<br>【節目時間】：18:00 - 19:00
-<br>【檔案名稱】：Zine
-<br>【360雲盤】：http://adf.ly/1acQWM
-<br>【360雲盤】：http://www.linkbucks.com/zaK2
-<br>【360密碼】：9c5b
-
-<br>【節目名稱】：881 人民大道中 2016-05-25（HD）
-<br>【節目主持】：黃永 | 健吾
-<br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：http://adf.ly/1abYvP
-<br>【360雲盤】：http://www.linkbucks.com/yx9u
-<br>【360密碼】：89d6
-<br>【百度雲盤】：http://adf.ly/1abYyi
-<br>【百度雲盤】：http://www.linkbucks.com/yw1V
-<br>【百度密碼】：ypvt
-<br>【城通雲盤】：http://v.ctfile.com/info/9Qn128698
-
-<br>【節目名稱】：881 杏林茶 2016-05-25（HD）
-<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
-<br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Tea For You
-<br>【360雲盤】：http://adf.ly/1abfcy
-<br>【360雲盤】：http://www.linkbucks.com/kkIE
-<br>【360密碼】：069e
-<br>【百度雲盤】：http://adf.ly/1abffb
-<br>【百度雲盤】：http://www.linkbucks.com/kgCc
-<br>【百度密碼】：gzja
-<br>【城通雲盤】：http://v.ctfile.com/info/WXK129118
-
-<br>【節目名稱】：903 生活日常 2016-05-25（HD）
-<br>【節目主持】：細So
-<br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：http://adf.ly/1acQqh
-<br>【360雲盤】：http://www.linkbucks.com/zaIb
-<br>【360密碼】：cd3e
-
-<br>【節目名稱】：881 串 2016-05-25（HD）
-<br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目時間】：22:00 - 22:30
-<br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：http://adf.ly/1abhZT
-<br>【360雲盤】：http://www.linkbucks.com/eJw3
-<br>【360密碼】：6f1c
-<br>【百度雲盤】：http://adf.ly/1abhzp
-<br>【百度雲盤】：http://www.linkbucks.com/dGdg
-<br>【百度密碼】：p6s8
-<br>【城通雲盤】：http://v.ctfile.com/info/i3w129316
-
-<br>【節目名稱】：881 書.情.歌 2016-05-25（HD）
-<br>【節目主持】：葉宇澄
-<br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time
-<br>【360雲盤】：http://adf.ly/1acQTI
-<br>【360雲盤】：http://www.linkbucks.com/zaLP
-<br>【360密碼】：dd04
-
-<br>【節目名稱】：903 雲妮鍾情 2016-05-25（HD）
-<br>【節目主持】：Vani
-<br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：http://adf.ly/1acQw4
-<br>【360雲盤】：http://www.linkbucks.com/zaHm
-<br>【360密碼】：1948
-
-<br>【節目名稱】：881 光明頂 2016-05-25（HD）
-<br>【節目主持】：陶傑 | 嘉賓主持
-<br>【節目時間】：23:00 - 00:00
-<br>【檔案名稱】：Summit
-<br>【360雲盤】：http://adf.ly/1acQUx
-<br>【360雲盤】：http://www.linkbucks.com/zaLD
-<br>【360密碼】：2e2e
-
-<br>【節目名稱】：903 聖艾粒忌廉夜校 2016-05-25（HD）
-<br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：http://adf.ly/1acQxC
-<br>【360雲盤】：http://www.linkbucks.com/zaHc
-<br>【360密碼】：fcf5
-
-<br>【節目名稱】：881 月光光呵呵呵 2016-05-25（HD）
-<br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
-<br>【節目時間】：00:30 - 01:30
-<br>【檔案名稱】：Goodnight Kiss Kiss Kiss
-<br>【360雲盤】：http://adf.ly/1acQQr
-<br>【360雲盤】：http://www.linkbucks.com/zaLh
-<br>【360密碼】：d095
-
-<br>【節目名稱】：903 廣東爆谷 2016-05-25（HD）
-<br>【節目主持】：Colin
-<br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：http://adf.ly/1acQME
-<br>【360雲盤】：http://www.linkbucks.com/zaML
-<br>【360密碼】：8671
+<br>【360雲盤】：http://adf.ly/1acf2j
+<br>【360雲盤】：http://www.linkbucks.com/zmgW
+<br>【360密碼】：f287
+<br>【百度雲盤】：http://adf.ly/1acfF0
+<br>【百度雲盤】：http://www.linkbucks.com/zmeZ
+<br>【百度密碼】：bc58
+<br>【城通雲盤】：http://v.ctfile.com/info/boM130672
