@@ -154,6 +154,22 @@
 <br>【百度密碼】：hkfv
 <br>【城通雲盤】：http://v.ctfile.com/info/EcG128641
 
+<br>【節目名稱】：903 毒檸王國 2016-05-25（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Dokureioukoku
+<br>【360雲盤】：http://adf.ly/1acQP5
+<br>【360雲盤】：http://www.linkbucks.com/zaLw
+<br>【360密碼】：f975
+
+<br>【節目名稱】：903 集雜志 2016-05-25（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1acQWM
+<br>【360雲盤】：http://www.linkbucks.com/zaK2
+<br>【360密碼】：9c5b
+
 <br>【節目名稱】：881 人民大道中 2016-05-25（HD）
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
@@ -178,6 +194,14 @@
 <br>【百度密碼】：gzja
 <br>【城通雲盤】：http://v.ctfile.com/info/WXK129118
 
+<br>【節目名稱】：903 生活日常 2016-05-25（HD）
+<br>【節目主持】：細So
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：My Daily Life
+<br>【360雲盤】：http://adf.ly/1acQqh
+<br>【360雲盤】：http://www.linkbucks.com/zaIb
+<br>【360密碼】：cd3e
+
 <br>【節目名稱】：881 串 2016-05-25（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
@@ -189,3 +213,51 @@
 <br>【百度雲盤】：http://www.linkbucks.com/dGdg
 <br>【百度密碼】：p6s8
 <br>【城通雲盤】：http://v.ctfile.com/info/i3w129316
+
+<br>【節目名稱】：881 書.情.歌 2016-05-25（HD）
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time
+<br>【360雲盤】：http://adf.ly/1acQTI
+<br>【360雲盤】：http://www.linkbucks.com/zaLP
+<br>【360密碼】：dd04
+
+<br>【節目名稱】：903 雲妮鍾情 2016-05-25（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1acQw4
+<br>【360雲盤】：http://www.linkbucks.com/zaHm
+<br>【360密碼】：1948
+
+<br>【節目名稱】：881 光明頂 2016-05-25（HD）
+<br>【節目主持】：陶傑 | 嘉賓主持
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1acQUx
+<br>【360雲盤】：http://www.linkbucks.com/zaLD
+<br>【360密碼】：2e2e
+
+<br>【節目名稱】：903 聖艾粒忌廉夜校 2016-05-25（HD）
+<br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：St. ILUB Gay Lim Yeah How
+<br>【360雲盤】：http://adf.ly/1acQxC
+<br>【360雲盤】：http://www.linkbucks.com/zaHc
+<br>【360密碼】：fcf5
+
+<br>【節目名稱】：881 月光光呵呵呵 2016-05-25（HD）
+<br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
+<br>【節目時間】：00:30 - 01:30
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss
+<br>【360雲盤】：http://adf.ly/1acQQr
+<br>【360雲盤】：http://www.linkbucks.com/zaLh
+<br>【360密碼】：d095
+
+<br>【節目名稱】：903 廣東爆谷 2016-05-25（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1acQME
+<br>【360雲盤】：http://www.linkbucks.com/zaML
+<br>【360密碼】：8671
