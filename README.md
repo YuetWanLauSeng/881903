@@ -37,3 +37,27 @@
 <br>【360雲盤】：http://adf.ly/1afvxh
 <br>【360雲盤】：http://www.linkbucks.com/zxJu
 <br>【360密碼】：42b8
+
+<br>【節目名稱】：903 903 專業推介 2016-05-28（HD）
+<br>【節目主持】：Donald
+<br>【節目時間】：11:00 - 13:00
+<br>【檔案名稱】：903 Top 20
+<br>【360雲盤】：http://adf.ly/1ag53y
+<br>【360雲盤】：http://www.linkbucks.com/z7xY
+<br>【360密碼】：2bc1
+
+<br>【節目名稱】：903 咪芝蓮 2016-05-28（HD）
+<br>【節目主持】：小儀
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Mr Chef
+<br>【360雲盤】：http://adf.ly/1ag55j
+<br>【360雲盤】：http://www.linkbucks.com/z7xR
+<br>【360密碼】：51a6
+
+<br>【節目名稱】：903 滑鼠商店街 2016-05-28（HD）
+<br>【節目主持】：麻利亞
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Shopping Cart
+<br>【360雲盤】：http://adf.ly/1ag5Ke
+<br>【360雲盤】：http://www.linkbucks.com/z7wS
+<br>【360密碼】：c82c
