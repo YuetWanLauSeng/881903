@@ -89,6 +89,7 @@
 <br>【360雲盤】：http://adf.ly/1afvzH
 <br>【360雲盤】：http://www.linkbucks.com/zxJn
 <br>【360密碼】：1bb3
+<br>【城通雲盤】：http://v.ctfile.com/info/8zs136069
 
 <br>【節目名稱】：881 政經星期六 2016-05-28（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -97,6 +98,7 @@
 <br>【360雲盤】：http://adf.ly/1afw1G
 <br>【360雲盤】：http://www.linkbucks.com/zxJi
 <br>【360密碼】：3798
+<br>【城通雲盤】：http://v.ctfile.com/info/A8U136075
 
 <br>【節目名稱】：903 西加航空 2016-05-28（HD）
 <br>【節目主持】：謝茜嘉
@@ -105,6 +107,7 @@
 <br>【360雲盤】：http://adf.ly/1afw7v
 <br>【360雲盤】：http://www.linkbucks.com/zxJX
 <br>【360密碼】：2a6a
+<br>【城通雲盤】：http://v.ctfile.com/info/xcg136087
 
 <br>【節目名稱】：881 不平平則鳴 2016-05-28（HD）
 <br>【節目主持】：陳聰 | 王永平
@@ -113,6 +116,7 @@
 <br>【360雲盤】：http://adf.ly/1afw6h
 <br>【360雲盤】：http://www.linkbucks.com/zxJZ
 <br>【360密碼】：98f7
+<br>【城通雲盤】：http://v.ctfile.com/info/0Dd136084
 
 <br>【節目名稱】：881 考股專家 2016-05-28（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -121,6 +125,7 @@
 <br>【360雲盤】：http://adf.ly/1afvxh
 <br>【360雲盤】：http://www.linkbucks.com/zxJu
 <br>【360密碼】：42b8
+<br>【城通雲盤】：http://v.ctfile.com/info/Qx7136066
 
 <br>【節目名稱】：903 903 專業推介 2016-05-28（HD）
 <br>【節目主持】：Donald
@@ -129,6 +134,7 @@
 <br>【360雲盤】：http://adf.ly/1ag53y
 <br>【360雲盤】：http://www.linkbucks.com/z7xY
 <br>【360密碼】：2bc1
+<br>【城通雲盤】：http://v.ctfile.com/info/Qgz136090
 
 <br>【節目名稱】：903 咪芝蓮 2016-05-28（HD）
 <br>【節目主持】：小儀
@@ -137,6 +143,7 @@
 <br>【360雲盤】：http://adf.ly/1ag55j
 <br>【360雲盤】：http://www.linkbucks.com/z7xR
 <br>【360密碼】：51a6
+<br>【城通雲盤】：http://v.ctfile.com/info/HKn136081
 
 <br>【節目名稱】：903 滑鼠商店街 2016-05-28（HD）
 <br>【節目主持】：麻利亞
@@ -145,3 +152,4 @@
 <br>【360雲盤】：http://adf.ly/1ag5Ke
 <br>【360雲盤】：http://www.linkbucks.com/z7wS
 <br>【360密碼】：c82c
+<br>【城通雲盤】：http://v.ctfile.com/info/ukG136072
