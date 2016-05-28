@@ -153,3 +153,35 @@
 <br>【360雲盤】：http://www.linkbucks.com/z7wS
 <br>【360密碼】：c82c
 <br>【城通雲盤】：http://v.ctfile.com/info/ukG136072
+
+<br>【節目名稱】：881 1圈圈 2016-05-28（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1agYE6
+<br>【360雲盤】：http://www.linkbucks.com/zq4U
+<br>【360密碼】： 2ec9
+
+<br>【節目名稱】：903 903 豁達推介 2016-05-28（HD）
+<br>【節目主持】：梁文禮
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1agY7G
+<br>【360雲盤】：http://www.linkbucks.com/zq5y
+<br>【360密碼】：8289
+
+<br>【節目名稱】：903 3號螺絲釘 2016-05-28（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Screw No.3
+<br>【360雲盤】：http://adf.ly/1agYBr
+<br>【360雲盤】：http://www.linkbucks.com/zq4Y
+<br>【360密碼】：e44a
+
+<br>【節目名稱】：903 西瓜大發 ! 2016-05-28（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：WonderMelon !
+<br>【360雲盤】：http://adf.ly/1agYUp
+<br>【360雲盤】：http://www.linkbucks.com/zq3g
+<br>【360密碼】：c733
