@@ -1,3 +1,10 @@
+<br>【節目名稱】：903 讀賣Sunday 2016-05-29（HD）
+<br>【節目主持】：占 | 王貽興
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：Sunny Day Readings
+<br>【360雲盤】：https://yunpan.cn/OcSXVLz4AHPyM3
+<br>【360密碼】：8dec
+
 <br>【節目名稱】：903 無定向喪煲病狂 2016-05-29（HD）
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：14:00 - 16:00
@@ -25,3 +32,10 @@
 <br>【檔案名稱】：Time's Up Pen's Down
 <br>【360雲盤】：https://yunpan.cn/OcSXKBg4v6rCqa
 <br>【360密碼】：2285
+
+<br>【節目名稱】：881 葛民教育 2016-05-29（HD）
+<br>【節目主持】：葛民輝
+<br>【節目時間】：23:00 - 23:30
+<br>【檔案名稱】：Kot’s ology
+<br>【360雲盤】：https://yunpan.cn/OcSXVKaWy4MqqM
+<br>【360密碼】：e51e
