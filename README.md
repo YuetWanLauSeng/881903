@@ -105,3 +105,27 @@
 <br>【百度雲盤】：http://www.linkbucks.com/0FkE
 <br>【百度密碼】：x5xb
 <br>【城通雲盤】：http://v.ctfile.com/info/Yy5138802
+
+<br>【節目名稱】：881 泡菜粉絲煲 2016-05-29（HD） 
+<br>【節目主持】：伍甄琪 | 伍悅
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Kimchi Fans Club
+<br>【360雲盤】：http://adf.ly/1aiEAg
+<br>【360雲盤】：http://www.linkbucks.com/0ECK
+<br>【360密碼】：720e
+
+<br>【節目名稱】：903 國語類 2016-05-29（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：18:00 - 21:00
+<br>【檔案名稱】：Bo Po Mo Fo
+<br>【360雲盤】：http://adf.ly/1aiE9H
+<br>【360雲盤】：http://www.linkbucks.com/0ECS
+<br>【360密碼】：9254
+
+<br>【節目名稱】：881 細路強 2016-05-29（HD） 
+<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+<br>【節目時間】：21:00 - 22:00 
+<br>【檔案名稱】：Mighty Kids Mighty Parents
+<br>【360雲盤】：http://adf.ly/1aiEKc
+<br>【360雲盤】：http://www.linkbucks.com/0D9H
+<br>【360密碼】：6fe8
