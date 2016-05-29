@@ -206,6 +206,7 @@
 <br>【360雲盤】：http://adf.ly/1ahRJE
 <br>【360雲盤】：http://www.linkbucks.com/z80l
 <br>【360密碼】：2399
+<br>【城通雲盤】：http://v.ctfile.com/info/QPR137293
 
 <br>【節目名稱】：881 發式生活 2016-05-28（HD） 
 <br>【節目主持】：余宜發
@@ -214,6 +215,7 @@
 <br>【360雲盤】：http://adf.ly/1ahRFW
 <br>【360雲盤】：http://www.linkbucks.com/z81B
 <br>【360密碼】：e54d
+<br>【城通雲盤】：http://v.ctfile.com/info/Igk137305
 
 <br>【節目名稱】：903 皇牌出場 2016-05-28（HD）
 <br>【節目主持】：Marco | Keyman
@@ -222,3 +224,4 @@
 <br>【360雲盤】：http://adf.ly/1ahRGy
 <br>【360雲盤】：http://www.linkbucks.com/z800
 <br>【360密碼】：29bb
+<br>【城通雲盤】：http://v.ctfile.com/info/6rp137299
