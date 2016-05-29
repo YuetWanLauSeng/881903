@@ -42,3 +42,21 @@
 <br>【360雲盤】：http://www.linkbucks.com/zzBP
 <br>【360密碼】：d4f6
 <br>【城通雲盤】：http://v.ctfile.com/info/SYE137938
+
+<br>【節目名稱】：903 無定向喪煲病狂 2016-05-29（HD）
+<br>【節目主持】：鄒凱光 | 檸
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：Binge-Watch
+<br>【360雲盤】：http://adf.ly/1ahy0K
+<br>【360雲盤】：http://www.linkbucks.com/BWymO
+<br>【360密碼】：ea4d
+<br>【城通雲盤】：http://v.ctfile.com/info/HzO138385
+
+<br>【節目名稱】：903 咆哮山莊 2016-05-29（HD）
+<br>【節目主持】：903 DJ
+<br>【節目時間】：16:00 - 18:00
+<br>【檔案名稱】：903 Band Time
+<br>【360雲盤】：http://adf.ly/1ahy1q
+<br>【360雲盤】：http://www.linkbucks.com/BWyXz
+<br>【360密碼】：ebea
+<br>【城通雲盤】：http://v.ctfile.com/info/XQq138388
