@@ -1,3 +1,11 @@
+<br>【節目名稱】：903 有誰共鳴 2016-05-30（HD） 
+<br>【節目主持】：Wasabi | 嘉賓主持
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1ajiOA
+<br>【360雲盤】：http://www.linkbucks.com/YQtv
+<br>【360密碼】：6097
+
 <br>【節目名稱】：903 早安，同學早! 2016-05-30（HD）
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
@@ -13,6 +21,14 @@
 <br>【360雲盤】：http://adf.ly/1ajalm
 <br>【360雲盤】：http://www.linkbucks.com/zYGl
 <br>【360密碼】：cc4c
+
+<br>【節目名稱】：881 在晴朗的一天出發 2016-05-30（HD）
+<br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
+<br>【節目時間】：06:30 - 10:00
+<br>【檔案名稱】：On a Clear Day（881）
+<br>【360雲盤】：http://adf.ly/1ajiVC
+<br>【360雲盤】：http://www.linkbucks.com/YETq
+<br>【360密碼】：8977
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-05-30（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -93,3 +109,19 @@
 <br>【360雲盤】：http://adf.ly/1ajgZd
 <br>【360雲盤】：http://www.linkbucks.com/fIuq
 <br>【360密碼】：1007
+
+<br>【節目名稱】：903 集雜志 2016-05-30（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1aji3J
+<br>【360雲盤】：http://www.linkbucks.com/Zmcp
+<br>【360密碼】：17ce
+
+<br>【節目名稱】：881 人民大道中 2016-05-30（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1ajhzu
+<br>【360雲盤】：http://www.linkbucks.com/Zr9D
+<br>【360密碼】：3850
