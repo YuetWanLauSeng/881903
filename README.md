@@ -1,3 +1,11 @@
+<br>【節目名稱】：903 早安，同學早! 2016-05-30（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：07:00 - 08:00
+<br>【檔案名稱】：Hey, Learners!
+<br>【360雲盤】：http://adf.ly/1ajggc
+<br>【360雲盤】：http://www.linkbucks.com/ezV3
+<br>【360密碼】：8339
+
 <br>【節目名稱】：881 雲常開 2016-05-30（HD）
 <br>【節目主持】：陳志雲
 <br>【節目時間】：10:00 - 10:30
@@ -14,6 +22,14 @@
 <br>【360雲盤】：http://www.linkbucks.com/z9a5
 <br>【360密碼】：1054
 
+<br>【節目名稱】：881 1圈圈 2016-05-30（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：10:30 - 12:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1ajg9L
+<br>【360雲盤】：http://www.linkbucks.com/hhr3
+<br>【360密碼】：713d
+
 <br>【節目名稱】：903 早霸王 2016-05-30（HD）
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
@@ -29,6 +45,22 @@
 <br>【360雲盤】：http://adf.ly/1ajXQ3
 <br>【360雲盤】：http://www.linkbucks.com/z9el
 <br>【360密碼】：2f0a
+
+<br>【節目名稱】：903 叱咤樂壇 2016-05-30（HD）
+<br>【節目主持】：謝茜嘉 | 梁文禮
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1ajeV1
+<br>【360雲盤】：http://www.linkbucks.com/pzjy
+<br>【360密碼】：6eaa
+
+<br>【節目名稱】：881 人生交叉盤 2016-05-30（HD）
+<br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1ajgQc
+<br>【360雲盤】：http://www.linkbucks.com/fygy
+<br>【360密碼】：f79d
 
 <br>【節目名稱】：903 關公災難 2016-05-30（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -54,3 +86,10 @@
 <br>【360雲盤】：http://www.linkbucks.com/z9ay
 <br>【360密碼】：2c9f
 
+<br>【節目名稱】：903 毒檸王國 2016-05-30（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Dokureioukoku
+<br>【360雲盤】：http://adf.ly/1ajgZd
+<br>【360雲盤】：http://www.linkbucks.com/fIuq
+<br>【360密碼】：1007
