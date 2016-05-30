@@ -141,3 +141,11 @@
 <br>【360雲盤】：http://adf.ly/1ajmWA
 <br>【360雲盤】：http://www.linkbucks.com/QXGl
 <br>【360密碼】：fde0
+
+<br>【節目名稱】：881 串 2016-05-30（HD）
+<br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1ajnay
+<br>【360雲盤】：http://www.linkbucks.com/NiGD
+<br>【360密碼】：4a65
