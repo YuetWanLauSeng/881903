@@ -149,3 +149,27 @@
 <br>【360雲盤】：http://adf.ly/1ajnay
 <br>【360雲盤】：http://www.linkbucks.com/NiGD
 <br>【360密碼】：4a65
+
+<br>【節目名稱】：881 書.情.歌 2016-05-30（HD）
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time
+<br>【360雲盤】：http://adf.ly/1ajuGq
+<br>【360雲盤】：http://www.linkbucks.com/0PZM
+<br>【360密碼】：3d01
+
+<br>【節目名稱】：903 雲妮鍾情 2016-05-30（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1ajuIR
+<br>【360雲盤】：http://www.linkbucks.com/0PY0
+<br>【360密碼】：f762
+
+<br>【節目名稱】：881 光明頂 2016-05-30（HD）
+<br>【節目主持】：陶傑 | 嘉賓主持
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1ajvb1
+<br>【360雲盤】：http://www.linkbucks.com/0OKF
+<br>【360密碼】：3fc3
