@@ -43,6 +43,9 @@
 <br>【360雲盤】：http://adf.ly/1alDIO
 <br>【360雲盤】：http://www.linkbucks.com/0RgX
 <br>【360密碼】：0011
+<br>【百度雲盤】：http://adf.ly/1alTkw
+<br>【百度雲盤】：http://www.linkbucks.com/0Ns0
+<br>【百度密碼】：66yb
 
 <br>【節目名稱】：881 1圈圈 2016-05-31（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -97,6 +100,9 @@
 <br>【360雲盤】：http://adf.ly/1alDWp
 <br>【360雲盤】：http://www.linkbucks.com/0RfQ
 <br>【360密碼】：d015
+<br>【百度雲盤】：http://adf.ly/1alTi7
+<br>【百度雲盤】：http://www.linkbucks.com/0NtN
+<br>【百度密碼】：r28p
 
 <br>【節目名稱】：881 大玩派 2016-05-31（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -105,6 +111,9 @@
 <br>【360雲盤】：http://adf.ly/1al7uu
 <br>【360雲盤】：http://www.linkbucks.com/z92o
 <br>【360密碼】：984d
+<br>【百度雲盤】：http://adf.ly/1alTo1
+<br>【百度雲盤】：http://www.linkbucks.com/0Nsg
+<br>【百度密碼】：h274
 
 <br>【節目名稱】：903 口水多過浪花 2016-05-31（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -124,6 +133,9 @@
 <br>【360雲盤】：http://adf.ly/1alDdi
 <br>【360雲盤】：http://www.linkbucks.com/0Rc3
 <br>【360密碼】：e63f
+<br>【百度雲盤】：http://adf.ly/1alTgC
+<br>【百度雲盤】：http://www.linkbucks.com/0NtV
+<br>【百度密碼】：y2yd
 
 <br>【節目名稱】：903 集雜志 2016-05-31（HD）
 <br>【節目主持】：急急子
@@ -140,6 +152,9 @@
 <br>【360雲盤】：http://adf.ly/1alFqA
 <br>【360雲盤】：http://www.linkbucks.com/0RQm
 <br>【360密碼】：7b14
+<br>【百度雲盤】：http://adf.ly/1alTYT
+<br>【百度雲盤】：http://www.linkbucks.com/0Nty
+<br>【百度密碼】：2nn3
 
 <br>【節目名稱】：881 杏林茶 2016-05-31（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -148,6 +163,9 @@
 <br>【360雲盤】：http://adf.ly/1alIHG
 <br>【360雲盤】：http://www.linkbucks.com/0Qw3
 <br>【360密碼】：f693
+<br>【百度雲盤】：http://adf.ly/1alTt4
+<br>【百度雲盤】：http://www.linkbucks.com/0NsS
+<br>【百度密碼】：5g6c
 
 <br>【節目名稱】：903 生活日常 2016-05-31（HD）
 <br>【節目主持】：細So
@@ -164,3 +182,6 @@
 <br>【360雲盤】：http://adf.ly/1alOdz
 <br>【360雲盤】：http://www.linkbucks.com/0O2D
 <br>【360密碼】：67b0
+<br>【百度雲盤】：http://adf.ly/1alTqf
+<br>【百度雲盤】：http://www.linkbucks.com/0NsX
+<br>【百度密碼】：cdii
