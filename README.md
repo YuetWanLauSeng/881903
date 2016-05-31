@@ -21,6 +21,9 @@
 <br>【360雲盤】：http://adf.ly/1alEnG
 <br>【360雲盤】：http://www.linkbucks.com/0RW4
 <br>【360密碼】：28a1
+<br>【百度雲盤】：http://adf.ly/1alLGc
+<br>【百度雲盤】：http://www.linkbucks.com/0PMm
+<br>【百度密碼】：77ga
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-05-31（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -29,6 +32,9 @@
 <br>【360雲盤】：http://adf.ly/1al7wV
 <br>【360雲盤】：http://www.linkbucks.com/z92g
 <br>【360密碼】：7be4
+<br>【百度雲盤】：http://adf.ly/1alLDT
+<br>【百度雲盤】：http://www.linkbucks.com/0PM7
+<br>【百度密碼】：dewx
 
 <br>【節目名稱】：881 雲常開 2016-05-31（HD）
 <br>【節目主持】：陳志雲
@@ -53,6 +59,9 @@
 <br>【360雲盤】：http://adf.ly/1al7ze
 <br>【360雲盤】：http://www.linkbucks.com/z92Z
 <br>【360密碼】：599f
+<br>【百度雲盤】：http://adf.ly/1alLA2
+<br>【百度雲盤】：http://www.linkbucks.com/0POe
+<br>【百度密碼】：n1vm
 
 <br>【節目名稱】：881 十八樓C座 2016-05-31（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -61,6 +70,9 @@
 <br>【360雲盤】：http://adf.ly/1al7DQ
 <br>【360雲盤】：http://www.linkbucks.com/z96F
 <br>【360密碼】：ee09
+<br>【百度雲盤】：http://adf.ly/1alKr9
+<br>【百度雲盤】：http://www.linkbucks.com/0PQT
+<br>【百度密碼】：2af6
 
 <br>【節目名稱】：903 叱咤樂壇 2016-05-31（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
@@ -101,6 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1al7t7
 <br>【360雲盤】：http://www.linkbucks.com/z921
 <br>【360密碼】：38b4
+<br>【百度雲盤】：http://adf.ly/1alLOj
+<br>【百度雲盤】：http://www.linkbucks.com/0PMB
+<br>【百度密碼】：y3fj
 
 <br>【節目名稱】：903 毒檸王國 2016-05-31（HD）
 <br>【節目主持】：檸
