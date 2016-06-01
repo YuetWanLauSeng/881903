@@ -29,6 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1amcfZ
 <br>【360雲盤】：http://www.linkbucks.com/0jlL
 <br>【360密碼】：e0e1
+<br>【百度雲盤】：http://adf.ly/1an1ck
+<br>【百度雲盤】：http://www.linkbucks.com/0dZH
+<br>【百度密碼】：3j2t
 
 <br>【節目名稱】：881 雲常開 2016-06-01（HD）
 <br>【節目主持】：陳志雲
@@ -37,6 +40,9 @@
 <br>【360雲盤】：http://adf.ly/1amqdC
 <br>【360雲盤】：http://www.linkbucks.com/0fsA
 <br>【360密碼】：309b
+<br>【百度雲盤】：http://adf.ly/1an1UR
+<br>【百度雲盤】：http://www.linkbucks.com/0da5
+<br>【百度密碼】：ejpa
 
 <br>【節目名稱】：881 1圈圈 2016-06-01（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -53,6 +59,9 @@
 <br>【360雲盤】：http://adf.ly/1amYdF
 <br>【360雲盤】：http://www.linkbucks.com/0jk8
 <br>【360密碼】：4e94
+<br>【百度雲盤】：http://adf.ly/1an1O9
+<br>【百度雲盤】：http://www.linkbucks.com/0ddk
+<br>【百度密碼】：5359
 
 <br>【節目名稱】：881 十八樓C座 2016-06-01（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -61,6 +70,9 @@
 <br>【360雲盤】：http://adf.ly/1amkf6
 <br>【360雲盤】：http://www.linkbucks.com/0hra
 <br>【360密碼】：d503
+<br>【百度雲盤】：http://adf.ly/1an1es
+<br>【百度雲盤】：http://www.linkbucks.com/0dYD
+<br>【百度密碼】：ck38
 
 <br>【節目名稱】：881 一點叮一叮 2016-06-01（HD）
 <br>【節目主持】：何飛鳳
@@ -93,6 +105,9 @@
 <br>【360雲盤】：http://adf.ly/1amndF
 <br>【360雲盤】：http://www.linkbucks.com/0gmL
 <br>【360密碼】：c751
+<br>【百度雲盤】：http://adf.ly/1an1XG
+<br>【百度雲盤】：http://www.linkbucks.com/0dZ0
+<br>【百度密碼】：44nm
 
 <br>【節目名稱】：881 大玩派 2016-06-01（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -101,6 +116,9 @@
 <br>【360雲盤】：http://adf.ly/1amqaR
 <br>【360雲盤】：http://www.linkbucks.com/0fsl
 <br>【360密碼】：ceeb
+<br>【百度雲盤】：http://adf.ly/1an1Lo
+<br>【百度雲盤】：http://www.linkbucks.com/0deD
+<br>【百度密碼】：6fz4
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-01（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -109,6 +127,9 @@
 <br>【360雲盤】：http://adf.ly/1amqfM
 <br>【360雲盤】：http://www.linkbucks.com/0fra
 <br>【360密碼】：11d5
+<br>【百度雲盤】：http://adf.ly/1an1Gq
+<br>【百度雲盤】：http://www.linkbucks.com/0df8
+<br>【百度密碼】：s38p
 
 <br>【節目名稱】：903 毒檸王國 2016-06-01（HD）
 <br>【節目主持】：檸
@@ -117,6 +138,9 @@
 <br>【360雲盤】：http://adf.ly/1ammnn
 <br>【360雲盤】：http://www.linkbucks.com/0g1x
 <br>【360密碼】：1f16
+<br>【百度雲盤】：http://adf.ly/1an1R7
+<br>【百度雲盤】：http://www.linkbucks.com/0dbV
+<br>【百度密碼】：dsye
 
 <br>【節目名稱】：903 集雜志 2016-06-01（HD）
 <br>【節目主持】：急急子
@@ -133,6 +157,9 @@
 <br>【360雲盤】：http://adf.ly/1amuRP
 <br>【360雲盤】：http://www.linkbucks.com/0eyQ
 <br>【360密碼】：0823
+<br>【百度雲盤】：http://adf.ly/1an1aA
+<br>【百度雲盤】：http://www.linkbucks.com/0dZl
+<br>【百度密碼】：m5xi
 
 <br>【節目名稱】：903 生活日常 2016-06-01（HD）
 <br>【節目主持】：細So
