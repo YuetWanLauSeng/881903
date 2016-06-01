@@ -62,6 +62,14 @@
 <br>【360雲盤】：http://www.linkbucks.com/0g3n
 <br>【360密碼】：34bd
 
+<br>【節目名稱】：903 關公災難 2016-06-01（HD）
+<br>【節目主持】：劉翁 | 王迪詩
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：PR
+<br>【360雲盤】：http://adf.ly/1amndF
+<br>【360雲盤】：http://www.linkbucks.com/0gmL
+<br>【360密碼】：c751
+
 <br>【節目名稱】：903 毒檸王國 2016-06-01（HD）
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
@@ -69,3 +77,4 @@
 <br>【360雲盤】：http://adf.ly/1ammnn
 <br>【360雲盤】：http://www.linkbucks.com/0g1x
 <br>【360密碼】：1f16
+
