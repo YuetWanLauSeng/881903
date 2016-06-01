@@ -62,6 +62,14 @@
 <br>【360雲盤】：http://www.linkbucks.com/0hra
 <br>【360密碼】：d503
 
+<br>【節目名稱】：881 一點叮一叮 2016-06-01（HD）
+<br>【節目主持】：何飛鳳
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Lunch Special
+<br>【360雲盤】：http://adf.ly/1amuQ1
+<br>【360雲盤】：http://www.linkbucks.com/0ezX
+<br>【360密碼】：829d
+
 <br>【節目名稱】：903 叱咤樂壇 2016-06-01（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
@@ -110,3 +118,18 @@
 <br>【360雲盤】：http://www.linkbucks.com/0g1x
 <br>【360密碼】：1f16
 
+<br>【節目名稱】：903 集雜志 2016-06-01（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1amuSc
+<br>【360雲盤】：http://www.linkbucks.com/0eyK
+<br>【360密碼】：de79
+
+<br>【節目名稱】：881 人民大道中 2016-06-01（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1amuRP
+<br>【360雲盤】：http://www.linkbucks.com/0eyQ
+<br>【360密碼】：0823
