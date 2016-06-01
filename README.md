@@ -1,3 +1,11 @@
+<br>【節目名稱】：903 有誰共鳴 2016-06-01（HD） 
+<br>【節目主持】：Wasabi | 嘉賓主持
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song
+<br>【360雲盤】：http://adf.ly/1amqX0
+<br>【360雲盤】：http://www.linkbucks.com/0fsw
+<br>【360密碼】：78e8
+
 <br>【節目名稱】：903 早安，同學早! 2016-06-01（HD）
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
@@ -21,6 +29,14 @@
 <br>【360雲盤】：http://adf.ly/1amcfZ
 <br>【360雲盤】：http://www.linkbucks.com/0jlL
 <br>【360密碼】：e0e1
+
+<br>【節目名稱】：881 雲常開 2016-06-01（HD）
+<br>【節目主持】：陳志雲
+<br>【節目時間】：10:00 - 10:30
+<br>【檔案名稱】：Under the Sun
+<br>【360雲盤】：http://adf.ly/1amqdC
+<br>【360雲盤】：http://www.linkbucks.com/0fsA
+<br>【360密碼】：309b
 
 <br>【節目名稱】：881 1圈圈 2016-06-01（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -69,6 +85,22 @@
 <br>【360雲盤】：http://adf.ly/1amndF
 <br>【360雲盤】：http://www.linkbucks.com/0gmL
 <br>【360密碼】：c751
+
+<br>【節目名稱】：881 大玩派 2016-06-01（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1amqaR
+<br>【360雲盤】：http://www.linkbucks.com/0fsl
+<br>【360密碼】：ceeb
+
+<br>【節目名稱】：903 口水多過浪花 2016-06-01（HD）
+<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1amqfM
+<br>【360雲盤】：http://www.linkbucks.com/0fra
+<br>【360密碼】：11d5
 
 <br>【節目名稱】：903 毒檸王國 2016-06-01（HD）
 <br>【節目主持】：檸
