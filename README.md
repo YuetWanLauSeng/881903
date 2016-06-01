@@ -133,3 +133,11 @@
 <br>【360雲盤】：http://adf.ly/1amuRP
 <br>【360雲盤】：http://www.linkbucks.com/0eyQ
 <br>【360密碼】：0823
+
+<br>【節目名稱】：903 生活日常 2016-06-01（HD）
+<br>【節目主持】：細So
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：My Daily Life
+<br>【360雲盤】：http://adf.ly/1amwqg
+<br>【360雲盤】：http://www.linkbucks.com/0ec3
+<br>【360密碼】：fde4
