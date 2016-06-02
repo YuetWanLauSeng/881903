@@ -117,3 +117,43 @@
 <br>【360雲盤】：http://adf.ly/1aoZKR
 <br>【360雲盤】：http://www.linkbucks.com/0pkh
 <br>【360密碼】：2a61
+
+<br>【節目名稱】：903 集雜志 2016-06-02（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1aoicR
+<br>【360雲盤】：http://www.linkbucks.com/0kWS
+<br>【360密碼】：c2ff
+
+<br>【節目名稱】：881 人民大道中 2016-06-02（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1aoiXj
+<br>【360雲盤】：http://www.linkbucks.com/0kWk
+<br>【360密碼】：d96b
+
+<br>【節目名稱】：881 杏林茶 2016-06-02（HD）
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You
+<br>【360雲盤】：http://adf.ly/1aoiZv
+<br>【360雲盤】：http://www.linkbucks.com/0kWX
+<br>【360密碼】：eda4
+
+<br>【節目名稱】：903 生活日常 2016-06-02（HD）
+<br>【節目主持】：細So
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：My Daily Life
+<br>【360雲盤】：http://adf.ly/1aoiUq
+<br>【360雲盤】：http://www.linkbucks.com/0kWq
+<br>【360密碼】：5c0a
+
+<br>【節目名稱】：881 串 2016-06-02（HD）
+<br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream
+<br>【360雲盤】：http://adf.ly/1aoieR
+<br>【360雲盤】：http://www.linkbucks.com/0kWH
+<br>【360密碼】：914b
