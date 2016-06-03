@@ -21,6 +21,9 @@
 <br>【360雲盤】：http://adf.ly/1aoZdw
 <br>【360雲盤】：http://www.linkbucks.com/0piM
 <br>【360密碼】：6338
+<br>【百度雲盤】：http://adf.ly/1apZjA
+<br>【百度雲盤】：http://www.linkbucks.com/0WMs
+<br>【百度密碼】：sh5v
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-06-02（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -29,6 +32,9 @@
 <br>【360雲盤】：http://adf.ly/1aoZEZ
 <br>【360雲盤】：http://www.linkbucks.com/0plS
 <br>【360密碼】：aef4
+<br>【百度雲盤】：http://adf.ly/1apZe2
+<br>【百度雲盤】：http://www.linkbucks.com/0WQw
+<br>【百度密碼】：gs7a
 
 <br>【節目名稱】：881 雲常開 2016-06-02（HD）
 <br>【節目主持】：陳志雲
@@ -99,6 +105,9 @@
 <br>【360雲盤】：http://adf.ly/1aoZCr
 <br>【360雲盤】：http://www.linkbucks.com/0ple
 <br>【360密碼】：6036
+<br>【百度雲盤】：http://adf.ly/1apZXv
+<br>【百度雲盤】：http://www.linkbucks.com/0WdU
+<br>【百度密碼】：da6j
 
 <br>【節目名稱】：881 大玩派 2016-06-02（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -126,6 +135,9 @@
 <br>【360雲盤】：http://adf.ly/1aoZKR
 <br>【360雲盤】：http://www.linkbucks.com/0pkh
 <br>【360密碼】：2a61
+<br>【百度雲盤】：http://adf.ly/1apZmF
+<br>【百度雲盤】：http://www.linkbucks.com/0WMW
+<br>【百度密碼】：pupn
 
 <br>【節目名稱】：903 集雜志 2016-06-02（HD）
 <br>【節目主持】：急急子
@@ -161,6 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1aoiUq
 <br>【360雲盤】：http://www.linkbucks.com/0kWq
 <br>【360密碼】：5c0a
+<br>【百度雲盤】：http://adf.ly/1apZbn
+<br>【百度雲盤】：http://www.linkbucks.com/0WdH
+<br>【百度密碼】：j219
 
 <br>【節目名稱】：881 串 2016-06-02（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
