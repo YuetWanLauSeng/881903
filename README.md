@@ -62,6 +62,30 @@
 <br>【360雲盤】：http://www.linkbucks.com/0t77
 <br>【360密碼】：16fd
 
+<br>【節目名稱】：881 一點叮一叮 2016-06-03（HD）
+<br>【節目主持】：何飛鳳
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Lunch Special
+<br>【360雲盤】：http://adf.ly/1aqKfw
+<br>【360雲盤】：http://www.linkbucks.com/0tWR
+<br>【360密碼】：63fb
+
+<br>【節目名稱】：903 叱咤樂壇 2016-06-03（HD）
+<br>【節目主持】：謝茜嘉 | 梁文禮
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1aqKjz
+<br>【360雲盤】：http://www.linkbucks.com/0tV7
+<br>【360密碼】：ba71
+
+<br>【節目名稱】：881 人生交叉盤 2016-06-03（HD）
+<br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade
+<br>【360雲盤】：http://adf.ly/1aqKhu
+<br>【360雲盤】：http://www.linkbucks.com/0tWH
+<br>【360密碼】：9dfb
+
 <br>【節目名稱】：903 關公災難 2016-06-03（HD）
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
@@ -69,6 +93,14 @@
 <br>【360雲盤】：http://adf.ly/1aqHlo
 <br>【360雲盤】：http://www.linkbucks.com/0tqU
 <br>【360密碼】：8054
+
+<br>【節目名稱】：881 大玩派 2016-06-03（HD）
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box
+<br>【360雲盤】：http://adf.ly/1aqKlo
+<br>【360雲盤】：http://www.linkbucks.com/0tV0
+<br>【360密碼】：ee61
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-03（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -85,3 +117,11 @@
 <br>【360雲盤】：http://adf.ly/1aqHdx
 <br>【360雲盤】：http://www.linkbucks.com/0trS
 <br>【360密碼】：bc02
+
+<br>【節目名稱】：903 集雜志 2016-06-03（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1aqKdE
+<br>【360雲盤】：http://www.linkbucks.com/0tWX
+<br>【360密碼】：b9eb
