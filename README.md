@@ -53,3 +53,19 @@
 <br>【360雲盤】：http://adf.ly/1aqBHS
 <br>【360雲盤】：http://www.linkbucks.com/0uUY
 <br>【360密碼】：0d7f
+
+<br>【節目名稱】：881 十八樓C座 2016-06-03（HD）
+<br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C
+<br>【360雲盤】：http://adf.ly/1aqGBN
+<br>【360雲盤】：http://www.linkbucks.com/0t77
+<br>【360密碼】：16fd
+
+<br>【節目名稱】：903 口水多過浪花 2016-06-03（HD）
+<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio
+<br>【360雲盤】：http://adf.ly/1aqGDY
+<br>【360雲盤】：http://www.linkbucks.com/0t72
+<br>【360密碼】：879e
