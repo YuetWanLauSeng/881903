@@ -62,6 +62,14 @@
 <br>【360雲盤】：http://www.linkbucks.com/0t77
 <br>【360密碼】：16fd
 
+<br>【節目名稱】：903 關公災難 2016-06-03（HD）
+<br>【節目主持】：劉翁 | 王迪詩
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：PR
+<br>【360雲盤】：http://adf.ly/1aqHlo
+<br>【360雲盤】：http://www.linkbucks.com/0tqU
+<br>【360密碼】：8054
+
 <br>【節目名稱】：903 口水多過浪花 2016-06-03（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
@@ -69,3 +77,11 @@
 <br>【360雲盤】：http://adf.ly/1aqGDY
 <br>【360雲盤】：http://www.linkbucks.com/0t72
 <br>【360密碼】：879e
+
+<br>【節目名稱】：903 毒檸王國 2016-06-03（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Dokureioukoku
+<br>【360雲盤】：http://adf.ly/1aqHdx
+<br>【360雲盤】：http://www.linkbucks.com/0trS
+<br>【360密碼】：bc02
