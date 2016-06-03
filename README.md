@@ -53,6 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1aqBHS
 <br>【360雲盤】：http://www.linkbucks.com/0uUY
 <br>【360密碼】：0d7f
+<br>【百度雲盤】：http://adf.ly/1aqNa1
+<br>【百度雲盤】：http://www.linkbucks.com/0sZ1
+<br>【百度密碼】：kd13
 
 <br>【節目名稱】：881 十八樓C座 2016-06-03（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -61,6 +64,9 @@
 <br>【360雲盤】：http://adf.ly/1aqGBN
 <br>【360雲盤】：http://www.linkbucks.com/0t77
 <br>【360密碼】：16fd
+<br>【百度雲盤】：http://adf.ly/1aqNNl
+<br>【百度雲盤】：http://www.linkbucks.com/0scF
+<br>【百度密碼】：97m2
 
 <br>【節目名稱】：881 一點叮一叮 2016-06-03（HD）
 <br>【節目主持】：何飛鳳
