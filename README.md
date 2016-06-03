@@ -13,6 +13,9 @@
 <br>【360雲盤】：http://adf.ly/1aoQUc
 <br>【360雲盤】：http://www.linkbucks.com/0b6n
 <br>【360密碼】：c6e6
+<br>【百度雲盤】：http://adf.ly/1apZqD
+<br>【百度雲盤】：http://www.linkbucks.com/0WK6
+<br>【百度密碼】：3t8i
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-06-02（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
