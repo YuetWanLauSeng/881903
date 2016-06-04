@@ -203,6 +203,9 @@
 <br>【360雲盤】：http://adf.ly/1arTEF
 <br>【360雲盤】：http://www.linkbucks.com/SBny
 <br>【360密碼】：ae8d
+<br>【百度雲盤】：http://adf.ly/1arXb3
+<br>【百度雲盤】：http://www.linkbucks.com/0yNa
+<br>【百度密碼】：c217
 
 <br>【節目名稱】：881 串 2016-06-03（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
@@ -233,6 +236,9 @@
 <br>【360雲盤】：http://adf.ly/1arTGV
 <br>【360雲盤】：http://www.linkbucks.com/SBno
 <br>【360密碼】：2d2a
+<br>【百度雲盤】：http://adf.ly/1arXe6
+<br>【百度雲盤】：http://www.linkbucks.com/0yNR
+<br>【百度密碼】：fr72
 
 <br>【節目名稱】：881 光明頂 2016-06-03（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
@@ -263,6 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1arTAu
 <br>【360雲盤】：http://www.linkbucks.com/SBn5
 <br>【360密碼】：923b
+<br>【百度雲盤】：http://adf.ly/1arXik
+<br>【百度雲盤】：http://www.linkbucks.com/0yM9
+<br>【百度密碼】：h5v9
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-03（HD）
 <br>【節目主持】：Colin
@@ -271,3 +280,6 @@
 <br>【360雲盤】：http://adf.ly/1arT7D
 <br>【360雲盤】：http://www.linkbucks.com/SBoG
 <br>【360密碼】：c715
+<br>【百度雲盤】：http://adf.ly/1arXgB
+<br>【百度雲盤】：http://www.linkbucks.com/0yNG
+<br>【百度密碼】：8yub
