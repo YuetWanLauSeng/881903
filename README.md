@@ -45,6 +45,10 @@
 <br>【360雲盤】：http://adf.ly/1arnfH
 <br>【360雲盤】：http://www.linkbucks.com/gyft
 <br>【360密碼】：8167
+<br>【百度雲盤】：http://adf.ly/1arqSU
+<br>【百度雲盤】：http://www.linkbucks.com/aHJ0
+<br>【百度密碼】：abu9
+
 
 <br>【節目名稱】：903 咪芝蓮 2016-06-04（HD）
 <br>【節目主持】：小儀
@@ -53,6 +57,10 @@
 <br>【360雲盤】：http://adf.ly/1arnhi
 <br>【360雲盤】：http://www.linkbucks.com/ghHZ
 <br>【360密碼】：5dbc
+<br>【百度雲盤】：http://adf.ly/1arqc5
+<br>【百度雲盤】：http://www.linkbucks.com/ZyYr
+<br>【百度密碼】：zdka
+
 
 <br>【節目名稱】：903 咆哮山莊 2016-06-04（HD）
 <br>【節目主持】：903 DJ
@@ -61,3 +69,6 @@
 <br>【360雲盤】：http://adf.ly/1arndc
 <br>【360雲盤】：http://www.linkbucks.com/g324
 <br>【360密碼】：6ff4
+<br>【百度雲盤】：http://adf.ly/1arqZB
+<br>【百度雲盤】：http://www.linkbucks.com/aAqY
+<br>【百度密碼】：z4sb
