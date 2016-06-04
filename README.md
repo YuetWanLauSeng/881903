@@ -196,6 +196,14 @@
 <br>【百度雲盤】：http://www.linkbucks.com/039E
 <br>【百度密碼】：bh83
 
+<br>【節目名稱】：903 生活日常 2016-06-03（HD）
+<br>【節目主持】：細So
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：My Daily Life
+<br>【360雲盤】：http://adf.ly/1arTEF
+<br>【360雲盤】：http://www.linkbucks.com/SBny
+<br>【360密碼】：ae8d
+
 <br>【節目名稱】：881 串 2016-06-03（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
@@ -215,6 +223,16 @@
 <br>【360雲盤】：http://www.linkbucks.com/027I
 <br>【360密碼】：ef04
 <br>【百度雲盤】：http://adf.ly/1aqfYq
+<br>【百度雲盤】：http://www.linkbucks.com/025n
+<br>【百度密碼】：hipy
+
+<br>【節目名稱】：903 雲妮鍾情 2016-06-03（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1arTGV
+<br>【360雲盤】：http://www.linkbucks.com/SBno
+<br>【360密碼】：2d2a
 
 <br>【節目名稱】：881 光明頂 2016-06-03（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
@@ -226,8 +244,6 @@
 <br>【百度雲盤】：http://adf.ly/1aqg8G
 <br>【百度雲盤】：http://www.linkbucks.com/02yK
 <br>【百度密碼】：kx2g
-<br>【百度雲盤】：http://www.linkbucks.com/025n
-<br>【百度密碼】：hipy
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-03（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
@@ -239,3 +255,19 @@
 <br>【百度雲盤】：http://adf.ly/1arPyj
 <br>【百度雲盤】：http://www.linkbucks.com/BYD4z
 <br>【百度密碼】：xqwb
+
+<br>【節目名稱】：881 月光光呵呵呵 2016-06-03（HD）
+<br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
+<br>【節目時間】：00:30 - 01:30
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss
+<br>【360雲盤】：http://adf.ly/1arTAu
+<br>【360雲盤】：http://www.linkbucks.com/SBn5
+<br>【360密碼】：923b
+
+<br>【節目名稱】：903 廣東爆谷 2016-06-03（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1arT7D
+<br>【360雲盤】：http://www.linkbucks.com/SBoG
+<br>【360密碼】：c715
