@@ -126,6 +126,17 @@
 <br>【百度雲盤】：http://www.linkbucks.com/0621
 <br>【百度密碼】：n7yb
 
+<br>【節目名稱】：903 西瓜大發 ! 2016-06-04（HD）
+<br>【節目主持】：西瓜
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：WonderMelon !
+<br>【360雲盤】：http://adf.ly/1asHwl
+<br>【360雲盤】：http://www.linkbucks.com/05c6
+<br>【360密碼】：7a98
+<br>【百度雲盤】：http://adf.ly/1asIET
+<br>【百度雲盤】：http://www.linkbucks.com/05be
+<br>【百度密碼】：xh4j
+
 <br>【節目名稱】：881903 一切從音樂開始 2016-05-28（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
