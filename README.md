@@ -137,6 +137,23 @@
 <br>【百度雲盤】：http://www.linkbucks.com/05be
 <br>【百度密碼】：xh4j
 
+<br>【節目名稱】：881 雷霆音樂圈 2016-06-04（HD）
+<br>【節目主持】：楊美琪
+<br>【節目時間】：20:00 - 23:00
+<br>【檔案名稱】：881 Music Station
+<br>【360雲盤】：http://adf.ly/1asQ7Z
+<br>【360雲盤】：http://www.linkbucks.com/04Eo
+<br>【360密碼】：ce67
+
+<br>【節目名稱】：903 Chi Chung's Class 2016-06-04（HD）
+<br>【節目主持】：黃志淙
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Chi Chung's Class
+<br>【360雲盤】：http://adf.ly/1asQkA
+<br>【360雲盤】：http://www.linkbucks.com/04A7
+<br>【360密碼】：99a4
+
+
 <br>【節目名稱】：881903 一切從音樂開始 2016-05-28（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
