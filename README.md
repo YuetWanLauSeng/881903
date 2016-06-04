@@ -92,3 +92,25 @@
 <br>【百度雲盤】：http://adf.ly/1arqZB
 <br>【百度雲盤】：http://www.linkbucks.com/aAqY
 <br>【百度密碼】：z4sb
+
+<br>【節目名稱】：881 1圈圈 2016-06-04（HD）
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：13:00 - 17:00
+<br>【檔案名稱】：Circles
+<br>【360雲盤】：http://adf.ly/1aryPA
+<br>【360雲盤】：http://www.linkbucks.com/08Wu
+<br>【360密碼】：b887
+<br>【百度雲盤】：http://adf.ly/1aryTE
+<br>【百度雲盤】：http://www.linkbucks.com/08WO
+<br>【百度密碼】：yku6
+
+<br>【節目名稱】：903 903 豁達推介 2016-06-04（HD）
+<br>【節目主持】：梁文禮
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Quote Chart
+<br>【360雲盤】：http://adf.ly/1aryQR
+<br>【360雲盤】：http://www.linkbucks.com/08Wd
+<br>【360密碼】：0564
+<br>【百度雲盤】：http://adf.ly/1aryVJ
+<br>【百度雲盤】：http://www.linkbucks.com/08WA
+<br>【百度密碼】：zui4
