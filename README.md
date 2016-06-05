@@ -140,3 +140,33 @@
 <br>【百度雲盤】：http://adf.ly/1auA0P
 <br>【百度雲盤】：http://www.linkbucks.com/1G4e
 <br>【百度密碼】：rehj
+
+<br>【節目名稱】：881 葛民教育 2016-06-05（HD）
+<br>【節目主持】：葛民輝
+<br>【節目時間】：23:00 - 23:30
+<br>【檔案名稱】：Kot’s ology
+<br>【360雲盤】：http://adf.ly/1aung6
+<br>【360雲盤】：http://www.linkbucks.com/1QLr
+<br>【360密碼】：cddc
+<br>【百度雲盤】：http://adf.ly/1aunkt
+<br>【百度雲盤】：http://www.linkbucks.com/1QKo
+<br>【百度密碼】：bfgh
+
+<br>【節目名稱】：903 短期租約 2016-06-05（HD）
+<br>【節目主持】：Wasabi
+<br>【節目時間】：23:00 - 02:00
+<br>【檔案名稱】：Short-term Lease
+<br>【360雲盤】：http://adf.ly/1auni2
+<br>【360雲盤】：http://www.linkbucks.com/1QLd
+<br>【360密碼】：7661
+
+<br>【節目名稱】：881 寫生活 2016-06-05（HD）
+<br>【節目主持】：881 主持人
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Bedtime Readings
+<br>【360雲盤】：http://adf.ly/1aune6
+<br>【360雲盤】：http://www.linkbucks.com/1QMP
+<br>【360密碼】：1648
+<br>【百度雲盤】：http://adf.ly/1aunjo
+<br>【百度雲盤】：http://www.linkbucks.com/1QLN
+<br>【百度密碼】：6a66
