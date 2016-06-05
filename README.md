@@ -161,6 +161,23 @@
 <br>【360雲盤】：http://www.linkbucks.com/0x9u
 <br>【360密碼】：6cd7
 
+<br>【節目名稱】：881 發式生活 2016-06-04（HD） 
+<br>【節目主持】：余宜發
+<br>【節目時間】：00:30 - 02:00
+<br>【檔案名稱】：Fat’s Lifestyle
+<br>【360雲盤】：http://adf.ly/1atB2J
+<br>【360雲盤】：http://www.linkbucks.com/0xeh
+<br>【360密碼】：45d2
+
+<br>【節目名稱】：903 皇牌出場 2016-06-04（HD）
+<br>【節目主持】：Marco | Keyman
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Losing Eleven
+<br>【360雲盤】：http://adf.ly/1atB5c
+<br>【360雲盤】：http://www.linkbucks.com/0xd3
+<br>【360密碼】：9a6b
+
+--------------------------------
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-05-28（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
