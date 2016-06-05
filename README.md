@@ -137,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1asQ7Z
 <br>【360雲盤】：http://www.linkbucks.com/04Eo
 <br>【360密碼】：ce67
+<br>【百度雲盤】：http://adf.ly/1atFOp
+<br>【百度雲盤】：http://www.linkbucks.com/0unE
+<br>【百度密碼】：y7ux
 
 <br>【節目名稱】：903 Chi Chung's Class 2016-06-04（HD）
 <br>【節目主持】：黃志淙
@@ -145,6 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1asQkA
 <br>【360雲盤】：http://www.linkbucks.com/04A7
 <br>【360密碼】：99a4
+<br>【百度雲盤】：http://adf.ly/1atFSF
+<br>【百度雲盤】：http://www.linkbucks.com/0tFt
+<br>【百度密碼】：h6j1
 
 <br>【節目名稱】：903 公子會 2016-06-04（HD）
 <br>【節目主持】：森美
