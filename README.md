@@ -135,3 +135,19 @@
 <br>【360雲盤】：http://www.linkbucks.com/1Tsq
 <br>【360密碼】：3ac8
 <br>【城通雲盤】：http://www.ctfile.com/info/vTU156817
+
+<br>【節目名稱】：903 集雜志 2016-06-06（HD）
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine
+<br>【360雲盤】：http://adf.ly/1avvVu
+<br>【360雲盤】：http://www.linkbucks.com/1HxO
+<br>【360密碼】：f3eb
+
+<br>【節目名稱】：881 人民大道中 2016-06-06（HD）
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out
+<br>【360雲盤】：http://adf.ly/1avvTh
+<br>【360雲盤】：http://www.linkbucks.com/1H2I
+<br>【360密碼】：1e3a
