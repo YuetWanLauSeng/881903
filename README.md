@@ -189,6 +189,9 @@
 <br>【360雲盤】：http://adf.ly/1aw40v
 <br>【360雲盤】：http://www.linkbucks.com/1Gtz
 <br>【360密碼】：04a8
+<br>【百度雲盤】：http://adf.ly/1aw6wt
+<br>【百度雲盤】：http://www.linkbucks.com/1EWp
+<br>【百度密碼】：m66x
 
 <br>【節目名稱】：903 生活日常 2016-06-06（HD）
 <br>【節目主持】：細So
@@ -205,3 +208,6 @@
 <br>【360雲盤】：http://adf.ly/1aw3ye
 <br>【360雲盤】：http://www.linkbucks.com/1Gt1
 <br>【360密碼】：72a2
+<br>【百度雲盤】：http://adf.ly/1aw6un
+<br>【百度雲盤】：http://www.linkbucks.com/1EXC
+<br>【百度密碼】：33fb
