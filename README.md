@@ -5,6 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1av8pL
 <br>【360雲盤】：http://www.linkbucks.com/1KKB
 <br>【360密碼】：d5dc
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
 <br>【城通雲盤】：http://www.ctfile.com/info/EUY156766
 
 <br>【節目名稱】：903 早安，同學早! 2016-06-06（HD）
@@ -14,6 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1av8ek
 <br>【360雲盤】：http://www.linkbucks.com/1KLJ
 <br>【360密碼】：9342
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
 <br>【城通雲盤】：http://www.ctfile.com/info/ODH156781
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-06-06（HD）
@@ -23,6 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1av8iN
 <br>【360雲盤】：http://www.linkbucks.com/1KKn
 <br>【360密碼】：85c1
+<br>【百度雲盤】：http://adf.ly/1avzNq
+<br>【百度雲盤】：http://www.linkbucks.com/1HLQ
+<br>【百度密碼】：8jpm
 <br>【城通雲盤】：http://www.ctfile.com/info/FhM156775
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-06-06（HD）
@@ -32,6 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1av8mA
 <br>【360雲盤】：http://www.linkbucks.com/1KKV
 <br>【360密碼】：a42c
+<br>【百度雲盤】：http://adf.ly/1avzdQ
+<br>【百度雲盤】：http://www.linkbucks.com/1HJh
+<br>【百度密碼】：irnd
 <br>【城通雲盤】：http://www.ctfile.com/info/osr156772
 
 <br>【節目名稱】：881 雲常開 2016-06-06（HD）
@@ -41,6 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1av8rg
 <br>【360雲盤】：http://www.linkbucks.com/1KJw
 <br>【360密碼】：bb6b
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
 <br>【城通雲盤】：http://www.ctfile.com/info/fJl156760
 
 <br>【節目名稱】：881 1圈圈 2016-06-06（HD）
@@ -50,6 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1av8tm
 <br>【360雲盤】：http://www.linkbucks.com/1KJc
 <br>【360密碼】：332a
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
 <br>【城通雲盤】：http://www.ctfile.com/info/eGY156790
 
 <br>【節目名稱】：903 早霸王 2016-06-06（HD）
@@ -71,6 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1avGPy
 <br>【360雲盤】：http://www.linkbucks.com/1Im9
 <br>【360密碼】：b883
+<br>【百度雲盤】：http://adf.ly/1avzt0
+<br>【百度雲盤】：http://www.linkbucks.com/1HIV
+<br>【百度密碼】：gc4p
 <br>【城通雲盤】：http://www.ctfile.com/info/c1G156802
 
 <br>【節目名稱】：881 一點叮一叮 2016-06-06（HD）
@@ -80,6 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1avb6d
 <br>【360雲盤】：http://www.linkbucks.com/1Uj7
 <br>【360密碼】：bc7b
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
 <br>【城通雲盤】：http://www.ctfile.com/info/iW9156778
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-06（HD）
@@ -89,6 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1avbBh
 <br>【360雲盤】：http://www.linkbucks.com/1Ujf
 <br>【360密碼】：0cd4
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
 <br>【城通雲盤】：http://www.ctfile.com/info/eKO156796
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-06（HD）
@@ -98,6 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1avb9N
 <br>【360雲盤】：http://www.linkbucks.com/1Ujj
 <br>【360密碼】：94ca
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
 <br>【城通雲盤】：http://www.ctfile.com/info/aGr156787
 
 <br>【節目名稱】：903 關公災難 2016-06-06（HD）
@@ -107,6 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1avb4H
 <br>【360雲盤】：http://www.linkbucks.com/1Uke
 <br>【360密碼】：4ebe
+<br>【百度雲盤】：http://adf.ly/1avzgz
+<br>【百度雲盤】：http://www.linkbucks.com/1HJJ
+<br>【百度密碼】：d7r2
 <br>【城通雲盤】：http://www.ctfile.com/info/TzD156769
 
 <br>【節目名稱】：881 大玩派 2016-06-06（HD）
@@ -116,6 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1avb0H
 <br>【360雲盤】：http://www.linkbucks.com/1Uk2
 <br>【360密碼】：445b
+<br>【百度雲盤】：http://adf.ly/1avzZU
+<br>【百度雲盤】：http://www.linkbucks.com/1HJw
+<br>【百度密碼】：wk43
 <br>【城通雲盤】：http://www.ctfile.com/info/E0t156763
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-06（HD）
@@ -125,6 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1avh0S
 <br>【360雲盤】：http://www.linkbucks.com/1T6D
 <br>【360密碼】：50f3
+<br>【百度雲盤】：http://adf.ly/1avz1o
+<br>【百度雲盤】：http://www.linkbucks.com/1HNw
+<br>【百度密碼】：kyk2
 <br>【城通雲盤】：http://www.ctfile.com/info/R8R156814
 
 <br>【節目名稱】：903 毒檸王國 2016-06-06（HD）
@@ -134,6 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1avixc
 <br>【360雲盤】：http://www.linkbucks.com/1Tsq
 <br>【360密碼】：3ac8
+<br>【百度雲盤】：http://adf.ly/1avzij
+<br>【百度雲盤】：http://www.linkbucks.com/1HIc
+<br>【百度密碼】：gwnn
 <br>【城通雲盤】：http://www.ctfile.com/info/vTU156817
 
 <br>【節目名稱】：903 集雜志 2016-06-06（HD）
@@ -143,6 +185,10 @@
 <br>【360雲盤】：http://adf.ly/1avvVu
 <br>【360雲盤】：http://www.linkbucks.com/1HxO
 <br>【360密碼】：f3eb
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
+<br>【城通雲盤】：
 
 <br>【節目名稱】：881 人民大道中 2016-06-06（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -151,3 +197,7 @@
 <br>【360雲盤】：http://adf.ly/1avvTh
 <br>【360雲盤】：http://www.linkbucks.com/1H2I
 <br>【360密碼】：1e3a
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
+<br>【城通雲盤】：
