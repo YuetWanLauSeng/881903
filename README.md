@@ -122,3 +122,13 @@
 <br>【360雲盤】：http://adf.ly/1avh0S
 <br>【360雲盤】：http://www.linkbucks.com/1T6D
 <br>【360密碼】：50f3
+<br>【城通雲盤】：http://www.ctfile.com/info/R8R156814
+
+<br>【節目名稱】：903 毒檸王國 2016-06-06（HD）
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Dokureioukoku
+<br>【360雲盤】：http://adf.ly/1avixc
+<br>【360雲盤】：http://www.linkbucks.com/1Tsq
+<br>【360密碼】：3ac8
+<br>【城通雲盤】：http://www.ctfile.com/info/vTU156817
