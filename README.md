@@ -211,3 +211,30 @@
 <br>【百度雲盤】：http://adf.ly/1aw6un
 <br>【百度雲盤】：http://www.linkbucks.com/1EXC
 <br>【百度密碼】：33fb
+
+<br>【節目名稱】：881 書.情.歌 2016-06-06（HD）
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time
+<br>【360雲盤】：http://adf.ly/1awA9R
+<br>【360雲盤】：http://www.linkbucks.com/1Dtp
+<br>【360密碼】：e9a0
+
+<br>【節目名稱】：903 雲妮鍾情 2016-06-06（HD）
+<br>【節目主持】：Vani
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Vanila Sky
+<br>【360雲盤】：http://adf.ly/1awABz
+<br>【360雲盤】：http://www.linkbucks.com/1DtQ
+<br>【360密碼】：1608
+
+<br>【節目名稱】：881 光明頂 2016-06-06（HD）
+<br>【節目主持】：陶傑 | 嘉賓主持
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit
+<br>【360雲盤】：http://adf.ly/1awAoW
+<br>【360雲盤】：http://www.linkbucks.com/1Dok
+<br>【360密碼】：7fa8
+<br>【百度雲盤】：http://adf.ly/1awBCf
+<br>【百度雲盤】：http://www.linkbucks.com/1Dlg
+<br>【百度密碼】：s5jn
