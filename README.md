@@ -59,6 +59,9 @@
 <br>【360雲盤】：http://adf.ly/1av8vp
 <br>【360雲盤】：http://www.linkbucks.com/1KJO
 <br>【360密碼】：34cb
+<br>【百度雲盤】：http://adf.ly/1avqA1
+<br>【百度雲盤】：http://www.linkbucks.com/rPpR
+<br>【百度密碼】：yecc
 <br>【城通雲盤】：http://www.ctfile.com/info/eAi156784
 
 <br>【節目名稱】：881 十八樓C座 2016-06-06（HD）
