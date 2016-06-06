@@ -238,3 +238,27 @@
 <br>【百度雲盤】：http://adf.ly/1awBCf
 <br>【百度雲盤】：http://www.linkbucks.com/1Dlg
 <br>【百度密碼】：s5jn
+
+<br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-06（HD）
+<br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：St. ILUB Gay Lim Yeah How
+<br>【360雲盤】：http://adf.ly/1awjzx
+<br>【360雲盤】：http://www.linkbucks.com/1QVP
+<br>【360密碼】：2244
+
+<br>【節目名稱】：881 月光光呵呵呵 2016-06-06（HD）
+<br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
+<br>【節目時間】：00:30 - 01:30
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss
+<br>【360雲盤】：http://adf.ly/1awjyK
+<br>【360雲盤】：http://www.linkbucks.com/1QVU
+<br>【360密碼】：1f5a
+
+<br>【節目名稱】：903 廣東爆谷 2016-06-06（HD）
+<br>【節目主持】：Colin
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Canto Pop
+<br>【360雲盤】：http://adf.ly/1awjwr
+<br>【360雲盤】：http://www.linkbucks.com/1QVZ
+<br>【360密碼】：7f7e
