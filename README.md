@@ -53,3 +53,11 @@
 <br>【360雲盤】：http://adf.ly/1av8vp
 <br>【360雲盤】：http://www.linkbucks.com/1KJO
 <br>【360密碼】：34cb
+
+<br>【節目名稱】：881 十八樓C座 2016-06-06（HD）
+<br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C
+<br>【360雲盤】：http://adf.ly/1avGPy
+<br>【360雲盤】：http://www.linkbucks.com/1Im9
+<br>【360密碼】：b883
