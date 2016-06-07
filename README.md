@@ -159,17 +159,17 @@
 <br>【360雲盤】：http://adf.ly/1axbgA
 <br>【360雲盤】：http://www.linkbucks.com/1RaX
 <br>【360密碼】：d50a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1axhdv
+<br>【百度雲盤】：http://www.linkbucks.com/1PLO
+<br>【百度密碼】：au8g
 
 <br>【節目名稱】：903 集雜志 2016-06-07（HD）
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1axhY8
+<br>【360雲盤】：http://www.linkbucks.com/1PLg
+<br>【360密碼】：4900
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -178,9 +178,9 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1axhaM
+<br>【360雲盤】：http://www.linkbucks.com/1PLZ
+<br>【360密碼】：dbdc
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
