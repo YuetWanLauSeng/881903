@@ -200,20 +200,23 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1aziKR
+<br>【360雲盤】：http://www.linkbucks.com/1fqg
+<br>【360密碼】：895e
+<br>【百度雲盤】：http://adf.ly/1azigU
+<br>【百度雲盤】：http://www.linkbucks.com/1fUD
+<br>【百度密碼】：7a8j
 
 <br>【節目名稱】：881 串 2016-06-08（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1azf5B
+<br>【360雲盤】：http://www.linkbucks.com/1hLY
+<br>【360密碼】：f115
+<br>【百度雲盤】：http://adf.ly/1azijP
+<br>【百度雲盤】：http://www.linkbucks.com/1fSb
+<br>【百度密碼】：2xiz
 
 <br>【節目名稱】：881 書.情.歌 2016-06-08（HD）
 <br>【節目主持】：葉宇澄
