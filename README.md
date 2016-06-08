@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1aysuf
 <br>【360雲盤】：http://www.linkbucks.com/1UHX
 <br>【360密碼】：a8a0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1az32C
+<br>【百度雲盤】：http://www.linkbucks.com/1pLh
+<br>【百度密碼】：27bt
 
 <br>【節目名稱】：903 早安，同學早! 2016-06-08（HD）
 <br>【節目主持】：西瓜
@@ -16,9 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1ayskm
 <br>【360雲盤】：http://www.linkbucks.com/1UKD
 <br>【360密碼】：49b4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1az36k
+<br>【百度雲盤】：http://www.linkbucks.com/1pKA
+<br>【百度密碼】：zxyy
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-06-08（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
@@ -27,9 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1aysnz
 <br>【360雲盤】：http://www.linkbucks.com/1UI0
 <br>【360密碼】：7bc1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1az2yF
+<br>【百度雲盤】：http://www.linkbucks.com/1pNJ
+<br>【百度密碼】：vysx
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-06-08（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -38,9 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1aysqT
 <br>【360雲盤】：http://www.linkbucks.com/1UH5
 <br>【360密碼】：8e07
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1az305
+<br>【百度雲盤】：http://www.linkbucks.com/1pMC
+<br>【百度密碼】：e2a5
 
 <br>【節目名稱】：881 雲常開 2016-06-08（HD）
 <br>【節目主持】：陳志雲
@@ -49,9 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1ayssN
 <br>【360雲盤】：http://www.linkbucks.com/1UHs
 <br>【360密碼】：f262
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1az2uJ
+<br>【百度雲盤】：http://www.linkbucks.com/1pOh
+<br>【百度密碼】：tc6a
 
 <br>【節目名稱】：881 1圈圈 2016-06-08（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -60,9 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1aysyu
 <br>【360雲盤】：http://www.linkbucks.com/AjFp1
 <br>【360密碼】：949c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1az3Cb
+<br>【百度雲盤】：http://www.linkbucks.com/1o2F
+<br>【百度密碼】：mxir
 
 <br>【節目名稱】：903 早霸王 2016-06-08（HD）
 <br>【節目主持】：森美 | 小儀
@@ -71,9 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1aytPq
 <br>【360雲盤】：http://www.linkbucks.com/BY10K
 <br>【360密碼】：9c64
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1az34c
+<br>【百度雲盤】：http://www.linkbucks.com/1pKo
+<br>【百度密碼】：xwhk
 
 <br>【節目名稱】：881 十八樓C座 2016-06-08（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -82,9 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1aywJU
 <br>【360雲盤】：http://www.linkbucks.com/1sC4
 <br>【360密碼】：3592
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1az3Fk
+<br>【百度雲盤】：http://www.linkbucks.com/1o1I
+<br>【百度密碼】：v7i6
 
 <br>【節目名稱】：881 一點叮一叮 2016-06-08（HD）
 <br>【節目主持】：何飛鳳
