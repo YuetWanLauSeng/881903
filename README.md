@@ -93,6 +93,9 @@
 <br>【360雲盤】：http://adf.ly/1az93W
 <br>【360雲盤】：http://www.linkbucks.com/1mXp
 <br>【360密碼】：20a2
+<br>【百度雲盤】：http://adf.ly/1azDU8
+<br>【百度雲盤】：http://www.linkbucks.com/1iry
+<br>【百度密碼】：fgw9
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-08（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
@@ -101,6 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1az8zC
 <br>【360雲盤】：http://www.linkbucks.com/1mPw
 <br>【360密碼】：42e8
+<br>【百度雲盤】：http://adf.ly/1azDP3
+<br>【百度雲盤】：http://www.linkbucks.com/1jfM
+<br>【百度密碼】：bequ
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-08（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -109,6 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1az95R
 <br>【360雲盤】：http://www.linkbucks.com/1mQU
 <br>【360密碼】：56c9
+<br>【百度雲盤】：http://adf.ly/1azDW2
+<br>【百度雲盤】：http://www.linkbucks.com/1jde
+<br>【百度密碼】：rmg1
 
 <br>【節目名稱】：903 關公災難 2016-06-08（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -117,9 +126,9 @@
 <br>【360雲盤】：http://adf.ly/1az98B
 <br>【360雲盤】：http://www.linkbucks.com/1mKD
 <br>【360密碼】：d03a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1azDRk
+<br>【百度雲盤】：http://www.linkbucks.com/1itA
+<br>【百度密碼】：w8rc
 
 <br>【節目名稱】：881 大玩派 2016-06-08（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
