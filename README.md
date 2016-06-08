@@ -178,6 +178,9 @@
 <br>【360雲盤】：http://adf.ly/1axhaM
 <br>【360雲盤】：http://www.linkbucks.com/1PLZ
 <br>【360密碼】：dbdc
+<br>【百度雲盤】：http://adf.ly/1ayYna
+<br>【百度雲盤】：http://www.linkbucks.com/1Ntc
+<br>【百度密碼】：qe77
 
 <br>【節目名稱】：881 杏林茶 2016-06-07（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -186,6 +189,9 @@
 <br>【360雲盤】：http://adf.ly/1axwbE
 <br>【360雲盤】：http://www.linkbucks.com/1KkD
 <br>【360密碼】：42fa
+<br>【百度雲盤】：http://adf.ly/1ayYeS
+<br>【百度雲盤】：http://www.linkbucks.com/1No9
+<br>【百度密碼】：2ayc
 
 <br>【節目名稱】：903 生活日常 2016-06-07（HD）
 <br>【節目主持】：細So
@@ -202,6 +208,9 @@
 <br>【360雲盤】：http://adf.ly/1axwdS
 <br>【360雲盤】：http://www.linkbucks.com/1Kjx
 <br>【360密碼】：80c6
+<br>【百度雲盤】：http://adf.ly/1ayYtR
+<br>【百度雲盤】：http://www.linkbucks.com/1Ntw
+<br>【百度密碼】：js3z
 
 <br>【節目名稱】：881 書.情.歌 2016-06-07（HD）
 <br>【節目主持】：葉宇澄
@@ -226,6 +235,9 @@
 <br>【360雲盤】：http://adf.ly/1axwXV
 <br>【360雲盤】：http://www.linkbucks.com/1Kkx
 <br>【360密碼】：e7dc
+<br>【百度雲盤】：http://adf.ly/1ayYr5
+<br>【百度雲盤】：http://www.linkbucks.com/1Ntm
+<br>【百度密碼】：7fmy
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-07（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
@@ -234,9 +246,9 @@
 <br>【360雲盤】：http://adf.ly/1ayTrQ
 <br>【360雲盤】：http://www.linkbucks.com/1P27
 <br>【360密碼】：a197
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ayYk7
+<br>【百度雲盤】：http://www.linkbucks.com/1NtG
+<br>【百度密碼】：xmy7
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-07（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
@@ -245,9 +257,6 @@
 <br>【360雲盤】：http://adf.ly/1ayTms
 <br>【360雲盤】：http://www.linkbucks.com/1P3G
 <br>【360密碼】：2bdd
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-07（HD）
 <br>【節目主持】：Colin
@@ -256,6 +265,3 @@
 <br>【360雲盤】：http://adf.ly/1ayTkn
 <br>【360雲盤】：http://www.linkbucks.com/1P3K
 <br>【360密碼】：a21d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
