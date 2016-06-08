@@ -181,20 +181,20 @@
 <br>【360雲盤】：http://adf.ly/1azVXV
 <br>【360雲盤】：http://www.linkbucks.com/1ZWU
 <br>【360密碼】：4f84
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1azaSZ
+<br>【百度雲盤】：http://www.linkbucks.com/1YYK
+<br>【百度密碼】：vihm
 
 <br>【節目名稱】：881 杏林茶 2016-06-08（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1azbfg
+<br>【360雲盤】：http://www.linkbucks.com/1jRc
+<br>【360密碼】：1d89
+<br>【百度雲盤】：http://adf.ly/1azbyw
+<br>【百度雲盤】：http://www.linkbucks.com/1jHe
+<br>【百度密碼】：d64b
 
 <br>【節目名稱】：903 生活日常 2016-06-08（HD）
 <br>【節目主持】：細So
