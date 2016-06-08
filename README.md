@@ -167,17 +167,23 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1azV7m
+<br>【360雲盤】：http://www.linkbucks.com/1aHi
+<br>【360密碼】：2e40
+<br>【百度雲盤】：http://adf.ly/1azVGW
+<br>【百度雲盤】：http://www.linkbucks.com/1aEU
+<br>【百度密碼】：fk34
 
 <br>【節目名稱】：881 人民大道中 2016-06-08（HD）
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1azVXV
+<br>【360雲盤】：http://www.linkbucks.com/1ZWU
+<br>【360密碼】：4f84
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
 
 <br>【節目名稱】：881 杏林茶 2016-06-08（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
