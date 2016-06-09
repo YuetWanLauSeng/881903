@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1b0ks6
 <br>【360雲盤】：http://www.linkbucks.com/1fhV
 <br>【360密碼】：71ab
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b0qF0
+<br>【百度雲盤】：http://www.linkbucks.com/1dXE
+<br>【百度密碼】：e5bu
 
 <br>【節目名稱】：903 早安，同學早! 2016-06-09（HD）
 <br>【節目主持】：西瓜
@@ -16,9 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1b0kn1
 <br>【360雲盤】：http://www.linkbucks.com/1fiK
 <br>【360密碼】：99b7
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b0qDW
+<br>【百度雲盤】：http://www.linkbucks.com/1dXN
+<br>【百度密碼】：gsr2
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-06-09（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
@@ -27,9 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1b0koN
 <br>【360雲盤】：http://www.linkbucks.com/1fhf
 <br>【360密碼】：30d9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b0q4Q
+<br>【百度雲盤】：http://www.linkbucks.com/1dYm
+<br>【百度密碼】：3s67
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-06-09（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -38,9 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1b0kqM
 <br>【360雲盤】：http://www.linkbucks.com/1fhd
 <br>【360密碼】：4794
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b0q6E
+<br>【百度雲盤】：http://www.linkbucks.com/1dYc
+<br>【百度密碼】：zdgn
 
 <br>【節目名稱】：881 雲常開 2016-06-09（HD）
 <br>【節目主持】：陳志雲
@@ -49,9 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1b0kuU
 <br>【360雲盤】：http://www.linkbucks.com/1fhU
 <br>【360密碼】：e9e9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b0qHe
+<br>【百度雲盤】：http://www.linkbucks.com/1dW2
+<br>【百度密碼】：9gvj
 
 <br>【節目名稱】：881 1圈圈 2016-06-09（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -60,9 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1b0kvW
 <br>【360雲盤】：http://www.linkbucks.com/1fhR
 <br>【360密碼】：9a8a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b0q9U
+<br>【百度雲盤】：http://www.linkbucks.com/1dYO
+<br>【百度密碼】：9nx6
 
 <br>【節目名稱】：903 早霸王 2016-06-09（HD）
 <br>【節目主持】：森美 | 小儀
@@ -71,9 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1b0lXC
 <br>【360雲盤】：http://www.linkbucks.com/1fe7
 <br>【360密碼】：ffa1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b0q7w
+<br>【百度雲盤】：http://www.linkbucks.com/1dYV
+<br>【百度密碼】：u6wd
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-09（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
