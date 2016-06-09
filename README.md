@@ -8,6 +8,7 @@
 <br>【百度雲盤】：http://adf.ly/1b0qF0
 <br>【百度雲盤】：http://www.linkbucks.com/1dXE
 <br>【百度密碼】：e5bu
+<br>【城通雲盤】：http://www.ctfile.com/info/KHD161797
 
 <br>【節目名稱】：903 早安，同學早! 2016-06-09（HD）
 <br>【節目主持】：西瓜
@@ -19,6 +20,7 @@
 <br>【百度雲盤】：http://adf.ly/1b0qDW
 <br>【百度雲盤】：http://www.linkbucks.com/1dXN
 <br>【百度密碼】：gsr2
+<br>【城通雲盤】：http://www.ctfile.com/info/5Tw161806
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-06-09（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
@@ -30,6 +32,7 @@
 <br>【百度雲盤】：http://adf.ly/1b0q4Q
 <br>【百度雲盤】：http://www.linkbucks.com/1dYm
 <br>【百度密碼】：3s67
+<br>【城通雲盤】：http://www.ctfile.com/info/Z1z161803
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-06-09（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -41,6 +44,7 @@
 <br>【百度雲盤】：http://adf.ly/1b0q6E
 <br>【百度雲盤】：http://www.linkbucks.com/1dYc
 <br>【百度密碼】：zdgn
+<br>【城通雲盤】：http://www.ctfile.com/info/uYG161800
 
 <br>【節目名稱】：881 雲常開 2016-06-09（HD）
 <br>【節目主持】：陳志雲
@@ -52,6 +56,7 @@
 <br>【百度雲盤】：http://adf.ly/1b0qHe
 <br>【百度雲盤】：http://www.linkbucks.com/1dW2
 <br>【百度密碼】：9gvj
+<br>【城通雲盤】：http://www.ctfile.com/info/jD9161794
 
 <br>【節目名稱】：881 1圈圈 2016-06-09（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -63,6 +68,7 @@
 <br>【百度雲盤】：http://adf.ly/1b0q9U
 <br>【百度雲盤】：http://www.linkbucks.com/1dYO
 <br>【百度密碼】：9nx6
+<br>【城通雲盤】：http://www.ctfile.com/info/tfT161812
 
 <br>【節目名稱】：903 早霸王 2016-06-09（HD）
 <br>【節目主持】：森美 | 小儀
@@ -74,6 +80,7 @@
 <br>【百度雲盤】：http://adf.ly/1b0q7w
 <br>【百度雲盤】：http://www.linkbucks.com/1dYV
 <br>【百度密碼】：u6wd
+<br>【城通雲盤】：http://www.ctfile.com/info/LpK161809
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-09（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
@@ -82,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1b0zG0
 <br>【360雲盤】：http://www.linkbucks.com/QyAY
 <br>【360密碼】：5841
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b1OQV
+<br>【百度雲盤】：http://www.linkbucks.com/1eYD
+<br>【百度密碼】：ke8v
 
 <br>【節目名稱】：903 關公災難 2016-06-09（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -93,31 +100,31 @@
 <br>【360雲盤】：http://adf.ly/1b0zsv
 <br>【360雲盤】：http://www.linkbucks.com/HI7G
 <br>【360密碼】：a7c4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b1OO2
+<br>【百度雲盤】：http://www.linkbucks.com/1eYO
+<br>【百度密碼】：i768
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-09（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b1OHs
+<br>【360雲盤】：http://www.linkbucks.com/1eYU
+<br>【360密碼】：43de
+<br>【百度雲盤】：http://adf.ly/1b1OLt
+<br>【百度雲盤】：http://www.linkbucks.com/1eYR
+<br>【百度密碼】：besc
 
 <br>【節目名稱】：903 毒檸王國 2016-06-09（HD）
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b1Nze
+<br>【360雲盤】：http://www.linkbucks.com/1eY8
+<br>【360密碼】：f168
+<br>【百度雲盤】：http://adf.ly/1b1OFY
+<br>【百度雲盤】：http://www.linkbucks.com/1eYz
+<br>【百度密碼】：a7ds
 
 <br>【節目名稱】：903 集雜志 2016-06-09（HD）
 <br>【節目主持】：急急子
