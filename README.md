@@ -242,34 +242,37 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b3eke
+<br>【360雲盤】：http://www.linkbucks.com/2Dx1
+<br>【360密碼】：e32b
+<br>【百度雲盤】：http://adf.ly/1b3fDQ
+<br>【百度雲盤】：http://www.linkbucks.com/2Dlj
+<br>【百度密碼】：p23t
+<br>【城通雲盤】：http://www.ctfile.com/info/uoP164686
 
 <br>【節目名稱】：903 雲妮鍾情 2016-06-10（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b3enn
+<br>【360雲盤】：http://www.linkbucks.com/2Dwi
+<br>【360密碼】：8ee4
+<br>【百度雲盤】：http://adf.ly/1b3fFS
+<br>【百度雲盤】：http://www.linkbucks.com/2Dj7
+<br>【百度密碼】：h745
+<br>【城通雲盤】：http://www.ctfile.com/info/o8W164683
 
 <br>【節目名稱】：881 光明頂 2016-06-10（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b3f0Z
+<br>【360雲盤】：http://www.linkbucks.com/2Dso
+<br>【360密碼】：11cf
+<br>【百度雲盤】：http://adf.ly/1b3fSX
+<br>【百度雲盤】：http://www.linkbucks.com/2Dbw
+<br>【百度密碼】：nm9a
+<br>【城通雲盤】：http://www.ctfile.com/info/t0W164689
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-10（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
