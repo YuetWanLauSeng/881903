@@ -182,20 +182,21 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b3J1M
+<br>【360雲盤】：http://www.linkbucks.com/1ebp
+<br>【360密碼】：2b84
+<br>【百度雲盤】：http://adf.ly/1b3J49
+<br>【百度雲盤】：http://www.linkbucks.com/1ebn
+<br>【百度密碼】：3hqw
+<br>【城通雲盤】：http://www.ctfile.com/info/Rul164287
 
 <br>【節目名稱】：881 人民大道中 2016-06-10（HD）
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b3JW8
+<br>【360雲盤】：http://www.linkbucks.com/1dTT
+<br>【360密碼】：d9ec
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
