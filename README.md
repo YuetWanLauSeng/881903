@@ -221,25 +221,28 @@
 <br>【360雲盤】：http://adf.ly/1b2WhK
 <br>【360雲盤】：http://www.linkbucks.com/1sxG
 <br>【360密碼】：b7ff
+<br>【百度雲盤】：http://adf.ly/1b2Yx4
+<br>【百度雲盤】：http://www.linkbucks.com/1q95
+<br>【百度密碼】：jrv4
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-09（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b2Y5a
+<br>【360雲盤】：http://www.linkbucks.com/1rxN
+<br>【360密碼】：65e2
+<br>【百度雲盤】：http://adf.ly/1b2YyP
+<br>【百度雲盤】：http://www.linkbucks.com/1q8Q
+<br>【百度密碼】：msub
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-09（HD）
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b2Xu7
+<br>【360雲盤】：http://www.linkbucks.com/1r0i
+<br>【360密碼】：f572
+<br>【百度雲盤】：http://adf.ly/1b2Yil
+<br>【百度雲盤】：http://www.linkbucks.com/1rAM
+<br>【百度密碼】：aujy
