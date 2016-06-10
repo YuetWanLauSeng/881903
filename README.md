@@ -149,9 +149,10 @@
 <br>【360雲盤】：http://adf.ly/1b342F
 <br>【360雲盤】：http://www.linkbucks.com/1mzb
 <br>【360密碼】：e36f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b39tA
+<br>【百度雲盤】：http://www.linkbucks.com/1hPK
+<br>【百度密碼】：xe6y
+<br>【城通雲盤】：http://www.ctfile.com/info/PGQ164119
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-10（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -160,20 +161,22 @@
 <br>【360雲盤】：http://adf.ly/1b34ZL
 <br>【360雲盤】：http://www.linkbucks.com/1mLs
 <br>【360密碼】：871e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b39vC
+<br>【百度雲盤】：http://www.linkbucks.com/1hPC
+<br>【百度密碼】：2c22
+<br>【城通雲盤】：http://www.ctfile.com/info/Usf164116
 
 <br>【節目名稱】：903 毒檸王國 2016-06-10（HD）
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b39HQ
+<br>【360雲盤】：http://www.linkbucks.com/1i7V
+<br>【360密碼】：05fe
+<br>【百度雲盤】：http://adf.ly/1b39rW
+<br>【百度雲盤】：http://www.linkbucks.com/1hRM
+<br>【百度密碼】：9djt
+<br>【城通雲盤】：http://www.ctfile.com/info/Iak164125
 
 <br>【節目名稱】：903 集雜志 2016-06-10（HD）
 <br>【節目主持】：急急子
