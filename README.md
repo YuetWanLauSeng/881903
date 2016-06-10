@@ -209,31 +209,34 @@
 <br>【360雲盤】：http://adf.ly/1b3OGy
 <br>【360雲盤】：http://www.linkbucks.com/1Rfl
 <br>【360密碼】：3910
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b3Vpc
+<br>【百度雲盤】：http://www.linkbucks.com/1Yv6
+<br>【百度密碼】：3k43
+<br>【城通雲盤】：http://www.ctfile.com/info/BBf164635
 
 <br>【節目名稱】：903 生活日常 2016-06-10（HD）
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b3VhW
+<br>【360雲盤】：http://www.linkbucks.com/1sRR
+<br>【360密碼】：8ecf
+<br>【百度雲盤】：http://adf.ly/1b3VnG
+<br>【百度雲盤】：http://www.linkbucks.com/1aoR
+<br>【百度密碼】：veif
+<br>【城通雲盤】：http://www.ctfile.com/info/oGE164638
 
 <br>【節目名稱】：881 串 2016-06-10（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b3VkC
+<br>【360雲盤】：http://www.linkbucks.com/1Ywq
+<br>【360密碼】：6222
+<br>【百度雲盤】：http://adf.ly/1b3Vwf
+<br>【百度雲盤】：http://www.linkbucks.com/1u68
+<br>【百度密碼】：ugcr
+<br>【城通雲盤】：http://www.ctfile.com/info/hdu164644
 
 <br>【節目名稱】：881 書.情.歌 2016-06-10（HD）
 <br>【節目主持】：葉宇澄
