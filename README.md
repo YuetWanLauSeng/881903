@@ -101,9 +101,10 @@
 <br>【360雲盤】：http://adf.ly/1b2w7U
 <br>【360雲盤】：http://www.linkbucks.com/1qR0
 <br>【360密碼】：beda
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b30az
+<br>【百度雲盤】：http://www.linkbucks.com/1ojU
+<br>【百度密碼】：tk47
+<br>【城通雲盤】：http://www.ctfile.com/info/RsF163870
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-10（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
@@ -112,9 +113,10 @@
 <br>【360雲盤】：http://adf.ly/1b2vh1
 <br>【360雲盤】：http://www.linkbucks.com/1qVX
 <br>【360密碼】：45bf
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b30g6
+<br>【百度雲盤】：http://www.linkbucks.com/1ojZ
+<br>【百度密碼】：u9ws
+<br>【城通雲盤】：http://www.ctfile.com/info/jSF163873
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-10（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -123,9 +125,10 @@
 <br>【360雲盤】：http://adf.ly/1b2vkV
 <br>【360雲盤】：http://www.linkbucks.com/1qVE
 <br>【360密碼】：d7d2
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b30eB
+<br>【百度雲盤】：http://www.linkbucks.com/1ojM
+<br>【百度密碼】：iksn
+<br>【城通雲盤】：http://www.ctfile.com/info/t4v163843
 
 <br>【節目名稱】：903 關公災難 2016-06-10（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -134,9 +137,10 @@
 <br>【360雲盤】：http://adf.ly/1b2wAH
 <br>【360雲盤】：http://www.linkbucks.com/1qRX
 <br>【360密碼】：8c49
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b308m
+<br>【百度雲盤】：http://www.linkbucks.com/1olh
+<br>【百度密碼】：5ggv
+<br>【城通雲盤】：http://www.ctfile.com/info/QSD163867
 
 <br>【節目名稱】：881 大玩派 2016-06-10（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
