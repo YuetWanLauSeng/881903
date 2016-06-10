@@ -218,12 +218,9 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b2WhK
+<br>【360雲盤】：http://www.linkbucks.com/1sxG
+<br>【360密碼】：b7ff
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-09（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
