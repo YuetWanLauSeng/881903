@@ -93,20 +93,20 @@
 <br>【360雲盤】：http://adf.ly/1b56y8
 <br>【360雲盤】：http://www.linkbucks.com/2Fkn
 <br>【360密碼】：1f26
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b5Eqf
+<br>【百度雲盤】：http://www.linkbucks.com/2BO2
+<br>【百度密碼】：9bnm
 
-<br>【節目名稱】：903 903豁達推介 2016-06-11（HD）
+<br>【節目名稱】：903 903 豁達推介 2016-06-11（HD）
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart
 <br>【360雲盤】：http://adf.ly/1b583l
 <br>【360雲盤】：http://www.linkbucks.com/2FSO
 <br>【360密碼】：2708
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b5Ese
+<br>【百度雲盤】：http://www.linkbucks.com/2BOO
+<br>【百度密碼】：24jp
 
 <br>【節目名稱】：903 3號螺絲釘 2016-06-11（HD）
 <br>【節目主持】：Colin
@@ -115,9 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1b5Bk9
 <br>【360雲盤】：http://www.linkbucks.com/2DhX
 <br>【360密碼】：e221
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b5EoL
+<br>【百度雲盤】：http://www.linkbucks.com/2BPJ
+<br>【百度密碼】：jqax
 
 <br>【節目名稱】：903 西瓜大發 ! 2016-06-11（HD）
 <br>【節目主持】：西瓜
