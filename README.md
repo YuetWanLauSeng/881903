@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1b4dpY
 <br>【360雲盤】：http://www.linkbucks.com/110a
 <br>【360密碼】：ffca
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b4r6Y
+<br>【百度雲盤】：http://www.linkbucks.com/1wRq
+<br>【百度密碼】：n7n2
 
 <br>【節目名稱】：881 政經星期六 2016-06-11（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -16,9 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1b4drW
 <br>【360雲盤】：http://www.linkbucks.com/11y3
 <br>【360密碼】：eadc
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b4rCC
+<br>【百度雲盤】：http://www.linkbucks.com/1wPa
+<br>【百度密碼】：9d5j
 
 <br>【節目名稱】：903 西加航空 2016-06-11（HD）
 <br>【節目主持】：謝茜嘉
@@ -27,9 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1b4dw5
 <br>【360雲盤】：http://www.linkbucks.com/11xO
 <br>【360密碼】：acad
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b4rAS
+<br>【百度雲盤】：http://www.linkbucks.com/1wPs
+<br>【百度密碼】：48ta
 
 <br>【節目名稱】：881 不平平則鳴 2016-06-11（HD）
 <br>【節目主持】：陳聰 | 王永平
@@ -38,9 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1b4dtI
 <br>【360雲盤】：http://www.linkbucks.com/11x0
 <br>【360密碼】：6fa4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b4rEt
+<br>【百度雲盤】：http://www.linkbucks.com/1wEc
+<br>【百度密碼】：fgnp
 
 <br>【節目名稱】：881 考股專家 2016-06-11（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -49,17 +49,17 @@
 <br>【360雲盤】：http://adf.ly/1b4dmV
 <br>【360雲盤】：http://www.linkbucks.com/111J
 <br>【360密碼】：5b78
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b4r8h
+<br>【百度雲盤】：http://www.linkbucks.com/1wQv
+<br>【百度密碼】：u9ih
 
 <br>【節目名稱】：903 903 專業推介 2016-06-11（HD）
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b4r1J
+<br>【360雲盤】：http://www.linkbucks.com/1wUT
+<br>【360密碼】：164c
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -68,20 +68,20 @@
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b4r3d
+<br>【360雲盤】：http://www.linkbucks.com/1wSq
+<br>【360密碼】：e6b7
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
 
-<br>【節目名稱】：903咆哮山莊2016-06-11（HD）
+<br>【節目名稱】：903 咆哮山莊 2016-06-11（HD）
 <br>【節目主持】：903 DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b4tLW
+<br>【360雲盤】：http://www.linkbucks.com/1vKE
+<br>【360密碼】：ea41
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
