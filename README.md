@@ -75,7 +75,7 @@
 <br>【百度雲盤】：http://www.linkbucks.com/2F7p
 <br>【百度密碼】：7278
 
-<br>【節目名稱】：903咆哮山莊2016-06-11（HD）
+<br>【節目名稱】：903 咆哮山莊 2016-06-11（HD）
 <br>【節目主持】：903 DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time
@@ -123,31 +123,31 @@
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b5VYq
+<br>【360雲盤】：http://www.linkbucks.com/1xtS
+<br>【360密碼】：eb9a
+<br>【百度雲盤】：http://adf.ly/1b5VUl
+<br>【百度雲盤】：http://www.linkbucks.com/1x51
+<br>【百度密碼】：5zd9
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-06-11（HD）
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b5YaD
+<br>【360雲盤】：http://www.linkbucks.com/1xWq
+<br>【360密碼】：5374
+<br>【百度雲盤】：http://adf.ly/1b5Yc6
+<br>【百度雲盤】：http://www.linkbucks.com/1xkR
+<br>【百度密碼】：2e1s
 
 <br>【節目名稱】：903 Chi Chung's Class 2016-06-11（HD）
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b5Z6P
+<br>【360雲盤】：http://www.linkbucks.com/1xhe
+<br>【360密碼】：9a6e
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
