@@ -38,9 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1b76Pu
 <br>【360雲盤】：http://www.linkbucks.com/2DwF
 <br>【360密碼】：2630
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7J9x
+<br>【百度雲盤】：http://www.linkbucks.com/17y9
+<br>【百度密碼】：cjm9
 
 <br>【節目名稱】：903 讀賣Sunday 2016-06-12（HD）
 <br>【節目主持】：占 | 王貽興
@@ -60,9 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1b7BSr
 <br>【360雲盤】：http://www.linkbucks.com/2AL5
 <br>【360密碼】：e25d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7JDR
+<br>【百度雲盤】：http://www.linkbucks.com/17yu
+<br>【百度密碼】：4jxg
 
 <br>【節目名稱】：903 Mali Mali Home 2016-06-12（HD）
 <br>【節目主持】：麻利亞
@@ -82,9 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1b7BOf
 <br>【360雲盤】：http://www.linkbucks.com/2AMX
 <br>【360密碼】：f3c5
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7J7E
+<br>【百度雲盤】：http://www.linkbucks.com/17zI
+<br>【百度密碼】：ym2k
 
 <br>【節目名稱】：881 讀懂中國 2016-06-12（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -93,17 +93,17 @@
 <br>【360雲盤】：http://adf.ly/1b7BZQ
 <br>【360雲盤】：http://www.linkbucks.com/19v1
 <br>【360密碼】：79c6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7J4o
+<br>【百度雲盤】：http://www.linkbucks.com/17zT
+<br>【百度密碼】：g8b7
 
 <br>【節目名稱】：881 泡菜粉絲煲 2016-06-12（HD） 
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b7JFp
+<br>【360雲盤】：http://www.linkbucks.com/17yd
+<br>【360密碼】：f757
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -112,9 +112,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：18:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b7J0S
+<br>【360雲盤】：http://www.linkbucks.com/17zY
+<br>【360密碼】：d80d
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
