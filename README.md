@@ -148,39 +148,39 @@
 <br>【360雲盤】：http://adf.ly/1b5Z6P
 <br>【360雲盤】：http://www.linkbucks.com/1xhe
 <br>【360密碼】：9a6e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b6Hrl
+<br>【百度雲盤】：http://www.linkbucks.com/10Km
+<br>【百度密碼】：grh3
 
 <br>【節目名稱】：903 公子會 2016-06-11（HD）
 <br>【節目主持】：森美
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b6Hpl
+<br>【360雲盤】：http://www.linkbucks.com/10Kf
+<br>【360密碼】：c7c4
+<br>【百度雲盤】：http://adf.ly/1b6HcU
+<br>【百度雲盤】：http://www.linkbucks.com/10UH
+<br>【百度密碼】：kmu2
 
 <br>【節目名稱】：881 發式生活 2016-06-11（HD） 
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b6HmH
+<br>【360雲盤】：http://www.linkbucks.com/10KQ
+<br>【360密碼】：b66f
+<br>【百度雲盤】：http://adf.ly/1b6Hex
+<br>【百度雲盤】：http://www.linkbucks.com/10Us
+<br>【百度密碼】：t6i9
 
 <br>【節目名稱】：903 皇牌出場 2016-06-11（HD）
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b6HjP
+<br>【360雲盤】：http://www.linkbucks.com/10KB
+<br>【360密碼】：408c
+<br>【百度雲盤】：http://adf.ly/1b6Hgo
+<br>【百度雲盤】：http://www.linkbucks.com/10Jl
+<br>【百度密碼】：dcdr
