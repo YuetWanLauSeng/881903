@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1b76WU
 <br>【360雲盤】：http://www.linkbucks.com/2Erq
 <br>【360密碼】：2bb0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7W5A
+<br>【百度雲盤】：http://www.linkbucks.com/12Y5
+<br>【百度密碼】：epc7
 
 <br>【節目名稱】：881 政好星期天 2016-06-12（HD）
 <br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
@@ -16,9 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1b76Zd
 <br>【360雲盤】：http://www.linkbucks.com/2Erd
 <br>【360密碼】：9589
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7WDe
+<br>【百度雲盤】：http://www.linkbucks.com/12YP
+<br>【百度密碼】：gesr
 
 <br>【節目名稱】：903 Urban Touch 2016-06-12（HD）
 <br>【節目主持】：急急子
@@ -27,9 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1b76SW
 <br>【360雲盤】：http://www.linkbucks.com/2Em6
 <br>【360密碼】：2706
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7WAu
+<br>【百度雲盤】：http://www.linkbucks.com/12e7
+<br>【百度密碼】：vwg3
 
 <br>【節目名稱】：903 阿叔殖民地 2016-06-12（HD）
 <br>【節目主持】：何兆基
@@ -49,9 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1b76cG
 <br>【360雲盤】：http://www.linkbucks.com/2EtW
 <br>【360密碼】：aefe
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7W8d
+<br>【百度雲盤】：http://www.linkbucks.com/12fF
+<br>【百度密碼】：xh51
 
 <br>【節目名稱】：903 無定向喪煲病狂 2016-06-12（HD）
 <br>【節目主持】：鄒凱光 | 檸
@@ -71,9 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1b7BR3
 <br>【360雲盤】：http://www.linkbucks.com/2AML
 <br>【360密碼】：eca7
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1b7WMD
+<br>【百度雲盤】：http://www.linkbucks.com/12XJ
+<br>【百度密碼】：h3we
 
 <br>【節目名稱】：881 串 2016-06-12（HD）
 <br>【節目主持】：潘小濤 | 何亦文
@@ -123,9 +123,9 @@
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b7VoJ
+<br>【360雲盤】：http://www.linkbucks.com/12go
+<br>【360密碼】：6cef
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -134,20 +134,20 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b7Vle
+<br>【360雲盤】：http://www.linkbucks.com/12aO
+<br>【360密碼】：98cd
+<br>【百度雲盤】：http://adf.ly/1b7XCi
+<br>【百度雲盤】：http://www.linkbucks.com/12Um
+<br>【百度密碼】：54kj
 
 <br>【節目名稱】：881 葛民教育 2016-06-12（HD）
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b7XA2
+<br>【360雲盤】：http://www.linkbucks.com/12Vv
+<br>【360密碼】：3147
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
