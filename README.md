@@ -156,9 +156,9 @@
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b8EwJ
+<br>【360雲盤】：http://www.linkbucks.com/10pf
+<br>【360密碼】：7159
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -167,9 +167,20 @@
 <br>【節目主持】：881 主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b8EyI
+<br>【360雲盤】：http://www.linkbucks.com/10jZ
+<br>【360密碼】：704c
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：881903 一切從音樂開始 2016-06-12（HD）
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目時間】：02:00 - 06:00
+<br>【檔案名稱】：Begin with Music
+<br>【360雲盤】：http://adf.ly/1b8EuJ
+<br>【360雲盤】：http://www.linkbucks.com/10p5
+<br>【360密碼】：2b77
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
