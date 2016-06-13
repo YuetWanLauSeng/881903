@@ -90,9 +90,9 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b9cb0
+<br>【360雲盤】：http://www.linkbucks.com/2ISd
+<br>【360密碼】：ad5f
 <br>【百度雲盤】：http://adf.ly/1b9J3f
 <br>【百度雲盤】：http://www.linkbucks.com/2LdK
 <br>【百度密碼】：w4da
@@ -101,9 +101,9 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b9cYk
+<br>【360雲盤】：http://www.linkbucks.com/2ISp
+<br>【360密碼】：a022
 <br>【百度雲盤】：http://adf.ly/1b9ItR
 <br>【百度雲盤】：http://www.linkbucks.com/2Leh
 <br>【百度密碼】：zmdt
@@ -112,9 +112,9 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b9cW3
+<br>【360雲盤】：http://www.linkbucks.com/2ITE
+<br>【360密碼】：f9db
 <br>【百度雲盤】：http://adf.ly/1b9J8h
 <br>【百度雲盤】：http://www.linkbucks.com/2Lbl
 <br>【百度密碼】：tekv
@@ -167,9 +167,9 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b9cOs
+<br>【360雲盤】：http://www.linkbucks.com/2ITu
+<br>【360密碼】：2a5e
 <br>【百度雲盤】：http://adf.ly/1b9J0X
 <br>【百度雲盤】：http://www.linkbucks.com/2Lds
 <br>【百度密碼】：c3v3
@@ -200,9 +200,9 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b9cLE
+<br>【360雲盤】：http://www.linkbucks.com/2IT9
+<br>【360密碼】：479a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -222,9 +222,9 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b9cIf
+<br>【360雲盤】：http://www.linkbucks.com/2IUb
+<br>【360密碼】：9cd7
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -233,9 +233,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1b9cG7
+<br>【360雲盤】：http://www.linkbucks.com/2IUy
+<br>【360密碼】：3ab5
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -244,12 +244,12 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1b9cAn
+<br>【360雲盤】：http://www.linkbucks.com/2IU4
+<br>【360密碼】：d492
+<br>【百度雲盤】：http://adf.ly/1b9ced
+<br>【百度雲盤】：http://www.linkbucks.com/2ISP
+<br>【百度密碼】：fai3
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-13（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
