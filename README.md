@@ -192,17 +192,17 @@
 <br>【360雲盤】：http://adf.ly/1bBN5s
 <br>【360雲盤】：http://www.linkbucks.com/2b7C
 <br>【360密碼】：6930
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bBf30
+<br>【百度雲盤】：http://www.linkbucks.com/2SAB
+<br>【百度密碼】：dvbg
 
 <br>【節目名稱】：903 生活日常 2016-06-14（HD）
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bBezf
+<br>【360雲盤】：http://www.linkbucks.com/2SAH
+<br>【360密碼】：aaf7
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -211,9 +211,9 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bBetG
+<br>【360雲盤】：http://www.linkbucks.com/2SAg
+<br>【360密碼】：aea8
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -222,9 +222,9 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bBewl
+<br>【360雲盤】：http://www.linkbucks.com/2SAS
+<br>【360密碼】：f6c0
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -233,9 +233,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bBeqs
+<br>【360雲盤】：http://www.linkbucks.com/2SAq
+<br>【360密碼】：7925
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -244,12 +244,12 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bBfMs
+<br>【360雲盤】：http://www.linkbucks.com/2R7V
+<br>【360密碼】：e5f3
+<br>【百度雲盤】：http://adf.ly/1bBfhd
+<br>【百度雲盤】：http://www.linkbucks.com/2R6U
+<br>【百度密碼】：whyx
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-14（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
