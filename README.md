@@ -90,45 +90,45 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bAwKr
+<br>【360雲盤】：http://www.linkbucks.com/2UTN
+<br>【360密碼】：48e7
+<br>【百度雲盤】：http://adf.ly/1bAy0t
+<br>【百度雲盤】：http://www.linkbucks.com/2UF9
+<br>【百度密碼】：avh4
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-14（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bAwO7
+<br>【360雲盤】：http://www.linkbucks.com/2URP
+<br>【360密碼】：109c
+<br>【百度雲盤】：http://adf.ly/1bAy4L
+<br>【百度雲盤】：http://www.linkbucks.com/2UFL
+<br>【百度密碼】：ux47
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-14（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bAwN0
+<br>【360雲盤】：http://www.linkbucks.com/2USI
+<br>【360密碼】：ce4e
+<br>【百度雲盤】：http://adf.ly/1bAydO
+<br>【百度雲盤】：http://www.linkbucks.com/2T3P
+<br>【百度密碼】：gbnw
 
 <br>【節目名稱】：903 關公災難 2016-06-14（HD）
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：PR
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bAwJ3
+<br>【360雲盤】：http://www.linkbucks.com/2UTW
+<br>【360密碼】：00d5
+<br>【百度雲盤】：http://adf.ly/1bAxxQ
+<br>【百度雲盤】：http://www.linkbucks.com/2UGT
+<br>【百度密碼】：kxt8
 
 <br>【節目名稱】：881 大玩派 2016-06-14（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
