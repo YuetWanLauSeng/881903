@@ -203,9 +203,9 @@
 <br>【360雲盤】：http://adf.ly/1bBezf
 <br>【360雲盤】：http://www.linkbucks.com/2SAH
 <br>【360密碼】：aaf7
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bCY9G
+<br>【百度雲盤】：http://www.linkbucks.com/2ZBw
+<br>【百度密碼】：wbar
 
 <br>【節目名稱】：881 串 2016-06-14（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
@@ -214,9 +214,9 @@
 <br>【360雲盤】：http://adf.ly/1bBetG
 <br>【360雲盤】：http://www.linkbucks.com/2SAg
 <br>【360密碼】：aea8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bCY5f
+<br>【百度雲盤】：http://www.linkbucks.com/2ZB7
+<br>【百度密碼】：6h2a
 
 <br>【節目名稱】：881 書.情.歌 2016-06-14（HD）
 <br>【節目主持】：葉宇澄
@@ -225,9 +225,9 @@
 <br>【360雲盤】：http://adf.ly/1bBewl
 <br>【360雲盤】：http://www.linkbucks.com/2SAS
 <br>【360密碼】：f6c0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bCY1S
+<br>【百度雲盤】：http://www.linkbucks.com/2ZCO
+<br>【百度密碼】：25ns
 
 <br>【節目名稱】：903 雲妮鍾情 2016-06-14（HD）
 <br>【節目主持】：Vani
@@ -236,9 +236,9 @@
 <br>【360雲盤】：http://adf.ly/1bBeqs
 <br>【360雲盤】：http://www.linkbucks.com/2SAq
 <br>【360密碼】：7925
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bCXws
+<br>【百度雲盤】：http://www.linkbucks.com/2ZCc
+<br>【百度密碼】：mx7e
 
 <br>【節目名稱】：881 光明頂 2016-06-14（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
@@ -258,9 +258,9 @@
 <br>【360雲盤】：http://adf.ly/1bCO2G
 <br>【360雲盤】：http://www.linkbucks.com/x9kq
 <br>【360密碼】：3e5b
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bCXzE
+<br>【百度雲盤】：http://www.linkbucks.com/2ZCR
+<br>【百度密碼】：qumn
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-14（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
@@ -269,9 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1bCNzR
 <br>【360雲盤】：http://www.linkbucks.com/uoaR
 <br>【360密碼】：bd9e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bCYDp
+<br>【百度雲盤】：http://www.linkbucks.com/2ZIy
+<br>【百度密碼】：4ftk
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-14（HD）
 <br>【節目主持】：Colin
@@ -280,9 +280,9 @@
 <br>【360雲盤】：http://adf.ly/1bCNx4
 <br>【360雲盤】：http://www.linkbucks.com/z6dH
 <br>【360密碼】：12b2
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bCYBu
+<br>【百度雲盤】：http://www.linkbucks.com/2ZI2
+<br>【百度密碼】：zgit
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-06-14（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
@@ -291,6 +291,6 @@
 <br>【360雲盤】：http://adf.ly/1bCO66
 <br>【360雲盤】：http://www.linkbucks.com/x6OP
 <br>【360密碼】：1b10
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bCY3V
+<br>【百度雲盤】：http://www.linkbucks.com/2ZCI
+<br>【百度密碼】：sq29
