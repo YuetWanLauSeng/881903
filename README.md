@@ -93,9 +93,9 @@
 <br>【360雲盤】：http://adf.ly/1bCyhG
 <br>【360雲盤】：http://www.linkbucks.com/2UZg
 <br>【360密碼】：353d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bDEgM
+<br>【百度雲盤】：http://www.linkbucks.com/2cXc
+<br>【百度密碼】：sb45
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-15（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
@@ -104,9 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1bCxh1
 <br>【360雲盤】：http://www.linkbucks.com/2Ud3
 <br>【360密碼】：2f33
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bDEdy
+<br>【百度雲盤】：http://www.linkbucks.com/2cXi
+<br>【百度密碼】：n5q6
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-15（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -115,9 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1bCxjl
 <br>【360雲盤】：http://www.linkbucks.com/2Udt
 <br>【360密碼】：fbed
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bDEKk
+<br>【百度雲盤】：http://www.linkbucks.com/2cYr
+<br>【百度密碼】：hfin
 
 <br>【節目名稱】：903 關公災難 2016-06-15（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -126,9 +126,9 @@
 <br>【360雲盤】：http://adf.ly/1bCydW
 <br>【360雲盤】：http://www.linkbucks.com/2Uaf
 <br>【360密碼】：6246
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bDEMv
+<br>【百度雲盤】：http://www.linkbucks.com/2cYl
+<br>【百度密碼】：e3yy
 
 <br>【節目名稱】：881 大玩派 2016-06-15（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1bD5pS
 <br>【360雲盤】：http://www.linkbucks.com/2SyS
 <br>【360密碼】：1e0d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bDEaU
+<br>【百度雲盤】：http://www.linkbucks.com/2cXy
+<br>【百度密碼】：5ebh
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-15（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -148,17 +148,17 @@
 <br>【360雲盤】：http://adf.ly/1bD5mY
 <br>【360雲盤】：http://www.linkbucks.com/2Sym
 <br>【360密碼】：cbd6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bDEH9
+<br>【百度雲盤】：http://www.linkbucks.com/2cY7
+<br>【百度密碼】：evq4
 
 <br>【節目名稱】：903 毒檸王國 2016-06-15（HD）
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bDEix
+<br>【360雲盤】：http://www.linkbucks.com/2cXO
+<br>【360密碼】：d0bb
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
