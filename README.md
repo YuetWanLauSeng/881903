@@ -170,9 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1bDXsh
 <br>【360雲盤】：http://www.linkbucks.com/2Znr
 <br>【360密碼】：38cc
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bDcI3
+<br>【百度雲盤】：http://www.linkbucks.com/2cxa
+<br>【百度密碼】：bbmg
 
 <br>【節目名稱】：881 人民大道中 2016-06-15（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -193,9 +193,9 @@
 <br>【360雲盤】：http://adf.ly/1bDXoJ
 <br>【360雲盤】：http://www.linkbucks.com/2ZnX
 <br>【360密碼】：c598
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bDcBc
+<br>【百度雲盤】：http://www.linkbucks.com/2c12
+<br>【百度密碼】：r2gt
 
 <br>【節目名稱】：881 串 2016-06-15（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
@@ -213,23 +213,23 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bDjEH
+<br>【360雲盤】：http://www.linkbucks.com/2ahG
+<br>【360密碼】：7e87
+<br>【百度雲盤】：http://adf.ly/1bDjGn
+<br>【百度雲盤】：http://www.linkbucks.com/2ae5
+<br>【百度密碼】：hxub
 
 <br>【節目名稱】：881 光明頂 2016-06-15（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bDjlS
+<br>【360雲盤】：http://www.linkbucks.com/2aZ4
+<br>【360密碼】：66f4
+<br>【百度雲盤】：http://adf.ly/1bDkFV
+<br>【百度雲盤】：http://www.linkbucks.com/2aXI
+<br>【百度密碼】：hce2
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-15（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
