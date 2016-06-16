@@ -170,9 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1bFUOb
 <br>【360雲盤】：http://www.linkbucks.com/2lTp
 <br>【360密碼】：ace1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bFgt9
+<br>【百度雲盤】：http://www.linkbucks.com/2jq0
+<br>【百度密碼】：yvky
 
 <br>【節目名稱】：881 人民大道中 2016-06-16（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -181,28 +181,28 @@
 <br>【360雲盤】：http://adf.ly/1bFU7N
 <br>【360雲盤】：http://www.linkbucks.com/2lWO
 <br>【360密碼】：d477
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bFgqk
+<br>【百度雲盤】：http://www.linkbucks.com/2jq4
+<br>【百度密碼】：722h
 
 <br>【節目名稱】：881 杏林茶 2016-06-16（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bFgjr
+<br>【360雲盤】：http://www.linkbucks.com/2jrM
+<br>【360密碼】：af18
+<br>【百度雲盤】：http://adf.ly/1bFgnT
+<br>【百度雲盤】：http://www.linkbucks.com/2jrA
+<br>【百度密碼】：y5jn
 
 <br>【節目名稱】：903 生活日常 2016-06-16（HD）
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bFgvw
+<br>【360雲盤】：http://www.linkbucks.com/2jqo
+<br>【360密碼】：cc31
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -211,9 +211,9 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bFh1j
+<br>【360雲盤】：http://www.linkbucks.com/2jp5
+<br>【360密碼】：f6a8
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
