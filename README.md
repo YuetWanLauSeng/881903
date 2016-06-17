@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1bHGi1
 <br>【360雲盤】：http://www.linkbucks.com/2laP
 <br>【360密碼】：ecf6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bHX4f
+<br>【百度雲盤】：http://www.linkbucks.com/2vfW
+<br>【百度密碼】：ee4q
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-17（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -148,9 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1bHG0n
 <br>【360雲盤】：http://www.linkbucks.com/2lf3
 <br>【360密碼】：bc8f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bHX2O
+<br>【百度雲盤】：http://www.linkbucks.com/2iMS
+<br>【百度密碼】：n44i
 
 <br>【節目名稱】：903 毒檸王國 2016-06-17（HD）
 <br>【節目主持】：檸
@@ -159,17 +159,17 @@
 <br>【360雲盤】：http://adf.ly/1bHPFl
 <br>【360雲盤】：http://www.linkbucks.com/2w7p
 <br>【360密碼】：55d1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bHX7f
+<br>【百度雲盤】：http://www.linkbucks.com/2vfF
+<br>【百度密碼】：epgt
 
 <br>【節目名稱】：903 集雜志 2016-06-17（HD）
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bHWzn
+<br>【360雲盤】：http://www.linkbucks.com/2vgH
+<br>【360密碼】：9138
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -178,9 +178,9 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bHWxQ
+<br>【360雲盤】：http://www.linkbucks.com/2vgR
+<br>【360密碼】：12b5
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
