@@ -203,9 +203,9 @@
 <br>【360雲盤】：http://adf.ly/1bFgvw
 <br>【360雲盤】：http://www.linkbucks.com/2jqo
 <br>【360密碼】：cc31
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bGVTP
+<br>【百度雲盤】：http://www.linkbucks.com/MF11
+<br>【百度密碼】：5eqi
 
 <br>【節目名稱】：881 串 2016-06-16（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
@@ -214,83 +214,83 @@
 <br>【360雲盤】：http://adf.ly/1bFh1j
 <br>【360雲盤】：http://www.linkbucks.com/2jp5
 <br>【360密碼】：f6a8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bGVUw
+<br>【百度雲盤】：http://www.linkbucks.com/L9DY
+<br>【百度密碼】：wkd5
 
 <br>【節目名稱】：881 書.情.歌 2016-06-16（HD）
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bFqd6
+<br>【360雲盤】：http://www.linkbucks.com/2j3v
+<br>【360密碼】：9d92
+<br>【百度雲盤】：http://adf.ly/1bFqTt
+<br>【百度雲盤】：http://www.linkbucks.com/2j4C
+<br>【百度密碼】：qge8
 
 <br>【節目名稱】：903 雲妮鍾情 2016-06-16（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bFqg0
+<br>【360雲盤】：http://www.linkbucks.com/2j3f
+<br>【360密碼】：78eb
+<br>【百度雲盤】：http://adf.ly/1bFqQb
+<br>【百度雲盤】：http://www.linkbucks.com/2j4U
+<br>【百度密碼】：rmsh
 
 <br>【節目名稱】：881 光明頂 2016-06-16（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bFrEy
+<br>【360雲盤】：http://www.linkbucks.com/2jZJ
+<br>【360密碼】：d012
+<br>【百度雲盤】：http://adf.ly/1bFrSR
+<br>【百度雲盤】：http://www.linkbucks.com/2jYW
+<br>【百度密碼】：gvpb
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-16（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bGVOi
+<br>【360雲盤】：http://www.linkbucks.com/MmGf
+<br>【360密碼】：43ad
+<br>【百度雲盤】：http://adf.ly/1bGVCw
+<br>【百度雲盤】：http://www.linkbucks.com/NRTz
+<br>【百度密碼】：dbdc
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-16（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bGVMM
+<br>【360雲盤】：http://www.linkbucks.com/M0lt
+<br>【360密碼】：3f2b
+<br>【百度雲盤】：http://adf.ly/1bGVHs
+<br>【百度雲盤】：http://www.linkbucks.com/IKzY
+<br>【百度密碼】：8uha
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-16（HD）
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bGVJz
+<br>【360雲盤】：http://www.linkbucks.com/M0ms
+<br>【360密碼】：2f42
+<br>【百度雲盤】：http://adf.ly/1bGVFt
+<br>【百度雲盤】：http://www.linkbucks.com/HI68
+<br>【百度密碼】：f46b
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-06-16（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bGVQw
+<br>【360雲盤】：http://www.linkbucks.com/MV8H
+<br>【360密碼】：06ef
+<br>【百度雲盤】：http://adf.ly/1bGV9s
+<br>【百度雲盤】：http://www.linkbucks.com/NXaP
+<br>【百度密碼】：uscp
