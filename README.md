@@ -115,28 +115,28 @@
 <br>【360雲盤】：http://adf.ly/1bJYZU
 <br>【360雲盤】：http://www.linkbucks.com/k6Fm
 <br>【360密碼】：0852
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJpz8
+<br>【百度雲盤】：http://www.linkbucks.com/3CyQ
+<br>【百度密碼】：v9uf
 
 <br>【節目名稱】：903 西瓜大發 ! 2016-06-18（HD）
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bJpob
+<br>【360雲盤】：http://www.linkbucks.com/3C1D
+<br>【360密碼】：d7cb
+<br>【百度雲盤】：http://adf.ly/1bJpvy
+<br>【百度雲盤】：http://www.linkbucks.com/3CzK
+<br>【百度密碼】：9p1y
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-06-18（HD）
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bJpsc
+<br>【360雲盤】：http://www.linkbucks.com/3Czu
+<br>【360密碼】：4fa1
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -145,9 +145,9 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bJqh8
+<br>【360雲盤】：http://www.linkbucks.com/3Cmf
+<br>【360密碼】：1646
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
