@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1bJ5U2
 <br>【360雲盤】：http://www.linkbucks.com/225g
 <br>【360密碼】：1f7a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJGOd
+<br>【百度雲盤】：http://www.linkbucks.com/2zBo
+<br>【百度密碼】：w3yt
 
 <br>【節目名稱】：881 政經星期六 2016-06-18（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -27,9 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1bJ5hO
 <br>【360雲盤】：http://www.linkbucks.com/223W
 <br>【360密碼】：ea31
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJGTn
+<br>【百度雲盤】：http://www.linkbucks.com/2zAp
+<br>【百度密碼】：8teb
 
 <br>【節目名稱】：881 不平平則鳴 2016-06-18（HD）
 <br>【節目主持】：陳聰 | 王永平
@@ -38,9 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1bJ5fn
 <br>【360雲盤】：http://www.linkbucks.com/223b
 <br>【360密碼】：2deb
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJGVK
+<br>【百度雲盤】：http://www.linkbucks.com/2zAQ
+<br>【百度密碼】：jdva
 
 <br>【節目名稱】：881 考股專家 2016-06-18（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -49,17 +49,17 @@
 <br>【360雲盤】：http://adf.ly/1bJ5SH
 <br>【360雲盤】：http://www.linkbucks.com/225z
 <br>【360密碼】：69a9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJGRt
+<br>【百度雲盤】：http://www.linkbucks.com/2zBX
+<br>【百度密碼】：uwaf
 
 <br>【節目名稱】：903 903 專業推介 2016-06-18（HD）
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bJGIX
+<br>【360雲盤】：http://www.linkbucks.com/2zDd
+<br>【360密碼】：ac53
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -68,9 +68,9 @@
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bJG2t
+<br>【360雲盤】：http://www.linkbucks.com/2zDv
+<br>【360密碼】：3a47
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -79,9 +79,9 @@
 <br>【節目主持】：903 DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bJGK8
+<br>【360雲盤】：http://www.linkbucks.com/2zDK
+<br>【360密碼】：9a97
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
