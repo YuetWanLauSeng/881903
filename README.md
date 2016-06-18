@@ -16,9 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1bJ5dc
 <br>【360雲盤】：http://www.linkbucks.com/224O
 <br>【360密碼】：cbb8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJYwF
+<br>【百度雲盤】：http://www.linkbucks.com/lEyx
+<br>【百度密碼】：itxd
 
 <br>【節目名稱】：903 西加航空 2016-06-18（HD）
 <br>【節目主持】：謝茜嘉
@@ -60,9 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1bJGIX
 <br>【360雲盤】：http://www.linkbucks.com/2zDd
 <br>【360密碼】：ac53
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJYtr
+<br>【百度雲盤】：http://www.linkbucks.com/lDi8
+<br>【百度密碼】：5pmy
 
 <br>【節目名稱】：903 咪芝蓮 2016-06-18（HD）
 <br>【節目主持】：小儀
@@ -71,9 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1bJG2t
 <br>【360雲盤】：http://www.linkbucks.com/2zDv
 <br>【360密碼】：3a47
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJYzT
+<br>【百度雲盤】：http://www.linkbucks.com/lG1w
+<br>【百度密碼】：rkim
 
 <br>【節目名稱】：903 咆哮山莊 2016-06-18（HD）
 <br>【節目主持】：903 DJ
@@ -82,9 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1bJGK8
 <br>【360雲盤】：http://www.linkbucks.com/2zDK
 <br>【360密碼】：9a97
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJZ3E
+<br>【百度雲盤】：http://www.linkbucks.com/j5Qe
+<br>【百度密碼】：jicj
 
 <br>【節目名稱】：881 1圈圈 2016-06-18（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -93,9 +93,9 @@
 <br>【360雲盤】：http://adf.ly/1bJOkp
 <br>【360雲盤】：http://www.linkbucks.com/23GV
 <br>【360密碼】：7564
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJYlo
+<br>【百度雲盤】：http://www.linkbucks.com/k5zd
+<br>【百度密碼】：43q7
 
 <br>【節目名稱】：903 903 豁達推介 2016-06-18（HD）
 <br>【節目主持】：梁文禮
@@ -104,17 +104,17 @@
 <br>【360雲盤】：http://adf.ly/1bJOid
 <br>【360雲盤】：http://www.linkbucks.com/23Ga
 <br>【360密碼】：dd3f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bJYpa
+<br>【百度雲盤】：http://www.linkbucks.com/k5tE
+<br>【百度密碼】：hhpw
 
 <br>【節目名稱】：903 3號螺絲釘 2016-06-18（HD）
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bJYZU
+<br>【360雲盤】：http://www.linkbucks.com/k6Fm
+<br>【360密碼】：0852
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
