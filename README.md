@@ -236,9 +236,9 @@
 <br>【360雲盤】：http://adf.ly/1bHqMR
 <br>【360雲盤】：http://www.linkbucks.com/2mfH
 <br>【360密碼】：3311
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bItGr
+<br>【百度雲盤】：http://www.linkbucks.com/2rqC
+<br>【百度密碼】：69va
 
 <br>【節目名稱】：881 光明頂 2016-06-17（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
@@ -258,9 +258,9 @@
 <br>【360雲盤】：http://adf.ly/1bIjOg
 <br>【360雲盤】：http://www.linkbucks.com/2tQd
 <br>【360密碼】：fbc1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bItQu
+<br>【百度雲盤】：http://www.linkbucks.com/2rpA
+<br>【百度密碼】：pner
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-17（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
@@ -269,9 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1bImfF
 <br>【360雲盤】：http://www.linkbucks.com/2stt
 <br>【360密碼】：9c6f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bItTz
+<br>【百度雲盤】：http://www.linkbucks.com/2roz
+<br>【百度密碼】：38fv
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-17（HD）
 <br>【節目主持】：Colin
@@ -280,9 +280,9 @@
 <br>【360雲盤】：http://adf.ly/1bImiB
 <br>【360雲盤】：http://www.linkbucks.com/2stb
 <br>【360密碼】：7fc9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bItNh
+<br>【百度雲盤】：http://www.linkbucks.com/2rpe
+<br>【百度密碼】：3nj6
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-06-17（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
@@ -291,6 +291,6 @@
 <br>【360雲盤】：http://adf.ly/1bImkj
 <br>【360雲盤】：http://www.linkbucks.com/2stN
 <br>【360密碼】：1f84
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bItL3
+<br>【百度雲盤】：http://www.linkbucks.com/2rp1
+<br>【百度密碼】：hyx2
