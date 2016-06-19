@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1bJpsc
 <br>【360雲盤】：http://www.linkbucks.com/3Czu
 <br>【360密碼】：4fa1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bKvxe
+<br>【百度雲盤】：http://www.linkbucks.com/Hzgf
+<br>【百度密碼】：43yg
 
 <br>【節目名稱】：903 Chi Chung's Class 2016-06-18（HD）
 <br>【節目主持】：黃志淙
@@ -148,9 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1bJqh8
 <br>【360雲盤】：http://www.linkbucks.com/3Cmf
 <br>【360密碼】：1646
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bKw3o
+<br>【百度雲盤】：http://www.linkbucks.com/HzgH
+<br>【百度密碼】：u639
 
 <br>【節目名稱】：903 公子會 2016-06-18（HD）
 <br>【節目主持】：森美
@@ -159,9 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1bKpdT
 <br>【360雲盤】：http://www.linkbucks.com/3FIb
 <br>【360密碼】：699b
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bKvHJ
+<br>【百度雲盤】：http://www.linkbucks.com/PUt7
+<br>【百度密碼】：mtu7
 
 <br>【節目名稱】：881 發式生活 2016-06-18（HD） 
 <br>【節目主持】：余宜發
@@ -170,9 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1bKrbO
 <br>【360雲盤】：http://www.linkbucks.com/3ElU
 <br>【360密碼】：6338
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bKw29
+<br>【百度雲盤】：http://www.linkbucks.com/HzgK
+<br>【百度密碼】：psfy
 
 <br>【節目名稱】：903 皇牌出場 2016-06-18（HD）
 <br>【節目主持】：Marco | Keyman
@@ -181,6 +181,6 @@
 <br>【360雲盤】：http://adf.ly/1bKrdy
 <br>【360雲盤】：http://www.linkbucks.com/3ElD
 <br>【360密碼】：0689
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bKvKP
+<br>【百度雲盤】：http://www.linkbucks.com/PUtt
+<br>【百度密碼】：hkr8
