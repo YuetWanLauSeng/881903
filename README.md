@@ -60,9 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1bLeec
 <br>【360雲盤】：http://www.linkbucks.com/P8kF
 <br>【360密碼】：98e4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bLrh8
+<br>【百度雲盤】：http://www.linkbucks.com/3A8s
+<br>【百度密碼】：nued
 
 <br>【節目名稱】：903 Mali Mali Home 2016-06-19（HD）
 <br>【節目主持】：麻利亞
@@ -71,31 +71,31 @@
 <br>【360雲盤】：http://adf.ly/1bLehf
 <br>【360雲盤】：http://www.linkbucks.com/P5Vl
 <br>【360密碼】：1d90
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bLrcs
+<br>【百度雲盤】：http://www.linkbucks.com/3A8v
+<br>【百度密碼】：7655
 
 <br>【節目名稱】：881 串 2016-06-19（HD）
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bLrkq
+<br>【360雲盤】：http://www.linkbucks.com/3A8m
+<br>【360密碼】：a650
+<br>【百度雲盤】：http://adf.ly/1bLrYK
+<br>【百度雲盤】：http://www.linkbucks.com/3A9X
+<br>【百度密碼】：iarv
 
 <br>【節目名稱】：881 讀懂中國 2016-06-19（HD）
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bLrsp
+<br>【360雲盤】：http://www.linkbucks.com/3A8K
+<br>【360密碼】：485f
+<br>【百度雲盤】：http://adf.ly/1bLsHc
+<br>【百度雲盤】：http://www.linkbucks.com/3A69
+<br>【百度密碼】：tnjj
 
 <br>【節目名稱】：881 泡菜粉絲煲 2016-06-19（HD） 
 <br>【節目主持】：伍甄琪 | 伍悅
