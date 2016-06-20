@@ -156,20 +156,20 @@
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bN0CM
+<br>【360雲盤】：http://www.linkbucks.com/2796
+<br>【360密碼】：c4ea
+<br>【百度雲盤】：http://adf.ly/1bN0bk
+<br>【百度雲盤】：http://www.linkbucks.com/276W
+<br>【百度密碼】：ievi
 
 <br>【節目名稱】：881 寫生活 2016-06-19（HD）
 <br>【節目主持】：881 主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bN0aD
+<br>【360雲盤】：http://www.linkbucks.com/277o
+<br>【360密碼】：b8f2
+<br>【百度雲盤】：http://adf.ly/1bN0e1
+<br>【百度雲盤】：http://www.linkbucks.com/2759
+<br>【百度密碼】：5qn6
