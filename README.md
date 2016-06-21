@@ -90,9 +90,9 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bPvig
+<br>【360雲盤】：http://www.linkbucks.com/3UcP
+<br>【360密碼】：2c0a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -101,9 +101,9 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bPvld
+<br>【360雲盤】：http://www.linkbucks.com/3UcF
+<br>【360密碼】：d4cf
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -112,20 +112,20 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bPvg8
+<br>【360雲盤】：http://www.linkbucks.com/3Ucd
+<br>【360密碼】：3551
+<br>【百度雲盤】：http://adf.ly/1bPvdf
+<br>【百度雲盤】：http://www.linkbucks.com/3Ucz
+<br>【百度密碼】：6rnt
 
 <br>【節目名稱】：903 關公災難 2016-06-21（HD）
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：PR
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bPvoQ
+<br>【360雲盤】：http://www.linkbucks.com/3Ub0
+<br>【360密碼】：6528
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
