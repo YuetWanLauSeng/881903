@@ -258,9 +258,9 @@
 <br>【360雲盤】：http://adf.ly/1bP9tB
 <br>【360雲盤】：http://www.linkbucks.com/3bxH
 <br>【360密碼】：7062
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPBIt
+<br>【百度雲盤】：http://www.linkbucks.com/3bLP
+<br>【百度密碼】：fjds
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-20（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
@@ -269,9 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1bP9qI
 <br>【360雲盤】：http://www.linkbucks.com/3b2l
 <br>【360密碼】：2cc5
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPBGF
+<br>【百度雲盤】：http://www.linkbucks.com/3bLs
+<br>【百度密碼】：6pr3
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-20（HD）
 <br>【節目主持】：Colin
@@ -286,6 +286,6 @@
 <br>【360雲盤】：http://adf.ly/1bP9n2
 <br>【360雲盤】：http://www.linkbucks.com/3b3L
 <br>【360密碼】：0304
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPBLB
+<br>【百度雲盤】：http://www.linkbucks.com/3bJp
+<br>【百度密碼】：j5n9
