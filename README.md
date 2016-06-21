@@ -156,12 +156,12 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bQ8S5
+<br>【360雲盤】：http://www.linkbucks.com/3QHq
+<br>【360密碼】：5937
+<br>【百度雲盤】：http://adf.ly/1bQ9NB
+<br>【百度雲盤】：http://www.linkbucks.com/3P80
+<br>【百度密碼】：vrvb
 
 <br>【節目名稱】：903 集雜志 2016-06-21（HD）
 <br>【節目主持】：急急子
