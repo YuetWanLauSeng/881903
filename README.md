@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1bPf4Y
 <br>【360雲盤】：http://www.linkbucks.com/Q20S
 <br>【360密碼】：65bc
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPyZG
+<br>【百度雲盤】：http://www.linkbucks.com/3Tar
+<br>【百度密碼】：4g6r
 
 <br>【節目名稱】：903 早安，同學早! 2016-06-21（HD）
 <br>【節目主持】：西瓜
@@ -16,9 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1bPevC
 <br>【360雲盤】：http://www.linkbucks.com/SNaV
 <br>【360密碼】：db10
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPyj5
+<br>【百度雲盤】：http://www.linkbucks.com/3TZ3
+<br>【百度密碼】：wt7r
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-06-21（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
@@ -27,9 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1bPexE
 <br>【360雲盤】：http://www.linkbucks.com/SA3T
 <br>【360密碼】：6f2e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPygL
+<br>【百度雲盤】：http://www.linkbucks.com/3TaA
+<br>【百度密碼】：dsre
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-06-21（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -38,9 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1bPf76
 <br>【360雲盤】：http://www.linkbucks.com/QxxX
 <br>【360密碼】：28fb
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPydx
+<br>【百度雲盤】：http://www.linkbucks.com/3TaP
+<br>【百度密碼】：rh41
 
 <br>【節目名稱】：881 雲常開 2016-06-21（HD）
 <br>【節目主持】：陳志雲
@@ -49,9 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1bPezM
 <br>【360雲盤】：http://www.linkbucks.com/RCDl
 <br>【360密碼】：8590
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPybC
+<br>【百度雲盤】：http://www.linkbucks.com/3Tab
+<br>【百度密碼】：yany
 
 <br>【節目名稱】：881 1圈圈 2016-06-21（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -60,9 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1bPetC
 <br>【360雲盤】：http://www.linkbucks.com/SZLC
 <br>【360密碼】：d761
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPypd
+<br>【百度雲盤】：http://www.linkbucks.com/3TZV
+<br>【百度密碼】：fkax
 
 <br>【節目名稱】：903 早霸王 2016-06-21（HD）
 <br>【節目主持】：森美 | 小儀
@@ -71,9 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1bPeqW
 <br>【360雲盤】：http://www.linkbucks.com/Sknw
 <br>【360密碼】：94c4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPyki
+<br>【百度雲盤】：http://www.linkbucks.com/3TZr
+<br>【百度密碼】：z2us
 
 <br>【節目名稱】：881 十八樓C座 2016-06-21（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -82,9 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1bPfAt
 <br>【360雲盤】：http://www.linkbucks.com/QZhi
 <br>【360密碼】：718e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPynI
+<br>【百度雲盤】：http://www.linkbucks.com/3TZc
+<br>【百度密碼】：dukx
 
 <br>【節目名稱】：881 一點叮一叮 2016-06-21（HD）
 <br>【節目主持】：何飛鳳
@@ -93,9 +93,9 @@
 <br>【360雲盤】：http://adf.ly/1bPvig
 <br>【360雲盤】：http://www.linkbucks.com/3UcP
 <br>【360密碼】：2c0a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPyWu
+<br>【百度雲盤】：http://www.linkbucks.com/3TdA
+<br>【百度密碼】：8iy4
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-21（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
@@ -104,9 +104,9 @@
 <br>【360雲盤】：http://adf.ly/1bPvld
 <br>【360雲盤】：http://www.linkbucks.com/3UcF
 <br>【360密碼】：d4cf
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPyUJ
+<br>【百度雲盤】：http://www.linkbucks.com/3TeO
+<br>【百度密碼】：5sx5
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-21（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -126,17 +126,17 @@
 <br>【360雲盤】：http://adf.ly/1bPvoQ
 <br>【360雲盤】：http://www.linkbucks.com/3Ub0
 <br>【360密碼】：6528
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bPySd
+<br>【百度雲盤】：http://www.linkbucks.com/3Tek
+<br>【百度密碼】：u2yv
 
 <br>【節目名稱】：881 大玩派 2016-06-21（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bPyze
+<br>【360雲盤】：http://www.linkbucks.com/3TYG
+<br>【360密碼】：6e48
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -145,9 +145,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bPzn4
+<br>【360雲盤】：http://www.linkbucks.com/3S9C
+<br>【360密碼】：ba05
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
