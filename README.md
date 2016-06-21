@@ -192,9 +192,9 @@
 <br>【360雲盤】：http://adf.ly/1bQK8j
 <br>【360雲盤】：http://www.linkbucks.com/3Qzd
 <br>【360密碼】：e851
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bQds4
+<br>【百度雲盤】：http://www.linkbucks.com/3LJP
+<br>【百度密碼】：wrpe
 
 <br>【節目名稱】：903 生活日常 2016-06-21（HD）
 <br>【節目主持】：細So
@@ -203,9 +203,9 @@
 <br>【360雲盤】：http://adf.ly/1bQU9k
 <br>【360雲盤】：http://www.linkbucks.com/3PPd
 <br>【360密碼】：47be
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bQdmP
+<br>【百度雲盤】：http://www.linkbucks.com/3LJk
+<br>【百度密碼】：jvqu
 
 <br>【節目名稱】：881 串 2016-06-21（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
@@ -214,17 +214,17 @@
 <br>【360雲盤】：http://adf.ly/1bQU6g
 <br>【360雲盤】：http://www.linkbucks.com/3PPm
 <br>【360密碼】：cf5d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bQe1x
+<br>【百度雲盤】：http://www.linkbucks.com/3LIk
+<br>【百度密碼】：1336
 
 <br>【節目名稱】：881 書.情.歌 2016-06-21（HD）
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bQdei
+<br>【360雲盤】：http://www.linkbucks.com/3LJz
+<br>【360密碼】：2b1d
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -233,9 +233,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bQdWx
+<br>【360雲盤】：http://www.linkbucks.com/3LKL
+<br>【360密碼】：15fd
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -244,9 +244,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bQeOJ
+<br>【360雲盤】：http://www.linkbucks.com/3LEi
+<br>【360密碼】：767a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
