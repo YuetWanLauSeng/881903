@@ -159,9 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1bQ8S5
 <br>【360雲盤】：http://www.linkbucks.com/3QHq
 <br>【360密碼】：5937
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bQKHD
+<br>【百度雲盤】：http://www.linkbucks.com/3QyV
+<br>【百度密碼】：96hw
 
 <br>【節目名稱】：903 集雜志 2016-06-21（HD）
 <br>【節目主持】：急急子
@@ -170,9 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1bQGYr
 <br>【360雲盤】：http://www.linkbucks.com/3SHG
 <br>【360密碼】：03fc
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bQKEa
+<br>【百度雲盤】：http://www.linkbucks.com/3Qy7
+<br>【百度密碼】：p9if
 
 <br>【節目名稱】：881 人民大道中 2016-06-21（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -181,17 +181,17 @@
 <br>【360雲盤】：http://adf.ly/1bQHEa
 <br>【360雲盤】：http://www.linkbucks.com/3SCs
 <br>【360密碼】：0cbc
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bQKC0
+<br>【百度雲盤】：http://www.linkbucks.com/3QzO
+<br>【百度密碼】：axcm
 
 <br>【節目名稱】：881 杏林茶 2016-06-21（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bQK8j
+<br>【360雲盤】：http://www.linkbucks.com/3Qzd
+<br>【360密碼】：e851
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
