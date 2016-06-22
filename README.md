@@ -170,9 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1bSgmJ
 <br>【360雲盤】：http://www.linkbucks.com/4XD2
 <br>【360密碼】：220f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bSrq4
+<br>【百度雲盤】：http://www.linkbucks.com/4fB2
+<br>【百度密碼】：f4bf
 
 <br>【節目名稱】：881 人民大道中 2016-06-22（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -193,9 +193,9 @@
 <br>【360雲盤】：http://adf.ly/1bSgjT
 <br>【360雲盤】：http://www.linkbucks.com/4XRe
 <br>【360密碼】：96d0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bSru4
+<br>【百度雲盤】：http://www.linkbucks.com/4e5O
+<br>【百度密碼】：i44n
 
 <br>【節目名稱】：881 串 2016-06-22（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
@@ -224,9 +224,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bSsXK
+<br>【360雲盤】：http://www.linkbucks.com/4cha
+<br>【360密碼】：19af
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
