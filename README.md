@@ -2,9 +2,9 @@
 <br>【節目主持】：Wasabi | 嘉賓主持
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bSVef
+<br>【360雲盤】：http://www.linkbucks.com/rwsh
+<br>【360密碼】：8ae3
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -46,9 +46,9 @@
 <br>【節目主持】：陳志雲
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Under the Sun
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bSW99
+<br>【360雲盤】：http://www.linkbucks.com/qrem
+<br>【360密碼】：7d31
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -123,9 +123,9 @@
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：PR
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bSVbO
+<br>【360雲盤】：http://www.linkbucks.com/sU4k
+<br>【360密碼】：e55d
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -134,9 +134,9 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bSVw0
+<br>【360雲盤】：http://www.linkbucks.com/XKlW
+<br>【360密碼】：3ac6
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -145,9 +145,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bSWrM
+<br>【360雲盤】：http://www.linkbucks.com/miah
+<br>【360密碼】：2b75
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
