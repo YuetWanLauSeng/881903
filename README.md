@@ -225,9 +225,9 @@
 <br>【360雲盤】：http://adf.ly/1bQdei
 <br>【360雲盤】：http://www.linkbucks.com/3LJz
 <br>【360密碼】：2b1d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bRU0t
+<br>【百度雲盤】：http://www.linkbucks.com/3YS5
+<br>【百度密碼】：25u3
 
 <br>【節目名稱】：903 雲妮鍾情 2016-06-21（HD）
 <br>【節目主持】：Vani
@@ -236,9 +236,9 @@
 <br>【360雲盤】：http://adf.ly/1bQdWx
 <br>【360雲盤】：http://www.linkbucks.com/3LKL
 <br>【360密碼】：15fd
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bRVY5
+<br>【百度雲盤】：http://www.linkbucks.com/3Xuf
+<br>【百度密碼】：ajdt
 
 <br>【節目名稱】：881 光明頂 2016-06-21（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
@@ -247,9 +247,9 @@
 <br>【360雲盤】：http://adf.ly/1bQeOJ
 <br>【360雲盤】：http://www.linkbucks.com/3LEi
 <br>【360密碼】：767a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bRTuR
+<br>【百度雲盤】：http://www.linkbucks.com/3YTo
+<br>【百度密碼】：3hes
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-21（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
@@ -258,9 +258,9 @@
 <br>【360雲盤】：http://adf.ly/1bRR0u
 <br>【360雲盤】：http://www.linkbucks.com/3Yxm
 <br>【360密碼】：77c9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bRV1V
+<br>【百度雲盤】：http://www.linkbucks.com/3Xw9
+<br>【百度密碼】：euwb
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-21（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
@@ -269,9 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1bRQos
 <br>【360雲盤】：http://www.linkbucks.com/3YyM
 <br>【360密碼】：d592
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bRU4H
+<br>【百度雲盤】：http://www.linkbucks.com/3YSd
+<br>【百度密碼】：g7gw
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-21（HD）
 <br>【節目主持】：Colin
@@ -280,9 +280,9 @@
 <br>【360雲盤】：http://adf.ly/1bRQvC
 <br>【360雲盤】：http://www.linkbucks.com/3Yx0
 <br>【360密碼】：6a59
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bRU7L
+<br>【百度雲盤】：http://www.linkbucks.com/3YSF
+<br>【百度密碼】：dhh4
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-06-21（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
@@ -291,6 +291,6 @@
 <br>【360雲盤】：http://adf.ly/1bRQks
 <br>【360雲盤】：http://www.linkbucks.com/3Yyj
 <br>【360密碼】：7090
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bRVrD
+<br>【百度雲盤】：http://www.linkbucks.com/3Xs2
+<br>【百度密碼】：31e8
