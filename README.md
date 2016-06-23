@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1bU6nv
 <br>【360雲盤】：http://www.linkbucks.com/AEaEX
 <br>【360密碼】：0bec
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUJgY
+<br>【百度雲盤】：http://www.linkbucks.com/AHCFr
+<br>【百度密碼】：sgmw
 
 <br>【節目名稱】：903 早安，同學早! 2016-06-23（HD）
 <br>【節目主持】：西瓜
@@ -16,9 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1bU6eU
 <br>【360雲盤】：http://www.linkbucks.com/AEcfb
 <br>【360密碼】：83a8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUJkk
+<br>【百度雲盤】：http://www.linkbucks.com/AG8hM
+<br>【百度密碼】：jsun
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-06-23（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
@@ -27,9 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1bU6ha
 <br>【360雲盤】：http://www.linkbucks.com/AEcUi
 <br>【360密碼】：40f6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUJck
+<br>【百度雲盤】：http://www.linkbucks.com/AHPHr
+<br>【百度密碼】：x8p9
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-06-23（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -38,9 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1bU6rC
 <br>【360雲盤】：http://www.linkbucks.com/AEZvM
 <br>【360密碼】：f0cc
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUJec
+<br>【百度雲盤】：http://www.linkbucks.com/AHPES
+<br>【百度密碼】：sfh9
 
 <br>【節目名稱】：881 雲常開 2016-06-23（HD）
 <br>【節目主持】：陳志雲
@@ -49,9 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1bU6kK
 <br>【360雲盤】：http://www.linkbucks.com/AEb8B
 <br>【360密碼】：aac8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUJac
+<br>【百度雲盤】：http://www.linkbucks.com/AGQys
+<br>【百度密碼】：6y2c
 
 <br>【節目名稱】：881 1圈圈 2016-06-23（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -60,9 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1bU6US
 <br>【360雲盤】：http://www.linkbucks.com/AEc9X
 <br>【360密碼】：73db
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUJmi
+<br>【百度雲盤】：http://www.linkbucks.com/AG1rK
+<br>【百度密碼】：c9gc
 
 <br>【節目名稱】：903 早霸王 2016-06-23（HD）
 <br>【節目主持】：森美 | 小儀
@@ -71,9 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1bU6Ma
 <br>【360雲盤】：http://www.linkbucks.com/AEesT
 <br>【360密碼】：dee2
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUJit
+<br>【百度雲盤】：http://www.linkbucks.com/AG8ki
+<br>【百度密碼】：9ja4
 
 <br>【節目名稱】：881 十八樓C座 2016-06-23（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -82,53 +82,53 @@
 <br>【360雲盤】：http://adf.ly/1bU6vD
 <br>【360雲盤】：http://www.linkbucks.com/AEZDJ
 <br>【360密碼】：465d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUJoe
+<br>【百度雲盤】：http://www.linkbucks.com/AG1cv
+<br>【百度密碼】：4uvw
 
 <br>【節目名稱】：881 一點叮一叮 2016-06-23（HD）
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bUOFl
+<br>【360雲盤】：http://www.linkbucks.com/AHv5M
+<br>【360密碼】：b296
+<br>【百度雲盤】：http://adf.ly/1bUOfz
+<br>【百度雲盤】：http://www.linkbucks.com/AHuwJ
+<br>【百度密碼】：hhwr
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-23（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bUOPu
+<br>【360雲盤】：http://www.linkbucks.com/AHvgv
+<br>【360密碼】：c631
+<br>【百度雲盤】：http://adf.ly/1bUOW7
+<br>【百度雲盤】：http://www.linkbucks.com/AHvFv
+<br>【百度密碼】：vbie
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-23（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bUO85
+<br>【360雲盤】：http://www.linkbucks.com/AH1TQ
+<br>【360密碼】：1631
+<br>【百度雲盤】：http://adf.ly/1bUOe7
+<br>【百度雲盤】：http://www.linkbucks.com/AHu2Q
+<br>【百度密碼】：k1uc
 
 <br>【節目名稱】：903 關公災難 2016-06-23（HD）
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：PR
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bUOSA
+<br>【360雲盤】：http://www.linkbucks.com/AHvbp
+<br>【360密碼】：6dc0
+<br>【百度雲盤】：http://adf.ly/1bUOUF
+<br>【百度雲盤】：http://www.linkbucks.com/AHvNW
+<br>【百度密碼】：996p
 
 <br>【節目名稱】：881 大玩派 2016-06-23（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
