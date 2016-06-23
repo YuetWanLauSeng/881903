@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1bURTw
 <br>【360雲盤】：http://www.linkbucks.com/AIiOh
 <br>【360密碼】：46ca
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUqFz
+<br>【百度雲盤】：http://www.linkbucks.com/AJXg
+<br>【百度密碼】：w99e
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-23（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -148,9 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1bURQi
 <br>【360雲盤】：http://www.linkbucks.com/AIiTa
 <br>【360密碼】：ed85
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUqDb
+<br>【百度雲盤】：http://www.linkbucks.com/AJ54
+<br>【百度密碼】：9cfs
 
 <br>【節目名稱】：903 毒檸王國 2016-06-23（HD）
 <br>【節目主持】：檸
@@ -159,9 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1bUjE6
 <br>【360雲盤】：http://www.linkbucks.com/AKqdc
 <br>【360密碼】：88a6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUqBL
+<br>【百度雲盤】：http://www.linkbucks.com/AKHb
+<br>【百度密碼】：qx59
 
 <br>【節目名稱】：903 集雜志 2016-06-23（HD）
 <br>【節目主持】：急急子
@@ -170,9 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1bUmiC
 <br>【360雲盤】：http://www.linkbucks.com/AKWtB
 <br>【360密碼】：626a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUq74
+<br>【百度雲盤】：http://www.linkbucks.com/AKzR
+<br>【百度密碼】：dub4
 
 <br>【節目名稱】：881 人民大道中 2016-06-23（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -181,17 +181,17 @@
 <br>【360雲盤】：http://adf.ly/1bUmfZ
 <br>【360雲盤】：http://www.linkbucks.com/AKXBq
 <br>【360密碼】：1a23
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bUq90
+<br>【百度雲盤】：http://www.linkbucks.com/AKfN
+<br>【百度密碼】：8gp7
 
 <br>【節目名稱】：881 杏林茶 2016-06-23（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bUq2q
+<br>【360雲盤】：http://www.linkbucks.com/AK8b
+<br>【360密碼】：6181
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
