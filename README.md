@@ -200,51 +200,51 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bUwdG
+<br>【360雲盤】：http://www.linkbucks.com/BwWF
+<br>【360密碼】：2d24
+<br>【百度雲盤】：http://adf.ly/1bUwg5
+<br>【百度雲盤】：http://www.linkbucks.com/BvsD
+<br>【百度密碼】：4282
 
 <br>【節目名稱】：881 串 2016-06-23（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bUwW3
+<br>【360雲盤】：http://www.linkbucks.com/Bwhe
+<br>【360密碼】：bfa6
+<br>【百度雲盤】：http://adf.ly/1bUwao
+<br>【百度雲盤】：http://www.linkbucks.com/BwT9
+<br>【百度密碼】：yut2
 
 <br>【節目名稱】：881 書.情.歌 2016-06-23（HD）
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bUzuJ
+<br>【360雲盤】：http://www.linkbucks.com/BR4n
+<br>【360密碼】：5839
+<br>【百度雲盤】：http://adf.ly/1bV1Br
+<br>【百度雲盤】：http://www.linkbucks.com/BGHR
+<br>【百度密碼】：8i31
 
 <br>【節目名稱】：903 雲妮鍾情 2016-06-23（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bUzxZ
+<br>【360雲盤】：http://www.linkbucks.com/BRxI
+<br>【360密碼】：96b8
+<br>【百度雲盤】：http://adf.ly/1bV1A4
+<br>【百度雲盤】：http://www.linkbucks.com/BGzW
+<br>【百度密碼】：kndg
 
 <br>【節目名稱】：881 光明頂 2016-06-23（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
+<br>【360雲盤】：早上發布
 <br>【360雲盤】：
 <br>【360密碼】：
 <br>【百度雲盤】：
