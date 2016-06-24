@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1bWFQb
 <br>【360雲盤】：http://www.linkbucks.com/ASoeL
 <br>【360密碼】：8645
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWkwF
+<br>【百度雲盤】：http://www.linkbucks.com/AWI0g
+<br>【百度密碼】：na4b
 
 <br>【節目名稱】：903 早安，同學早! 2016-06-24（HD）
 <br>【節目主持】：西瓜
@@ -16,9 +16,9 @@
 <br>【360雲盤】：http://adf.ly/1bWFNC
 <br>【360雲盤】：http://www.linkbucks.com/ASopJ
 <br>【360密碼】：ec36
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWl83
+<br>【百度雲盤】：http://www.linkbucks.com/AWIKv
+<br>【百度密碼】：vew3
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-06-24（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
@@ -27,9 +27,9 @@
 <br>【360雲盤】：http://adf.ly/1bWFLb
 <br>【360雲盤】：http://www.linkbucks.com/ASowA
 <br>【360密碼】：963a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWkyY
+<br>【百度雲盤】：http://www.linkbucks.com/AWIwk
+<br>【百度密碼】：zvzw
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-06-24（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -38,9 +38,9 @@
 <br>【360雲盤】：http://adf.ly/1bWFOW
 <br>【360雲盤】：http://www.linkbucks.com/ASon1
 <br>【360密碼】：87e9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWl0E
+<br>【百度雲盤】：http://www.linkbucks.com/AWIgT
+<br>【百度密碼】：kip9
 
 <br>【節目名稱】：881 雲常開 2016-06-24（HD）
 <br>【節目主持】：陳志雲
@@ -49,9 +49,9 @@
 <br>【360雲盤】：http://adf.ly/1bWFSx
 <br>【360雲盤】：http://www.linkbucks.com/ASoXj
 <br>【360密碼】：9028
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWl2h
+<br>【百度雲盤】：http://www.linkbucks.com/AWIae
+<br>【百度密碼】：4xce
 
 <br>【節目名稱】：881 1圈圈 2016-06-24（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -60,9 +60,9 @@
 <br>【360雲盤】：http://adf.ly/1bWFVB
 <br>【360雲盤】：http://www.linkbucks.com/ASoUO
 <br>【360密碼】：a73c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWlAe
+<br>【百度雲盤】：http://www.linkbucks.com/AWII9
+<br>【百度密碼】：fjvq
 
 <br>【節目名稱】：903 早霸王 2016-06-24（HD）
 <br>【節目主持】：森美 | 小儀
@@ -71,9 +71,9 @@
 <br>【360雲盤】：http://adf.ly/1bWFWz
 <br>【360雲盤】：http://www.linkbucks.com/ASoPh
 <br>【360密碼】：2ea4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWl55
+<br>【百度雲盤】：http://www.linkbucks.com/AWIQv
+<br>【百度密碼】：26mc
 
 <br>【節目名稱】：881 十八樓C座 2016-06-24（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -82,9 +82,9 @@
 <br>【360雲盤】：http://adf.ly/1bWFJW
 <br>【360雲盤】：http://www.linkbucks.com/ASo2h
 <br>【360密碼】：d146
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWksw
+<br>【百度雲盤】：http://www.linkbucks.com/AWI38
+<br>【百度密碼】：xmew
 
 <br>【節目名稱】：881 一點叮一叮 2016-06-24（HD）
 <br>【節目主持】：何飛鳳
@@ -93,20 +93,20 @@
 <br>【360雲盤】：http://adf.ly/1bWjGu
 <br>【360雲盤】：http://www.linkbucks.com/AWRQh
 <br>【360密碼】：8072
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWlEw
+<br>【百度雲盤】：http://www.linkbucks.com/AWHjF
+<br>【百度密碼】：v465
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-24（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bWkgf
+<br>【360雲盤】：http://www.linkbucks.com/AWJZj
+<br>【360密碼】：4062
+<br>【百度雲盤】：http://adf.ly/1bWkeX
+<br>【百度雲盤】：http://www.linkbucks.com/AWJb4
+<br>【百度密碼】：buku
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-24（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -115,9 +115,9 @@
 <br>【360雲盤】：http://adf.ly/1bWjBr
 <br>【360雲盤】：http://www.linkbucks.com/AWSnE
 <br>【360密碼】：9ff8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWko3
+<br>【百度雲盤】：http://www.linkbucks.com/AWJJ9
+<br>【百度密碼】：rxxf
 
 <br>【節目名稱】：903 關公災難 2016-06-24（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -126,9 +126,9 @@
 <br>【360雲盤】：http://adf.ly/1bWjId
 <br>【360雲盤】：http://www.linkbucks.com/AWRM3
 <br>【360密碼】：bf4e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWkmD
+<br>【百度雲盤】：http://www.linkbucks.com/AWJPA
+<br>【百度密碼】：cppa
 
 <br>【節目名稱】：881 大玩派 2016-06-24（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1bWjKB
 <br>【360雲盤】：http://www.linkbucks.com/AWPzQ
 <br>【360密碼】：c2f6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWkXp
+<br>【百度雲盤】：http://www.linkbucks.com/AWJjS
+<br>【百度密碼】：pisn
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-24（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -148,9 +148,9 @@
 <br>【360雲盤】：http://adf.ly/1bWjLB
 <br>【360雲盤】：http://www.linkbucks.com/AWPv9
 <br>【360密碼】：4f1f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bWkas
+<br>【百度雲盤】：http://www.linkbucks.com/AWJiF
+<br>【百度密碼】：xfaj
 
 <br>【節目名稱】：903 毒檸王國 2016-06-24（HD）
 <br>【節目主持】：檸
