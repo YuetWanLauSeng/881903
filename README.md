@@ -156,9 +156,9 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bWrSk
+<br>【360雲盤】：http://www.linkbucks.com/AXG2a
+<br>【360密碼】：0baf
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -167,9 +167,9 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bWrJK
+<br>【360雲盤】：http://www.linkbucks.com/AXHRC
+<br>【360密碼】：cea0
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -178,9 +178,9 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bWrQS
+<br>【360雲盤】：http://www.linkbucks.com/AXG6U
+<br>【360密碼】：7a2a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
