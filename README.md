@@ -159,9 +159,9 @@
 <br>【360雲盤】：http://adf.ly/1bWrSk
 <br>【360雲盤】：http://www.linkbucks.com/AXG2a
 <br>【360密碼】：0baf
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY1Zq
+<br>【百度雲盤】：http://www.linkbucks.com/AjmNB
+<br>【百度密碼】：tz28
 
 <br>【節目名稱】：903 集雜志 2016-06-24（HD）
 <br>【節目主持】：急急子
@@ -170,9 +170,9 @@
 <br>【360雲盤】：http://adf.ly/1bWrJK
 <br>【360雲盤】：http://www.linkbucks.com/AXHRC
 <br>【360密碼】：cea0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY1VT
+<br>【百度雲盤】：http://www.linkbucks.com/AjmmF
+<br>【百度密碼】：qsh8
 
 <br>【節目名稱】：881 人民大道中 2016-06-24（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -181,9 +181,9 @@
 <br>【360雲盤】：http://adf.ly/1bWrQS
 <br>【360雲盤】：http://www.linkbucks.com/AXG6U
 <br>【360密碼】：7a2a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY1Qx
+<br>【百度雲盤】：http://www.linkbucks.com/AjoQf
+<br>【百度密碼】：qup6
 
 <br>【節目名稱】：881 杏林茶 2016-06-24（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -192,9 +192,9 @@
 <br>【360雲盤】：http://adf.ly/1bWyCs
 <br>【360雲盤】：http://www.linkbucks.com/AYLCP
 <br>【360密碼】：a372
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY1ES
+<br>【百度雲盤】：http://www.linkbucks.com/AjsWP
+<br>【百度密碼】：jjit
 
 <br>【節目名稱】：903 生活日常 2016-06-24（HD）
 <br>【節目主持】：細So
@@ -203,9 +203,9 @@
 <br>【360雲盤】：http://adf.ly/1bX2kl
 <br>【360雲盤】：http://www.linkbucks.com/AZXjN
 <br>【360密碼】：3758
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY1H5
+<br>【百度雲盤】：http://www.linkbucks.com/Ajrst
+<br>【百度密碼】：kug2
 
 <br>【節目名稱】：881 串 2016-06-24（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
@@ -214,9 +214,15 @@
 <br>【360雲盤】：http://adf.ly/1bX2wF
 <br>【360雲盤】：http://www.linkbucks.com/AZV46
 <br>【360密碼】：b8df
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY1Lr
+<br>【百度雲盤】：http://www.linkbucks.com/AjqBe
+<br>【百度密碼】：28vn
+
+<br>【節目名稱】：881 書.情.歌 2016-06-24（HD）
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time
+<br>【節目暫停】：本期改為播出解困學貫中西
 
 <br>【節目名稱】：881解困學貫中西2016-06-24（HD）
 <br>【節目主持】：黃永
@@ -225,9 +231,9 @@
 <br>【360雲盤】：http://adf.ly/1bXtSd
 <br>【360雲盤】：http://www.linkbucks.com/AfiUd
 <br>【360密碼】：47bc
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY0kt
+<br>【百度雲盤】：http://www.linkbucks.com/Akbvf
+<br>【百度密碼】：mg9s
 
 <br>【節目名稱】：903 雲妮鍾情 2016-06-24（HD）
 <br>【節目主持】：Vani
@@ -236,9 +242,9 @@
 <br>【360雲盤】：http://adf.ly/1bXtWr
 <br>【360雲盤】：http://www.linkbucks.com/AfiMF
 <br>【360密碼】：557e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY0po
+<br>【百度雲盤】：http://www.linkbucks.com/Akajp
+<br>【百度密碼】：wqhp
 
 <br>【節目名稱】：881 光明頂 2016-06-24（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
@@ -247,9 +253,9 @@
 <br>【360雲盤】：http://adf.ly/1bXtPs
 <br>【360雲盤】：http://www.linkbucks.com/Afidk
 <br>【360密碼】：4e38
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY0un
+<br>【百度雲盤】：http://www.linkbucks.com/Ajxq9
+<br>【百度密碼】：x3pb
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-24（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
@@ -258,9 +264,9 @@
 <br>【360雲盤】：http://adf.ly/1bXtN2
 <br>【360雲盤】：http://www.linkbucks.com/Afihq
 <br>【360密碼】：a7eb
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY0ry
+<br>【百度雲盤】：http://www.linkbucks.com/AkZWh
+<br>【百度密碼】：9gas
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-24（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
@@ -269,9 +275,9 @@
 <br>【360雲盤】：http://adf.ly/1bXyw3
 <br>【360雲盤】：http://www.linkbucks.com/Ak027
 <br>【360密碼】：51f9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY1AF
+<br>【百度雲盤】：http://www.linkbucks.com/AjtjV
+<br>【百度密碼】：4va3
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-24（HD）
 <br>【節目主持】：Colin
@@ -280,9 +286,9 @@
 <br>【360雲盤】：http://adf.ly/1bXyyU
 <br>【360雲盤】：http://www.linkbucks.com/Ak0wh
 <br>【360密碼】：e636
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY0un
+<br>【百度雲盤】：http://www.linkbucks.com/AjuFb
+<br>【百度密碼】：qdgn
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-06-24（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
@@ -291,6 +297,6 @@
 <br>【360雲盤】：http://adf.ly/1bXz2N
 <br>【360雲盤】：http://www.linkbucks.com/Akzvg
 <br>【360密碼】：e6b3
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bY0nC
+<br>【百度雲盤】：http://www.linkbucks.com/AkauC
+<br>【百度密碼】：r9ed
