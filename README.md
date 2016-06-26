@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1baNk9
 <br>【360雲盤】：http://www.linkbucks.com/A6MyP
 <br>【360密碼】：10d7
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1baTeQ
+<br>【百度雲盤】：http://www.linkbucks.com/A6ZVc
+<br>【百度密碼】：986h
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 政好星期天 2016-06-26（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1baNZq
 <br>【360雲盤】：http://www.linkbucks.com/A6N6x
 <br>【360密碼】：2bb4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1baTg2
+<br>【百度雲盤】：http://www.linkbucks.com/A6ZOq
+<br>【百度密碼】：36vm
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 Urban Touch 2016-06-26（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1baOPY
 <br>【360雲盤】：http://www.linkbucks.com/A6KuR
 <br>【360密碼】：c0df
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1baTXI
+<br>【百度雲盤】：http://www.linkbucks.com/A6ZWH
+<br>【百度密碼】：6xi2
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 阿叔殖民地 2016-06-26（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1baNet
 <br>【360雲盤】：http://www.linkbucks.com/A6N2B
 <br>【360密碼】：287d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1baTjE
+<br>【百度雲盤】：http://www.linkbucks.com/A6ZLf
+<br>【百度密碼】：ej78
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 讀賣Sunday 2016-06-26（HD）
@@ -53,18 +53,18 @@
 <br>【360雲盤】：http://adf.ly/1baNly
 <br>【360雲盤】：http://www.linkbucks.com/A6Mqp
 <br>【360密碼】：54bf
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1baUFp
+<br>【百度雲盤】：http://www.linkbucks.com/A6XZT
+<br>【百度密碼】：87xh
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 無定向喪煲病狂 2016-06-26（HD）
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Binge-Watch
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1baUD4
+<br>【360雲盤】：http://www.linkbucks.com/A6XbX
+<br>【360密碼】：afcf
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
