@@ -8,7 +8,7 @@
 <br>【百度雲盤】：http://adf.ly/1bYVb1
 <br>【百度雲盤】：http://www.linkbucks.com/Aq6Ge
 <br>【百度密碼】：nmdj
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：881 政經星期六 2016-06-25（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -20,7 +20,7 @@
 <br>【百度雲盤】：http://adf.ly/1bYViT
 <br>【百度雲盤】：http://www.linkbucks.com/AsKdd
 <br>【百度密碼】：rnm6
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 西加航空 2016-06-25（HD）
 <br>【節目主持】：謝茜嘉
@@ -32,7 +32,7 @@
 <br>【百度雲盤】：http://adf.ly/1bYVYQ
 <br>【百度雲盤】：http://www.linkbucks.com/Aq7B3
 <br>【百度密碼】：z9n1
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：881 不平平則鳴 2016-06-25（HD）
 <br>【節目主持】：陳聰 | 王永平
@@ -44,7 +44,7 @@
 <br>【百度雲盤】：http://adf.ly/1bYVkl
 <br>【百度雲盤】：http://www.linkbucks.com/AsKX1
 <br>【百度密碼】：j2ky
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：881 考股專家 2016-06-25（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -56,7 +56,7 @@
 <br>【百度雲盤】：http://adf.ly/1bYVfU
 <br>【百度雲盤】：http://www.linkbucks.com/Aq6Es
 <br>【百度密碼】：c2px
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 903 專業推介 2016-06-25（HD）
 <br>【節目主持】：Donald
@@ -68,7 +68,7 @@
 <br>【百度雲盤】：http://adf.ly/1bYX0c
 <br>【百度雲盤】：http://www.linkbucks.com/AsEDm
 <br>【百度密碼】：zfve
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 咪芝蓮 2016-06-25（HD）
 <br>【節目主持】：小儀
@@ -80,7 +80,7 @@
 <br>【百度雲盤】：http://adf.ly/1bYX2k
 <br>【百度雲盤】：http://www.linkbucks.com/AsD3k
 <br>【百度密碼】：pz4p
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 咆哮山莊 2016-06-25（HD）
 <br>【節目主持】：903 DJ
@@ -92,7 +92,7 @@
 <br>【百度雲盤】：http://adf.ly/1bYWyC
 <br>【百度雲盤】：http://www.linkbucks.com/AsEIQ
 <br>【百度密碼】：ivib
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：881 1圈圈 2016-06-25（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -104,7 +104,7 @@
 <br>【百度雲盤】：http://adf.ly/1bZ6cm
 <br>【百度雲盤】：http://www.linkbucks.com/AwEhR
 <br>【百度密碼】：npi7
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 903 豁達推介 2016-06-25（HD）
 <br>【節目主持】：梁文禮
@@ -116,7 +116,7 @@
 <br>【百度雲盤】：http://adf.ly/1bZ6h9
 <br>【百度雲盤】：http://www.linkbucks.com/AwD9T
 <br>【百度密碼】：6aek
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 3號螺絲釘 2016-06-25（HD）
 <br>【節目主持】：Colin
@@ -128,7 +128,7 @@
 <br>【百度雲盤】：http://adf.ly/1bZ6el
 <br>【百度雲盤】：http://www.linkbucks.com/AwEG6
 <br>【百度密碼】：prfu
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 西瓜大發 ! 2016-06-25（HD）
 <br>【節目主持】：西瓜
@@ -140,7 +140,7 @@
 <br>【百度雲盤】：http://adf.ly/1bZ6ar
 <br>【百度雲盤】：http://www.linkbucks.com/Au7yJ
 <br>【百度密碼】：5sdd
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-06-25（HD）
 <br>【節目主持】：楊美琪
@@ -152,7 +152,7 @@
 <br>【百度雲盤】：http://adf.ly/1baCj7
 <br>【百度雲盤】：http://www.linkbucks.com/A4ml0
 <br>【百度密碼】：bnmg
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 Chi Chung's Class 2016-06-25（HD）
 <br>【節目主持】：黃志淙
@@ -164,7 +164,7 @@
 <br>【百度雲盤】：http://adf.ly/1baCbO
 <br>【百度雲盤】：http://www.linkbucks.com/A3ptu
 <br>【百度密碼】：5sr8
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 公子會 2016-06-25（HD）
 <br>【節目主持】：森美
@@ -176,7 +176,7 @@
 <br>【百度雲盤】：http://adf.ly/1baCZn
 <br>【百度雲盤】：http://www.linkbucks.com/A3py5
 <br>【百度密碼】：6fbp
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：881 發式生活 2016-06-25（HD） 
 <br>【節目主持】：余宜發
@@ -188,7 +188,7 @@
 <br>【百度雲盤】：http://adf.ly/1baChN
 <br>【百度雲盤】：http://www.linkbucks.com/A4mqT
 <br>【百度密碼】：mc3n
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：903 皇牌出場 2016-06-25（HD）
 <br>【節目主持】：Marco | Keyman
@@ -200,7 +200,7 @@
 <br>【百度雲盤】：http://adf.ly/1baCfQ
 <br>【百度雲盤】：http://www.linkbucks.com/A3pgp
 <br>【百度密碼】：cycm
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-06-25（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
@@ -212,4 +212,4 @@
 <br>【百度雲盤】：http://adf.ly/1baCdf
 <br>【百度雲盤】：http://www.linkbucks.com/A3piA
 <br>【百度密碼】：eeda
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://v.ctfile.com/info/Qxs188681
