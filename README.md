@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1baUD4
 <br>【360雲盤】：http://www.linkbucks.com/A6XbX
 <br>【360密碼】：afcf
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1baVcj
+<br>【百度雲盤】：http://www.linkbucks.com/A7JO1
+<br>【百度密碼】：xbi2
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 Mali Mali Home 2016-06-26（HD）
