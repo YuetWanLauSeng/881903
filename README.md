@@ -146,9 +146,9 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bcZ8H
+<br>【360雲盤】：http://www.linkbucks.com/BFvPo
+<br>【360密碼】：f142
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -158,9 +158,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bcZ6C
+<br>【360雲盤】：http://www.linkbucks.com/BFvUd
+<br>【360密碼】：5827
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
