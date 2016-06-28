@@ -242,9 +242,9 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bdkKb
+<br>【360雲盤】：http://www.linkbucks.com/BLURI
+<br>【360密碼】：3918
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -254,9 +254,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bdkIB
+<br>【360雲盤】：http://www.linkbucks.com/BLUc1
+<br>【360密碼】：c957
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -278,9 +278,9 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bdkG9
+<br>【360雲盤】：http://www.linkbucks.com/BKbUR
+<br>【360密碼】：286d
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -290,9 +290,9 @@
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bdkDb
+<br>【360雲盤】：http://www.linkbucks.com/BKbWt
+<br>【360密碼】：71be
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -302,9 +302,9 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bdk8K
+<br>【360雲盤】：http://www.linkbucks.com/BKbb1
+<br>【360密碼】：bc3c
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -314,9 +314,9 @@
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bdkAj
+<br>【360雲盤】：http://www.linkbucks.com/BKbXn
+<br>【360密碼】：4a36
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
