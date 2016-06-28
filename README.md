@@ -209,9 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1beyS8
 <br>【360雲盤】：http://www.linkbucks.com/BP9bk
 <br>【360密碼】：ea67
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bf4cJ
+<br>【百度雲盤】：http://www.linkbucks.com/BQIEa
+<br>【百度密碼】：pmd4
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-06-28（HD）
@@ -221,9 +221,9 @@
 <br>【360雲盤】：http://adf.ly/1beyZS
 <br>【360雲盤】：http://www.linkbucks.com/BP84f
 <br>【360密碼】：aaca
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bf4aW
+<br>【百度雲盤】：http://www.linkbucks.com/BQIIS
+<br>【百度密碼】：5fvi
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-06-28（HD）
@@ -233,45 +233,45 @@
 <br>【360雲盤】：http://adf.ly/1beyUt
 <br>【360雲盤】：http://www.linkbucks.com/BP9Nb
 <br>【360密碼】：992f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bf4dw
+<br>【百度雲盤】：http://www.linkbucks.com/BQIDw
+<br>【百度密碼】：f5cd
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 書.情.歌 2016-06-28（HD）
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bf4RU
+<br>【360雲盤】：http://www.linkbucks.com/BQJ8F
+<br>【360密碼】：e750
+<br>【百度雲盤】：http://adf.ly/1bf4Yy
+<br>【百度雲盤】：http://www.linkbucks.com/BQIR4
+<br>【百度密碼】：jrks
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-06-28（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bf4Sy
+<br>【360雲盤】：http://www.linkbucks.com/BQIfV
+<br>【360密碼】：a9d0
+<br>【百度雲盤】：http://adf.ly/1bf4XD
+<br>【百度雲盤】：http://www.linkbucks.com/BQIWQ
+<br>【百度密碼】：2tj6
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-06-28（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bf4UN
+<br>【360雲盤】：http://www.linkbucks.com/BQIeL
+<br>【360密碼】：8030
+<br>【百度雲盤】：http://adf.ly/1bf5CM
+<br>【百度雲盤】：http://www.linkbucks.com/BQG8z
+<br>【百度密碼】：vcvf
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-28（HD）
