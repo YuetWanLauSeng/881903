@@ -242,9 +242,9 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：http://adf.ly/1bdkKb
-<br>【360雲盤】：http://www.linkbucks.com/BLURI
-<br>【360密碼】：3918
+<br>【360雲盤】：http://adf.ly/1bdkaC
+<br>【360雲盤】：http://www.linkbucks.com/BLP95
+<br>【360密碼】：5050
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -266,9 +266,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bdkKb
+<br>【360雲盤】：http://www.linkbucks.com/BLQWw
+<br>【360密碼】：3918
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
