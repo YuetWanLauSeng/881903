@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1bgLfa
 <br>【360雲盤】：http://www.linkbucks.com/BUr5s
 <br>【360密碼】：baed
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bgOjw
+<br>【百度雲盤】：http://www.linkbucks.com/BVBNJ
+<br>【百度密碼】：5f2y
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 叱咤樂壇 2016-06-29（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1bgLkj
 <br>【360雲盤】：http://www.linkbucks.com/BUryR
 <br>【360密碼】：3a6c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bgOfR
+<br>【百度雲盤】：http://www.linkbucks.com/BVBRf
+<br>【百度密碼】：pbw8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-06-29（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1bgLir
 <br>【360雲盤】：http://www.linkbucks.com/BUr09
 <br>【360密碼】：c89c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bgOho
+<br>【百度雲盤】：http://www.linkbucks.com/BVBPK
+<br>【百度密碼】：e126
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 關公災難 2016-06-29（HD）
@@ -137,33 +137,33 @@
 <br>【360雲盤】：http://adf.ly/1bgLWq
 <br>【360雲盤】：http://www.linkbucks.com/BUsk8
 <br>【360密碼】：6292
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bgOcQ
+<br>【百度雲盤】：http://www.linkbucks.com/BVBVY
+<br>【百度密碼】：vhjm
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-06-29（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bgRS5
+<br>【360雲盤】：http://www.linkbucks.com/BU6C5
+<br>【360密碼】：053e
+<br>【百度雲盤】：http://adf.ly/1bgTpQ
+<br>【百度雲盤】：http://www.linkbucks.com/BVZuu
+<br>【百度密碼】：1kad
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-06-29（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bgSPB
+<br>【360雲盤】：http://www.linkbucks.com/BU5VA
+<br>【360密碼】：f522
+<br>【百度雲盤】：http://adf.ly/1bgTlv
+<br>【百度雲盤】：http://www.linkbucks.com/BVa9j
+<br>【百度密碼】：5wpa
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-06-29（HD）
