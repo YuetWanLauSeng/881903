@@ -245,9 +245,9 @@
 <br>【360雲盤】：http://adf.ly/1bhgSS
 <br>【360雲盤】：http://www.linkbucks.com/3mzZ
 <br>【360密碼】：0669
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bhi1Y
+<br>【百度雲盤】：http://www.linkbucks.com/3mcJ
+<br>【百度密碼】：cyfy
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-06-29（HD）
@@ -257,9 +257,9 @@
 <br>【360雲盤】：http://adf.ly/1bhgQH
 <br>【360雲盤】：http://www.linkbucks.com/3mz6
 <br>【360密碼】：88ca
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bhhzL
+<br>【百度雲盤】：http://www.linkbucks.com/3mar
+<br>【百度密碼】：w9qv
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-06-29（HD）
@@ -269,9 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1bhgLK
 <br>【360雲盤】：http://www.linkbucks.com/3m1x
 <br>【360密碼】：2855
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bhhok
+<br>【百度雲盤】：http://www.linkbucks.com/3mX4
+<br>【百度密碼】：jq32
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-06-29（HD）
@@ -281,9 +281,9 @@
 <br>【360雲盤】：http://adf.ly/1bhgOL
 <br>【360雲盤】：http://www.linkbucks.com/3m1j
 <br>【360密碼】：3fe8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bhhS7
+<br>【百度雲盤】：http://www.linkbucks.com/3mWX
+<br>【百度密碼】：ncfp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-06-29（HD）
@@ -293,9 +293,9 @@
 <br>【360雲盤】：http://adf.ly/1bhgI4
 <br>【360雲盤】：http://www.linkbucks.com/3m28
 <br>【360密碼】：554a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bhhxL
+<br>【百度雲盤】：http://www.linkbucks.com/3mZ6
+<br>【百度密碼】：su49
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 廣東爆谷 2016-06-29（HD）
@@ -305,9 +305,9 @@
 <br>【360雲盤】：http://adf.ly/1bhgFZ
 <br>【360雲盤】：http://www.linkbucks.com/3m5I
 <br>【360密碼】：2175
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bhhvG
+<br>【百度雲盤】：http://www.linkbucks.com/3mZZ
+<br>【百度密碼】：hy2h
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-06-29（HD）
@@ -317,7 +317,7 @@
 <br>【360雲盤】：http://adf.ly/1bhg9r
 <br>【360雲盤】：http://www.linkbucks.com/3m6r
 <br>【360密碼】：abe0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bhhQ3
+<br>【百度雲盤】：http://www.linkbucks.com/3mV3
+<br>【百度密碼】：8tth
 <br>【城通雲盤】：翌日更新
