@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1bjzZK
 <br>【360雲盤】：http://www.linkbucks.com/3jqZ
 <br>【360密碼】：a97d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkJOu
+<br>【百度雲盤】：http://www.linkbucks.com/31BI
+<br>【百度密碼】：php1
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早安，同學早! 2016-07-01（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1bjzXV
 <br>【360雲盤】：http://www.linkbucks.com/3jq1
 <br>【360密碼】：60cd
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkJZQ
+<br>【百度雲盤】：http://www.linkbucks.com/31Aa
+<br>【百度密碼】：tm59
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-07-01（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1bjzQJ
 <br>【360雲盤】：http://www.linkbucks.com/3jrd
 <br>【360密碼】：9fcb
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkJRh
+<br>【百度雲盤】：http://www.linkbucks.com/31BD
+<br>【百度密碼】：bjw8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-07-01（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1bjzSK
 <br>【360雲盤】：http://www.linkbucks.com/3jrQ
 <br>【360密碼】：1643
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkJVU
+<br>【百度雲盤】：http://www.linkbucks.com/31A9
+<br>【百度密碼】：gwmp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雲常開 2016-07-01（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1bjzVB
 <br>【360雲盤】：http://www.linkbucks.com/3jq9
 <br>【360密碼】：169a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkJdZ
+<br>【百度雲盤】：http://www.linkbucks.com/31AH
+<br>【百度密碼】：jc24
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-07-01（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1bjzO6
 <br>【360雲盤】：http://www.linkbucks.com/3jrs
 <br>【360密碼】：3c8a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkJbh
+<br>【百度雲盤】：http://www.linkbucks.com/31AP
+<br>【百度密碼】：6hid
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早霸王 2016-07-01（HD）
@@ -77,9 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1bjzue
 <br>【360雲盤】：http://www.linkbucks.com/3jks
 <br>【360密碼】：8df9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkJXk
+<br>【百度雲盤】：http://www.linkbucks.com/31Ao
+<br>【百度密碼】：x7ir
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 十八樓C座 2016-07-01（HD）
@@ -98,9 +98,9 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bkJfh
+<br>【360雲盤】：http://www.linkbucks.com/3096
+<br>【360密碼】：552a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -116,9 +116,9 @@
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：PR
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bkJmq
+<br>【360雲盤】：http://www.linkbucks.com/309m
+<br>【360密碼】：d33b
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -134,9 +134,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bkJxK
+<br>【360雲盤】：http://www.linkbucks.com/3089
+<br>【360密碼】：e043
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
