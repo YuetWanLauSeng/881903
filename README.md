@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1bkJfh
 <br>【360雲盤】：http://www.linkbucks.com/3096
 <br>【360密碼】：552a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkYdT
+<br>【百度雲盤】：http://www.linkbucks.com/kZmd
+<br>【百度密碼】：nc4n
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-07-01（HD）
@@ -119,9 +119,9 @@
 <br>【360雲盤】：http://adf.ly/1bkJmq
 <br>【360雲盤】：http://www.linkbucks.com/309m
 <br>【360密碼】：d33b
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkYbc
+<br>【百度雲盤】：http://www.linkbucks.com/kZmq
+<br>【百度密碼】：mivp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-07-01（HD）
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1bkJxK
 <br>【360雲盤】：http://www.linkbucks.com/3089
 <br>【360密碼】：e043
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkYWn
+<br>【百度雲盤】：http://www.linkbucks.com/kZm2
+<br>【百度密碼】：qhyt
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-07-01（HD）
@@ -149,18 +149,18 @@
 <br>【360雲盤】：http://adf.ly/1bkSuZ
 <br>【360雲盤】：http://www.linkbucks.com/3yy3
 <br>【360密碼】：450e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bkYYq
+<br>【百度雲盤】：http://www.linkbucks.com/kZmv
+<br>【百度密碼】：cee9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 集雜志 2016-07-01（HD）
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bkaDo
+<br>【360雲盤】：http://www.linkbucks.com/3mJv
+<br>【360密碼】：f33d
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -170,9 +170,9 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bka7d
+<br>【360雲盤】：http://www.linkbucks.com/3mKa
+<br>【360密碼】：21de
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
