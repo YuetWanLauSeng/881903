@@ -98,9 +98,9 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：13:00 - 17:00
 <br>【檔案名稱】：Circles
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】： 
+<br>【360雲盤】：http://adf.ly/1bmjpo
+<br>【360雲盤】：http://www.linkbucks.com/4D0V
+<br>【360密碼】：bc3a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -110,24 +110,24 @@
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bmjt5
+<br>【360雲盤】：http://www.linkbucks.com/4Dz7
+<br>【360密碼】：1136
+<br>【百度雲盤】：http://adf.ly/1bmjzB
+<br>【百度雲盤】：http://www.linkbucks.com/4Dzo
+<br>【百度密碼】：9ant
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 3號螺絲釘 2016-07-02（HD）
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bmjvf
+<br>【360雲盤】：http://www.linkbucks.com/4Dzx
+<br>【360密碼】：91bd
+<br>【百度雲盤】：http://adf.ly/1bmk2g
+<br>【百度雲盤】：http://www.linkbucks.com/4Dzi
+<br>【百度密碼】：dwe4
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 西瓜大發 ! 2016-07-02（HD）
