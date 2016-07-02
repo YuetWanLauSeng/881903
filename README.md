@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1bkJfh
 <br>【360雲盤】：http://www.linkbucks.com/3096
 <br>【360密碼】：552a
-<br>【百度雲盤】：http://adf.ly/1bkYdT
-<br>【百度雲盤】：http://www.linkbucks.com/kZmd
-<br>【百度密碼】：nc4n
+<br>【百度雲盤】： 
+<br>【百度雲盤】： 
+<br>【百度密碼】： 
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-07-01（HD）
