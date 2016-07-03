@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1bmjpo
 <br>【360雲盤】：http://www.linkbucks.com/4D0V
 <br>【360密碼】：bc3a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bo6RF
+<br>【百度雲盤】：http://www.linkbucks.com/4FVg
+<br>【百度密碼】：zq3n
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903 豁達推介 2016-07-02（HD）
@@ -158,12 +158,12 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bo65g
+<br>【360雲盤】：http://www.linkbucks.com/4FXY
+<br>【360密碼】：ed2e
+<br>【百度雲盤】：http://adf.ly/1bo6A4
+<br>【百度雲盤】：http://www.linkbucks.com/4FWw
+<br>【百度密碼】：f6mw
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 公子會 2016-07-02（HD）
@@ -173,43 +173,43 @@
 <br>【360雲盤】：http://adf.ly/1bnwhv
 <br>【360雲盤】：http://www.linkbucks.com/4HJf
 <br>【360密碼】：b37e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bo6Lg
+<br>【百度雲盤】：http://www.linkbucks.com/4FVp
+<br>【百度密碼】：j5wr
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 發式生活 2016-07-02（HD） 
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bo5zp
+<br>【360雲盤】：http://www.linkbucks.com/4FYj
+<br>【360密碼】：0316
+<br>【百度雲盤】：http://adf.ly/1bo6C7
+<br>【百度雲盤】：http://www.linkbucks.com/4FWq
+<br>【百度密碼】：6bcs
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 皇牌出場 2016-07-02（HD）
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bo5ws
+<br>【360雲盤】：http://www.linkbucks.com/4FYp
+<br>【360密碼】：673f
+<br>【百度雲盤】：http://adf.ly/1bo6Gn
+<br>【百度雲盤】：http://www.linkbucks.com/4FWM
+<br>【百度密碼】：ik4d
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-02（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bo67D
+<br>【360雲盤】：http://www.linkbucks.com/4FXK
+<br>【360密碼】：5181
+<br>【百度雲盤】：http://adf.ly/1bo6a2
+<br>【百度雲盤】：http://www.linkbucks.com/4FUl
+<br>【百度密碼】：91jr
 <br>【城通雲盤】：翌日更新
