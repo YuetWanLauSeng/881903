@@ -58,6 +58,31 @@
 <br>【百度密碼】：a9g3
 <br>【城通雲盤】：翌日更新
 
+<br>【節目名稱】：881 雷霆音樂圈 2016-07-03（HD）
+<br>【節目主持】：楊美琪
+<br>【節目時間】：12:30 - 14:00
+<br>【檔案名稱】：881 Music Station
+<br>【360雲盤】：http://adf.ly/1bor4T
+<br>【360雲盤】：http://www.linkbucks.com/vbvl
+<br>【360密碼】：714e
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
+<br>【城通雲盤】：翌日更新
+
+<br>【節目名稱】：881 903夢想系拉闊音樂會 容祖兒 x 馮翰銘 2016-07-03（HD）
+<br>【節目主持】：
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：903夢想系拉闊音樂會
+<br>【360雲盤】：http://adf.ly/1bor8n
+<br>【360雲盤】：http://www.linkbucks.com/u4LJ
+<br>【360密碼】：80bb
+<br>【百度雲盤】：
+<br>【百度雲盤】：
+<br>【百度密碼】：
+<br>【城通雲盤】：翌日更新
+
+
 <br>【節目名稱】：903 無定向喪煲病狂 2016-07-03（HD）
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：14:00 - 16:00
@@ -65,30 +90,30 @@
 <br>【360雲盤】：http://adf.ly/1bodO4
 <br>【360雲盤】：http://www.linkbucks.com/g2dX
 <br>【360密碼】：9b2c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1borGQ
+<br>【百度雲盤】：http://www.linkbucks.com/uebc
+<br>【百度密碼】：q7rr
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 Mali Mali Home 2016-07-03（HD）
 <br>【節目主持】：麻利亞
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Mali Mali Home
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bor2U
+<br>【360雲盤】：http://www.linkbucks.com/vir3
+<br>【360密碼】：f454
+<br>【百度雲盤】：http://adf.ly/1borIT
+<br>【百度雲盤】：http://www.linkbucks.com/uKDd
+<br>【百度密碼】：7b98
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-07-03（HD）
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bor6i
+<br>【360雲盤】：http://www.linkbucks.com/vI8l
+<br>【360密碼】：18d0
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -98,9 +123,9 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1borTV
+<br>【360雲盤】：http://www.linkbucks.com/TQFC
+<br>【360密碼】：d30f
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
