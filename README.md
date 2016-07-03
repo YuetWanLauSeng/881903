@@ -134,24 +134,24 @@
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bnwHP
+<br>【360雲盤】：http://www.linkbucks.com/4HUZ
+<br>【360密碼】：7090
+<br>【百度雲盤】：http://adf.ly/1bnwLO
+<br>【百度雲盤】：http://www.linkbucks.com/4HTs
+<br>【百度密碼】：tp94
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-07-02（HD）
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bnwEG
+<br>【360雲盤】：http://www.linkbucks.com/4HWI
+<br>【360密碼】：0f1c
+<br>【百度雲盤】：http://adf.ly/1bnwNo
+<br>【百度雲盤】：http://www.linkbucks.com/4HS9
+<br>【百度密碼】：dneu
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 Chi Chung's Class 2016-07-02（HD）
@@ -170,9 +170,9 @@
 <br>【節目主持】：森美
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bnwhv
+<br>【360雲盤】：http://www.linkbucks.com/4HJf
+<br>【360密碼】：b37e
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
