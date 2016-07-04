@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1bqOBT
 <br>【360雲盤】：http://www.linkbucks.com/37g6
 <br>【360密碼】：bee6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1br9a6
+<br>【百度雲盤】：http://www.linkbucks.com/4JtT
+<br>【百度密碼】：qybk
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早安，同學早! 2016-07-04（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1bqO2F
 <br>【360雲盤】：http://www.linkbucks.com/373X
 <br>【360密碼】：16ba
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1br9e1
+<br>【百度雲盤】：http://www.linkbucks.com/4JtI
+<br>【百度密碼】：rgi9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-07-04（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1bqNuz
 <br>【360雲盤】：http://www.linkbucks.com/373q
 <br>【360密碼】：7c12
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1br9NI
+<br>【百度雲盤】：http://www.linkbucks.com/4JvP
+<br>【百度密碼】：4qki
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-07-04（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1bqNyJ
 <br>【360雲盤】：http://www.linkbucks.com/373h
 <br>【360密碼】：a3de
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1br9YM
+<br>【百度雲盤】：http://www.linkbucks.com/4Jta
+<br>【百度密碼】：x6kx
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雲常開 2016-07-04（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1bqODp
 <br>【360雲盤】：http://www.linkbucks.com/3Ua5
 <br>【360密碼】：d9db
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1br9Tb
+<br>【百度雲盤】：http://www.linkbucks.com/4Juo
+<br>【百度密碼】：cwjw
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-07-04（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1bqO7h
 <br>【360雲盤】：http://www.linkbucks.com/373I
 <br>【360密碼】：7ec4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1br9gR
+<br>【百度雲盤】：http://www.linkbucks.com/4Js9
+<br>【百度密碼】：t5ep
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早霸王 2016-07-04（HD）
@@ -77,9 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1bqO5F
 <br>【360雲盤】：http://www.linkbucks.com/373P
 <br>【360密碼】：378b
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1br9cB
+<br>【百度雲盤】：http://www.linkbucks.com/4JtO
+<br>【百度密碼】：aum6
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 十八樓C座 2016-07-04（HD）
@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1bqOHn
 <br>【360雲盤】：http://www.linkbucks.com/371D
 <br>【360密碼】：024f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1br9j4
+<br>【百度雲盤】：http://www.linkbucks.com/4Jsw
+<br>【百度密碼】：aj9n
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 一點叮一叮 2016-07-04（HD）
