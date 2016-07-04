@@ -182,46 +182,46 @@
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bpzOq
+<br>【360雲盤】：http://www.linkbucks.com/4E47
+<br>【360密碼】：4958
+<br>【百度雲盤】：http://adf.ly/1bpzW8
+<br>【百度雲盤】：http://www.linkbucks.com/4E4S
+<br>【百度密碼】：bsxe
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 短期租約 2016-07-03（HD）
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bpzQa
+<br>【360雲盤】：http://www.linkbucks.com/4E4z
+<br>【360密碼】：758b
+<br>【百度雲盤】：http://adf.ly/1bpzSq
+<br>【百度雲盤】：http://www.linkbucks.com/4E4k
+<br>【百度密碼】：x5c8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 寫生活 2016-07-03（HD）
 <br>【節目主持】：881 主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bpzHN
+<br>【360雲盤】：http://www.linkbucks.com/4E5M
+<br>【360密碼】：cbef
+<br>【百度雲盤】：http://adf.ly/1bpzYV
+<br>【百度雲盤】：http://www.linkbucks.com/4E4J
+<br>【百度密碼】：jjrb
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-03（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bpzMW
+<br>【360雲盤】：http://www.linkbucks.com/4E5A
+<br>【360密碼】：66bc
+<br>【百度雲盤】：http://adf.ly/1bpzUK
+<br>【百度雲盤】：http://www.linkbucks.com/4E4e
+<br>【百度密碼】：9vs4
 <br>【城通雲盤】：翌日更新
