@@ -242,9 +242,9 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1brKi1
+<br>【360雲盤】：http://www.linkbucks.com/4HYE
+<br>【360密碼】：0e5b
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -254,9 +254,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1brKkG
+<br>【360雲盤】：http://www.linkbucks.com/4HX3
+<br>【360密碼】：7eda
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
