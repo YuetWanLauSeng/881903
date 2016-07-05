@@ -2,12 +2,12 @@
 <br>【節目主持】：Wasabi | 嘉賓主持
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bsuFH
+<br>【360雲盤】：http://www.linkbucks.com/4Zj4
+<br>【360密碼】：01e5
+<br>【百度雲盤】：http://adf.ly/1bsukh
+<br>【百度雲盤】：http://www.linkbucks.com/4Zew
+<br>【百度密碼】：zajc
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早安，同學早! 2016-07-05（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1bseAp
 <br>【360雲盤】：http://www.linkbucks.com/Bc4Qj
 <br>【360密碼】：9a71
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bswFI
+<br>【百度雲盤】：http://www.linkbucks.com/4ZEH
+<br>【百度密碼】：m14g
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-07-05（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1bseqo
 <br>【360雲盤】：http://www.linkbucks.com/BdX1x
 <br>【360密碼】：f8ae
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsuMg
+<br>【百度雲盤】：http://www.linkbucks.com/4Zhz
+<br>【百度密碼】：g7pk
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-07-05（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1bsfVw
 <br>【360雲盤】：http://www.linkbucks.com/4cuP
 <br>【360密碼】：fc0c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsua6
+<br>【百度雲盤】：http://www.linkbucks.com/4Zf8
+<br>【百度密碼】：g1qq
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雲常開 2016-07-05（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1bsfjv
 <br>【360雲盤】：http://www.linkbucks.com/4cs4
 <br>【360密碼】：6b57
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsuRq
+<br>【百度雲盤】：http://www.linkbucks.com/4Zg7
+<br>【百度密碼】：aign
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-07-05（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1bseIg
 <br>【360雲盤】：http://www.linkbucks.com/Bb6Gh
 <br>【360密碼】：6fed
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsw7l
+<br>【百度雲盤】：http://www.linkbucks.com/4ZJs
+<br>【百度密碼】：k4ga
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早霸王 2016-07-05（HD）
@@ -77,18 +77,18 @@
 <br>【360雲盤】：http://adf.ly/1bseFf
 <br>【360雲盤】：http://www.linkbucks.com/BdTje
 <br>【360密碼】：c45a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsur5
+<br>【百度雲盤】：http://www.linkbucks.com/4Zcc
+<br>【百度密碼】：rnrt
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 十八樓C座 2016-07-05（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bsywp
+<br>【360雲盤】：http://www.linkbucks.com/4YrU
+<br>【360密碼】：9835
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -98,9 +98,9 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bsz4b
+<br>【360雲盤】：http://www.linkbucks.com/4YqV
+<br>【360密碼】：9115
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -110,9 +110,9 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bsz2R
+<br>【360雲盤】：http://www.linkbucks.com/4Yqb
+<br>【360密碼】：3964
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -122,9 +122,9 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bsyyy
+<br>【360雲盤】：http://www.linkbucks.com/4YrC
+<br>【360密碼】：ae05
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -134,9 +134,9 @@
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：PR
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bsz5p
+<br>【360雲盤】：http://www.linkbucks.com/4Ypf
+<br>【360密碼】：dd74
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -146,9 +146,9 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bt0uS
+<br>【360雲盤】：http://www.linkbucks.com/4Ybs
+<br>【360密碼】：21a0
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -158,9 +158,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bt1kQ
+<br>【360雲盤】：http://www.linkbucks.com/4YYS
+<br>【360密碼】：37ca
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
