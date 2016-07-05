@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1bsywp
 <br>【360雲盤】：http://www.linkbucks.com/4YrU
 <br>【360密碼】：9835
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bt9Ci
+<br>【百度雲盤】：http://www.linkbucks.com/4XTj
+<br>【百度密碼】：mxtx
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 一點叮一叮 2016-07-05（HD）
@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1bsz4b
 <br>【360雲盤】：http://www.linkbucks.com/4YqV
 <br>【360密碼】：9115
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bt8e2
+<br>【百度雲盤】：http://www.linkbucks.com/4Xv8
+<br>【百度密碼】：nmr6
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 叱咤樂壇 2016-07-05（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1bsz2R
 <br>【360雲盤】：http://www.linkbucks.com/4Yqb
 <br>【360密碼】：3964
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bt8h8
+<br>【百度雲盤】：http://www.linkbucks.com/4XvM
+<br>【百度密碼】：6qe5
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-07-05（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1bsyyy
 <br>【360雲盤】：http://www.linkbucks.com/4YrC
 <br>【360密碼】：ae05
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bt8fY
+<br>【百度雲盤】：http://www.linkbucks.com/4Xvc
+<br>【百度密碼】：4vyj
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 關公災難 2016-07-05（HD）
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1bsz5p
 <br>【360雲盤】：http://www.linkbucks.com/4Ypf
 <br>【360密碼】：dd74
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bt8bl
+<br>【百度雲盤】：http://www.linkbucks.com/4Xwc
+<br>【百度密碼】：aq3q
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-07-05（HD）
@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1bt0uS
 <br>【360雲盤】：http://www.linkbucks.com/4Ybs
 <br>【360密碼】：21a0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bt8aB
+<br>【百度雲盤】：http://www.linkbucks.com/4Xxh
+<br>【百度密碼】：usf6
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-07-05（HD）
@@ -161,18 +161,18 @@
 <br>【360雲盤】：http://adf.ly/1bt1kQ
 <br>【360雲盤】：http://www.linkbucks.com/4YYS
 <br>【360密碼】：37ca
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bt8RS
+<br>【百度雲盤】：http://www.linkbucks.com/4XzM
+<br>【百度密碼】：7cp9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-07-05（HD）
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bt98p
+<br>【360雲盤】：http://www.linkbucks.com/4XYW
+<br>【360密碼】：70b3
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
