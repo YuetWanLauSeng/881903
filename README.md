@@ -257,9 +257,9 @@
 <br>【360雲盤】：http://adf.ly/1brKkG
 <br>【360雲盤】：http://www.linkbucks.com/4HX3
 <br>【360密碼】：7eda
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsMZD
+<br>【百度雲盤】：http://www.linkbucks.com/4BGo
+<br>【百度密碼】：43zp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-07-04（HD）
@@ -281,9 +281,9 @@
 <br>【360雲盤】：http://adf.ly/1bsF9v
 <br>【360雲盤】：http://www.linkbucks.com/4GBz
 <br>【360密碼】：b259
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsMBw
+<br>【百度雲盤】：http://www.linkbucks.com/4BRw
+<br>【百度密碼】：xrin
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-07-04（HD）
@@ -293,9 +293,9 @@
 <br>【360雲盤】：http://adf.ly/1bsF6W
 <br>【360雲盤】：http://www.linkbucks.com/4GB8
 <br>【360密碼】：c67f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsMUR
+<br>【百度雲盤】：http://www.linkbucks.com/4BHq
+<br>【百度密碼】：kx1e
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 廣東爆谷 2016-07-04（HD）
@@ -305,9 +305,9 @@
 <br>【360雲盤】：http://adf.ly/1bsF3v
 <br>【360雲盤】：http://www.linkbucks.com/4GCL
 <br>【360密碼】：166a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsMWf
+<br>【百度雲盤】：http://www.linkbucks.com/4BHJ
+<br>【百度密碼】：tjmd
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-04（HD）
@@ -317,7 +317,7 @@
 <br>【360雲盤】：http://adf.ly/1bsF0U
 <br>【360雲盤】：http://www.linkbucks.com/4GCP
 <br>【360密碼】：80e7
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bsMRl
+<br>【百度雲盤】：http://www.linkbucks.com/4BH9
+<br>【百度密碼】：mpqu
 <br>【城通雲盤】：翌日更新
