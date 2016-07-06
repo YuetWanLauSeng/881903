@@ -230,9 +230,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bviIy
+<br>【360雲盤】：http://www.linkbucks.com/4cAc
+<br>【360密碼】：0355
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
