@@ -242,12 +242,12 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bvll3
+<br>【360雲盤】：http://www.linkbucks.com/4bah
+<br>【360密碼】：9123
+<br>【百度雲盤】：http://adf.ly/1bvmMq
+<br>【百度雲盤】：http://www.linkbucks.com/4bYI
+<br>【百度密碼】：txan
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-07-06（HD）
