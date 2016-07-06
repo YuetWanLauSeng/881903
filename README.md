@@ -14,9 +14,9 @@
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bvQzo
+<br>【360雲盤】：http://www.linkbucks.com/4hAt
+<br>【360密碼】：39dd
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -62,9 +62,9 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bvQvz
+<br>【360雲盤】：http://www.linkbucks.com/4hBZ
+<br>【360密碼】：03e3
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -98,9 +98,9 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bvQtG
+<br>【360雲盤】：http://www.linkbucks.com/4hBn
+<br>【360密碼】：140a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -146,9 +146,9 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bvRZQ
+<br>【360雲盤】：http://www.linkbucks.com/4gq2
+<br>【360密碼】：02e0
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
