@@ -209,30 +209,30 @@
 <br>【360雲盤】：http://adf.ly/1bxdOq
 <br>【360雲盤】：http://www.linkbucks.com/4deE
 <br>【360密碼】：fd62
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bxpQl
+<br>【百度雲盤】：http://www.linkbucks.com/4bLW
+<br>【百度密碼】：r1fu
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-07-07（HD）
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bxpL1
+<br>【360雲盤】：http://www.linkbucks.com/4bMO
+<br>【360密碼】：99d5
+<br>【百度雲盤】：http://adf.ly/1bxpNn
+<br>【百度雲盤】：http://www.linkbucks.com/4bL1
+<br>【百度密碼】：ma8m
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-07-07（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bxpYM
+<br>【360雲盤】：http://www.linkbucks.com/4bJB
+<br>【360密碼】：321d
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
