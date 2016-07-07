@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1bxCmP
 <br>【360雲盤】：http://www.linkbucks.com/4iqH
 <br>【360密碼】：3151
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bxaeL
+<br>【百度雲盤】：http://www.linkbucks.com/4duf
+<br>【百度密碼】：b9g7
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雲常開 2016-07-07（HD）
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1bxQXu
 <br>【360雲盤】：http://www.linkbucks.com/4gi1
 <br>【360密碼】：6c89
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bxah3
+<br>【百度雲盤】：http://www.linkbucks.com/4duP
+<br>【百度密碼】：6bva
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-07-07（HD）
@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1bxQaK
 <br>【360雲盤】：http://www.linkbucks.com/4gis
 <br>【360密碼】：f1b5
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bxdHQ
+<br>【百度雲盤】：http://www.linkbucks.com/4deb
+<br>【百度密碼】：raj7
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-07-07（HD）
@@ -161,9 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1bxQzX
 <br>【360雲盤】：http://www.linkbucks.com/4geF
 <br>【360密碼】：cd7b
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bxal1
+<br>【百度雲盤】：http://www.linkbucks.com/4duJ
+<br>【百度密碼】：aucs
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-07-07（HD）
@@ -173,42 +173,42 @@
 <br>【360雲盤】：http://adf.ly/1bxUU7
 <br>【360雲盤】：http://www.linkbucks.com/4fcs
 <br>【360密碼】：9e69
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1bxap2
+<br>【百度雲盤】：http://www.linkbucks.com/4dtt
+<br>【百度密碼】：i2ei
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 集雜志 2016-07-07（HD）
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bxd5e
+<br>【360雲盤】：http://www.linkbucks.com/4dg5
+<br>【360密碼】：9203
+<br>【百度雲盤】：http://adf.ly/1bxdBL
+<br>【百度雲盤】：http://www.linkbucks.com/4de8
+<br>【百度密碼】：c664
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-07-07（HD）
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bxd7y
+<br>【360雲盤】：http://www.linkbucks.com/4dfH
+<br>【360密碼】：7c59
+<br>【百度雲盤】：http://adf.ly/1bxdDi
+<br>【百度雲盤】：http://www.linkbucks.com/4deu
+<br>【百度密碼】：jd9f
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-07-07（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1bxdOq
+<br>【360雲盤】：http://www.linkbucks.com/4deE
+<br>【360密碼】：fd62
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
