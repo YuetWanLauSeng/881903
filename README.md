@@ -278,46 +278,46 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bykps
+<br>【360雲盤】：http://www.linkbucks.com/5EXo
+<br>【360密碼】：d91b
+<br>【百度雲盤】：http://adf.ly/1bym53
+<br>【百度雲盤】：http://www.linkbucks.com/4zOD
+<br>【百度密碼】：uu1r
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-07-07（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bykeO
+<br>【360雲盤】：http://www.linkbucks.com/5EYE
+<br>【360密碼】：14ff
+<br>【百度雲盤】：http://adf.ly/1bykv6
+<br>【百度雲盤】：http://www.linkbucks.com/5EXh
+<br>【百度密碼】：66wb
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 廣東爆谷 2016-07-07（HD）
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bykcj
+<br>【360雲盤】：http://www.linkbucks.com/5EYL
+<br>【360密碼】：d300
+<br>【百度雲盤】：http://adf.ly/1bykya
+<br>【百度雲盤】：http://www.linkbucks.com/5EXe
+<br>【百度密碼】：ev9v
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-07（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1bykbC
+<br>【360雲盤】：http://www.linkbucks.com/5EYO
+<br>【360密碼】：fd62
+<br>【百度雲盤】：http://adf.ly/1bymH6
+<br>【百度雲盤】：http://www.linkbucks.com/4zLq
+<br>【百度密碼】：qe48
 <br>【城通雲盤】：翌日更新
