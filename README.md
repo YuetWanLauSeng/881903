@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1bzyUM
 <br>【360雲盤】：http://www.linkbucks.com/5A75
 <br>【360密碼】：553f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1c0GGP
+<br>【百度雲盤】：http://www.linkbucks.com/48QN
+<br>【百度密碼】：ef6d
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-07-08（HD）
@@ -197,9 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1bzy5W
 <br>【360雲盤】：http://www.linkbucks.com/5BDJ
 <br>【360密碼】：8249
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1c0G56
+<br>【百度雲盤】：http://www.linkbucks.com/48Qo
+<br>【百度密碼】：9fvw
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-07-08（HD）
@@ -209,9 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1bzyQK
 <br>【360雲盤】：http://www.linkbucks.com/5A8U
 <br>【360密碼】：2e3f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1c0GJP
+<br>【百度雲盤】：http://www.linkbucks.com/48Oh
+<br>【百度密碼】：s4xt
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-07-08（HD）
@@ -221,9 +221,9 @@
 <br>【360雲盤】：http://adf.ly/1c04cj
 <br>【360雲盤】：http://www.linkbucks.com/5ANX
 <br>【360密碼】：86a5
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1c0GND
+<br>【百度雲盤】：http://www.linkbucks.com/48Oe
+<br>【百度密碼】：6zne
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-07-08（HD）
@@ -233,45 +233,45 @@
 <br>【360雲盤】：http://adf.ly/1c04nL
 <br>【360雲盤】：http://www.linkbucks.com/5AKA
 <br>【360密碼】：d981
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1c0GDV
+<br>【百度雲盤】：http://www.linkbucks.com/48QU
+<br>【百度密碼】：e3ky
 <br>【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 書.情.歌 2016-07-08（HD）
-<br>【節目主持】：葉宇澄
+<br>【節目名稱】：881解困學貫中西2016-07-08（HD）
+<br>【節目主持】：黃永
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：解困學貫中西
+<br>【360雲盤】：http://adf.ly/1c0Fu5
+<br>【360雲盤】：http://www.linkbucks.com/48RV
+<br>【360密碼】：2f68
+<br>【百度雲盤】：http://adf.ly/1c0G1m
+<br>【百度雲盤】：http://www.linkbucks.com/48Q2
+<br>【百度密碼】：tbf9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-07-08（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1c0FoE
+<br>【360雲盤】：http://www.linkbucks.com/48R3
+<br>【360密碼】：6343
+<br>【百度雲盤】：http://adf.ly/1c0FzL
+<br>【百度雲盤】：http://www.linkbucks.com/48Q6
+<br>【百度密碼】：vbe1
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-07-08（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1c0GQE
+<br>【360雲盤】：http://www.linkbucks.com/48OQ
+<br>【360密碼】：4abc
+<br>【百度雲盤】：http://adf.ly/1c0GfC
+<br>【百度雲盤】：http://www.linkbucks.com/48MA
+<br>【百度密碼】：944m
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-07-08（HD）
