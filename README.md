@@ -74,12 +74,12 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Mali Mali Home
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1c4fu2
+<br>【360雲盤】：http://www.linkbucks.com/oWKA
+<br>【360密碼】：4bb5
+<br>【百度雲盤】：http://adf.ly/1c4fyU
+<br>【百度雲盤】：http://www.linkbucks.com/oJkT
+<br>【百度密碼】：sr9v
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-07-10（HD）
