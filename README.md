@@ -182,9 +182,9 @@
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1c3xld
+<br>【360雲盤】：http://www.linkbucks.com/5CZa
+<br>【360密碼】：4ccd
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -194,9 +194,9 @@
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1c3xhX
+<br>【360雲盤】：http://www.linkbucks.com/5C3P
+<br>【360密碼】：1980
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -206,9 +206,9 @@
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1c3yBY
+<br>【360雲盤】：http://www.linkbucks.com/5CN0
+<br>【360密碼】：6c38
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
