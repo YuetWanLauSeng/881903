@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1c7dvd
 <br>【360雲盤】：http://www.linkbucks.com/5MU9
 <br>【360密碼】：86b4
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1c7gSi
+<br>【百度雲盤】：http://www.linkbucks.com/5L9Q
+<br>【百度密碼】：jqpi
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-07-11（HD）
@@ -161,9 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1c7dys
 <br>【360雲盤】：http://www.linkbucks.com/5MU2
 <br>【360密碼】：19d3
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1c7gN8
+<br>【百度雲盤】：http://www.linkbucks.com/5L9i
+<br>【百度密碼】：wxy9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-07-11（HD）
@@ -173,18 +173,18 @@
 <br>【360雲盤】：http://adf.ly/1c7e7z
 <br>【360雲盤】：http://www.linkbucks.com/5MS4
 <br>【360密碼】：ac12
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1c7gJR
+<br>【百度雲盤】：http://www.linkbucks.com/5L9s
+<br>【百度密碼】：kag7
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 集雜志 2016-07-11（HD）
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1c7jQQ
+<br>【360雲盤】：http://www.linkbucks.com/5Lhz
+<br>【360密碼】：1143
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -194,9 +194,9 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1c7jkz
+<br>【360雲盤】：http://www.linkbucks.com/5LgP
+<br>【360密碼】：0f20
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -206,9 +206,9 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1c7jgb
+<br>【360雲盤】：http://www.linkbucks.com/5Lgc
+<br>【360密碼】：3453
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
