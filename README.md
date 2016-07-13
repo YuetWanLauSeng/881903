@@ -315,8 +315,10 @@
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
+<br>【360雲盤】：http://adf.ly/1cC1FZ
+<br>【360雲盤】：http://www.linkbucks.com/5U87
+<br>【360密碼】：4925
+<br>【百度雲盤】：http://adf.ly/1cC1Ar
+<br>【百度雲盤】：http://www.linkbucks.com/5U9a
+<br>【百度密碼】：bqb4
+<br>【城通雲盤】：翌日更新
