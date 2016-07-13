@@ -242,12 +242,12 @@
 <br>【節目主持】：時美真 | 江慧楓
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：放榜前夕DSE攻略
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cBoRt
+<br>【360雲盤】：http://www.linkbucks.com/5W1D
+<br>【360密碼】：03a7
+<br>【百度雲盤】：http://adf.ly/1cBpp4
+<br>【百度雲盤】：http://www.linkbucks.com/5WvF
+<br>【百度密碼】：tfb2
 <br>【城通雲盤】：翌日更新
 
 
@@ -255,60 +255,60 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cBoMl
+<br>【360雲盤】：http://www.linkbucks.com/5W1I
+<br>【360密碼】：ad61
+<br>【百度雲盤】：http://adf.ly/1cBpgL
+<br>【百度雲盤】：http://www.linkbucks.com/5Wvc
+<br>【百度密碼】：kwjq
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-07-12（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cBoCY
+<br>【360雲盤】：http://www.linkbucks.com/5W12
+<br>【360密碼】：c890
+<br>【百度雲盤】：http://adf.ly/1cBq8I
+<br>【百度雲盤】：http://www.linkbucks.com/5WtY
+<br>【百度密碼】：8wwy
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-07-12（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cBo7K
+<br>【360雲盤】：http://www.linkbucks.com/5W3H
+<br>【360密碼】：2282
+<br>【百度雲盤】：http://adf.ly/1cBpyb
+<br>【百度雲盤】：http://www.linkbucks.com/5WuV
+<br>【百度密碼】：32xf
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-07-12（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cBnzn
+<br>【360雲盤】：http://www.linkbucks.com/5W3Z
+<br>【360密碼】：d2e6
+<br>【百度雲盤】：http://adf.ly/1cBpZD
+<br>【百度雲盤】：http://www.linkbucks.com/5WwP
+<br>【百度密碼】：mvi9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 廣東爆谷 2016-07-12（HD）
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cBo9c
+<br>【360雲盤】：http://www.linkbucks.com/5W2w
+<br>【360密碼】：c56d
+<br>【百度雲盤】：http://adf.ly/1cBsh1
+<br>【百度雲盤】：http://www.linkbucks.com/5Whz
+<br>【百度密碼】：5y6h
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-12（HD）
@@ -320,5 +320,3 @@
 <br>【360密碼】：
 <br>【百度雲盤】：
 <br>【百度雲盤】：
-<br>【百度密碼】：
-<br>【城通雲盤】：翌日更新
