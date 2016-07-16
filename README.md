@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1cJVY9
 <br>【360雲盤】：http://www.linkbucks.com/6J21
 <br>【360密碼】：55df
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cJhdd
+<br>【百度雲盤】：http://www.linkbucks.com/6G5X
+<br>【百度密碼】：nnjh
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 政經星期六 2016-07-16（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1cJVTk
 <br>【360雲盤】：http://www.linkbucks.com/6J4T
 <br>【360密碼】：565a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cJhi3
+<br>【百度雲盤】：http://www.linkbucks.com/6G5A
+<br>【百度密碼】：mbce
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 西加航空 2016-07-16（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1cJVP8
 <br>【360雲盤】：http://www.linkbucks.com/6J6u
 <br>【360密碼】：f8a0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cJhmR
+<br>【百度雲盤】：http://www.linkbucks.com/6G4r
+<br>【百度密碼】：v3tn
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 不平平則鳴 2016-07-16（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1cJVRx
 <br>【360雲盤】：http://www.linkbucks.com/6J6J
 <br>【360密碼】：4c72
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cJhjy
+<br>【百度雲盤】：http://www.linkbucks.com/6G42
+<br>【百度密碼】：ynej
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 考股專家 2016-07-16（HD）
@@ -53,57 +53,57 @@
 <br>【360雲盤】：http://adf.ly/1cJW4I
 <br>【360雲盤】：http://www.linkbucks.com/6JwU
 <br>【360密碼】：1760
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cJhg1
+<br>【百度雲盤】：http://www.linkbucks.com/6G5K
+<br>【百度密碼】：cer2
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903 專業推介 2016-07-16（HD）
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cJhFm
+<br>【360雲盤】：http://www.linkbucks.com/6G69
+<br>【360密碼】：dc8b
+<br>【百度雲盤】：http://adf.ly/1cJhRN
+<br>【百度雲盤】：http://www.linkbucks.com/6G6e
+<br>【百度密碼】：nxww
+<br>【城通雲盤】：翌日更新
+
+<br>【節目名稱】：881 電影圈 2016-07-16（HD）
+<br>【節目主持】：馮志豐 | 鄔家麟
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Movies
+<br>【360雲盤】：http://adf.ly/1cJhBU
+<br>【360雲盤】：http://www.linkbucks.com/6G7I
+<br>【360密碼】：ca8e
+<br>【百度雲盤】：http://adf.ly/1cJhO0
+<br>【百度雲盤】：http://www.linkbucks.com/6G6i
+<br>【百度密碼】：44gw
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 咪芝蓮 2016-07-16（HD）
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cJh5v
+<br>【360雲盤】：http://www.linkbucks.com/6G7X
+<br>【360密碼】：4c32
+<br>【百度雲盤】：http://adf.ly/1cJhTN
+<br>【百度雲盤】：http://www.linkbucks.com/6G6U
+<br>【百度密碼】：2ayv
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 咆哮山莊 2016-07-16（HD）
 <br>【節目主持】：903 DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
-<br>【城通雲盤】：翌日更新
-
-<br>【節目名稱】：881 1圈圈（影評） 2016-07-16（HD）
-<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
-<br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Circles
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cJh1D
+<br>【360雲盤】：http://www.linkbucks.com/6G7o
+<br>【360密碼】：aeef
+<br>【百度雲盤】：http://adf.ly/1cJhub
+<br>【百度雲盤】：http://www.linkbucks.com/6G4h
+<br>【百度密碼】：aiqp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-07-16（HD）
