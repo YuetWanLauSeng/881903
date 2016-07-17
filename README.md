@@ -110,9 +110,9 @@
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cMigQ
+<br>【360雲盤】：http://www.linkbucks.com/6J42
+<br>【360密碼】：79b0
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -122,9 +122,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：18:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cMiZk
+<br>【360雲盤】：http://www.linkbucks.com/6J6I
+<br>【360密碼】：5490
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -134,9 +134,9 @@
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cMjNb
+<br>【360雲盤】：http://www.linkbucks.com/6J2g
+<br>【360密碼】：a315
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
