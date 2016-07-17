@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1cMUMr
 <br>【360雲盤】：http://www.linkbucks.com/6Ojw
 <br>【360密碼】：bab1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cMqcX
+<br>【百度雲盤】：http://www.linkbucks.com/59lS
+<br>【百度密碼】：b4ct
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 讀懂中國 2016-07-17（HD）
@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1cMULV
 <br>【360雲盤】：http://www.linkbucks.com/6Okp
 <br>【360密碼】：cdac
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cMqb0
+<br>【百度雲盤】：http://www.linkbucks.com/6CE1
+<br>【百度密碼】：b25q
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 泡菜粉絲煲 2016-07-17（HD） 
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1cMigQ
 <br>【360雲盤】：http://www.linkbucks.com/6J42
 <br>【360密碼】：79b0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cMpwc
+<br>【百度雲盤】：http://www.linkbucks.com/6FGC
+<br>【百度密碼】：spx9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 國語類 2016-07-17（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1cMiZk
 <br>【360雲盤】：http://www.linkbucks.com/6J6I
 <br>【360密碼】：5490
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cMq3N
+<br>【百度雲盤】：http://www.linkbucks.com/6FFz
+<br>【百度密碼】：qr2w
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 細路強 2016-07-17（HD） 
@@ -137,18 +137,18 @@
 <br>【360雲盤】：http://adf.ly/1cMjNb
 <br>【360雲盤】：http://www.linkbucks.com/6J2g
 <br>【360密碼】：a315
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cMq4w
+<br>【百度雲盤】：http://www.linkbucks.com/6FFd
+<br>【百度密碼】：tw54
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903國民教育 2016-07-17（HD）
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cMqyG
+<br>【360雲盤】：http://www.linkbucks.com/56jR
+<br>【360密碼】：fb27
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
