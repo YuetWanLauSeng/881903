@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1cLTcI
 <br>【360雲盤】：http://www.linkbucks.com/6Ofc
 <br>【360密碼】：33fd
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM4WR
+<br>【百度雲盤】：http://www.linkbucks.com/6LE7
+<br>【百度密碼】：82jx
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903 豁達推介 2016-07-16（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1cLTZh
 <br>【360雲盤】：http://www.linkbucks.com/6Of9
 <br>【360密碼】：491a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM4Gz
+<br>【百度雲盤】：http://www.linkbucks.com/6LOX
+<br>【百度密碼】：wspm
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 3號螺絲釘 2016-07-16（HD）
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1cLTWu
 <br>【360雲盤】：http://www.linkbucks.com/6Ohh
 <br>【360密碼】：694a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM4AJ
+<br>【百度雲盤】：http://www.linkbucks.com/6LRO
+<br>【百度密碼】：58mf
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 西瓜大發 ! 2016-07-16（HD）
@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1cLTTP
 <br>【360雲盤】：http://www.linkbucks.com/6Oil
 <br>【360密碼】：c616
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM3dE
+<br>【百度雲盤】：http://www.linkbucks.com/6Llz
+<br>【百度密碼】：49xf
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-07-16（HD）
@@ -161,9 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1cLTgK
 <br>【360雲盤】：http://www.linkbucks.com/6OeB
 <br>【360密碼】：6f2c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM4Yq
+<br>【百度雲盤】：http://www.linkbucks.com/6LEo
+<br>【百度密碼】：x52h
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 Chi Chung's Class 2016-07-16（HD）
@@ -173,9 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1cLTeV
 <br>【360雲盤】：http://www.linkbucks.com/6OeL
 <br>【360密碼】：682d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM4UJ
+<br>【百度雲盤】：http://www.linkbucks.com/6LIM
+<br>【百度密碼】：9ha6
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 公子會 2016-07-16（HD）
@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1cLUvI
 <br>【360雲盤】：http://www.linkbucks.com/6ORC
 <br>【360密碼】：30d6
+<br>【百度雲盤】：http://adf.ly/1cM3rT
 <br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度密碼】：tk3a
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 發式生活 2016-07-16（HD） 
@@ -197,9 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1cLVpf
 <br>【360雲盤】：http://www.linkbucks.com/6N30
 <br>【360密碼】：24e0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM4Q5
+<br>【百度雲盤】：http://www.linkbucks.com/6LJF
+<br>【百度密碼】：jyky
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 皇牌出場 2016-07-16（HD）
@@ -209,9 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1cLVrZ
 <br>【360雲盤】：http://www.linkbucks.com/6N2j
 <br>【360密碼】：fdd8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM4Jx
+<br>【百度雲盤】：http://www.linkbucks.com/6LOJ
+<br>【百度密碼】：vpst
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-16（HD）
@@ -221,7 +221,7 @@
 <br>【360雲盤】：http://adf.ly/1cLZGE
 <br>【360雲盤】：http://www.linkbucks.com/6C7z
 <br>【360密碼】：c063
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cM4Nv
+<br>【百度雲盤】：http://www.linkbucks.com/6LJr
+<br>【百度密碼】：2ccu
 <br>【城通雲盤】：翌日更新
