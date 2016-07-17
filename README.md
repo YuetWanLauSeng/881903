@@ -86,9 +86,9 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cMUMr
+<br>【360雲盤】：http://www.linkbucks.com/6Ojw
+<br>【360密碼】：bab1
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -98,9 +98,9 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cMULV
+<br>【360雲盤】：http://www.linkbucks.com/6Okp
+<br>【360密碼】：cdac
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
