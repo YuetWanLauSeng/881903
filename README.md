@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1cO8UZ
 <br>【360雲盤】：http://www.linkbucks.com/6XUq
 <br>【360密碼】：5e14
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cOHQJ
+<br>【百度雲盤】：http://www.linkbucks.com/6Wi3
+<br>【百度密碼】：xfjq
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-07-18（HD）
@@ -161,18 +161,18 @@
 <br>【360雲盤】：http://adf.ly/1cO92G
 <br>【360雲盤】：http://www.linkbucks.com/6XTG
 <br>【360密碼】：720a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cOHOY
+<br>【百度雲盤】：http://www.linkbucks.com/6WjD
+<br>【百度密碼】：8hv9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-07-18（HD）
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cOHRs
+<br>【360雲盤】：http://www.linkbucks.com/6Wir
+<br>【360密碼】：978d
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
