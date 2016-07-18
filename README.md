@@ -77,9 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1cNrt4
 <br>【360雲盤】：http://www.linkbucks.com/6VJQ
 <br>【360密碼】：e4b4
-<br>【百度雲盤】：http://adf.ly/1cO5gM
-<br>【百度雲盤】：http://www.linkbucks.com/6XWD
-<br>【百度密碼】：arge
+<br>【百度雲盤】：http://adf.ly/1cOdlO
+<br>【百度雲盤】：http://www.linkbucks.com/3oae
+<br>【百度密碼】：bkxd
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 十八樓C座 2016-07-18（HD）
@@ -173,69 +173,75 @@
 <br>【360雲盤】：http://adf.ly/1cOHRs
 <br>【360雲盤】：http://www.linkbucks.com/6Wir
 <br>【360密碼】：978d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cOdi1
+<br>【百度雲盤】：http://www.linkbucks.com/3qWT
+<br>【百度密碼】：4wzg
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 集雜志 2016-07-18（HD）
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
+<br>【360雲盤】：http://adf.ly/1cOdQK
 <br>【360雲盤】：http://www.linkbucks.com/6Sf1
 <br>【360密碼】：0304
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cOdfj
+<br>【百度雲盤】：http://www.linkbucks.com/3sn7
+<br>【百度密碼】：xg2y
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-07-18（HD）
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
+<br>【360雲盤】：http://adf.ly/1cOdSl
 <br>【360雲盤】：http://www.linkbucks.com/6Sf5
 <br>【360密碼】：4b8a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cOddl
+<br>【百度雲盤】：http://www.linkbucks.com/4EuS
+<br>【百度密碼】：3d1r
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-07-18（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
+<br>【360雲盤】：http://adf.ly/1cOdO0
 <br>【360雲盤】：http://www.linkbucks.com/6RkY
 <br>【360密碼】：5335
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cOdaH
+<br>【百度雲盤】：http://www.linkbucks.com/4JIw
+<br>【百度密碼】：pqjr
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-07-18（HD）
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改為播出『朱薰 E』
+
+<br>【節目名稱】：903 朱薰 E 2016-07-18（HD）
+<br>【節目主持】：朱薰
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：FUN E
+<br>【360雲盤】：http://adf.ly/1cOdL9
+<br>【360雲盤】：http://www.linkbucks.com/4ito
+<br>【360密碼】：d51c
+<br>【百度雲盤】：http://adf.ly/1cOdYH
+<br>【百度雲盤】：http://www.linkbucks.com/4JK0
+<br>【百度密碼】：rbt9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-07-18（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cOdDZ
+<br>【360雲盤】：http://www.linkbucks.com/4ovL
+<br>【360密碼】：2894
+<br>【百度雲盤】：http://adf.ly/1cOdWL
+<br>【百度雲盤】：http://www.linkbucks.com/4M1g
+<br>【百度密碼】：k5gw
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 書.情.歌 2016-07-18（HD）
