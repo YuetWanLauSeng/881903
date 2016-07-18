@@ -149,55 +149,55 @@
 <br>【360雲盤】：http://adf.ly/1cMqyG
 <br>【360雲盤】：http://www.linkbucks.com/56jR
 <br>【360密碼】：fb27
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cNZur
+<br>【百度雲盤】：http://www.linkbucks.com/6ZRQ
+<br>【百度密碼】：qdb3
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 葛民教育 2016-07-17（HD）
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cNZhH
+<br>【360雲盤】：http://www.linkbucks.com/6ZVa
+<br>【360密碼】：c013
+<br>【百度雲盤】：http://adf.ly/1cNZxg
+<br>【百度雲盤】：http://www.linkbucks.com/6ZRG
+<br>【百度密碼】：3b5v
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 短期租約 2016-07-17（HD）
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cNZkd
+<br>【360雲盤】：http://www.linkbucks.com/6ZVN
+<br>【360密碼】：1ce8
+<br>【百度雲盤】：http://adf.ly/1cNZrP
+<br>【百度雲盤】：http://www.linkbucks.com/6ZRe
+<br>【百度密碼】：cega
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 寫生活 2016-07-17（HD）
 <br>【節目主持】：881 主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cNZmw
+<br>【360雲盤】：http://www.linkbucks.com/6ZUz
+<br>【360密碼】：12d9
+<br>【百度雲盤】：http://adf.ly/1cNZzf
+<br>【百度雲盤】：http://www.linkbucks.com/6ZQy
+<br>【百度密碼】：t864
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-17（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cNZoD
+<br>【360雲盤】：http://www.linkbucks.com/6ZUj
+<br>【360密碼】：d256
+<br>【百度雲盤】：http://adf.ly/1cNZp4
+<br>【百度雲盤】：http://www.linkbucks.com/6ZRp
+<br>【百度密碼】：dgeh
 <br>【城通雲盤】：翌日更新
