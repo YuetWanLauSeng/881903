@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1cQJWN
 <br>【360雲盤】：http://www.linkbucks.com/53l5
 <br>【360密碼】：3a69
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cQiLE
+<br>【百度雲盤】：http://www.linkbucks.com/6pSF
+<br>【百度密碼】：xckh
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-07-19（HD）
@@ -197,9 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1cQJNY
 <br>【360雲盤】：http://www.linkbucks.com/6lBu
 <br>【360密碼】：d4ea
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cQiFo
+<br>【百度雲盤】：http://www.linkbucks.com/6pVa
+<br>【百度密碼】：23cu
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-07-19（HD）
@@ -209,9 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1cQYQq
 <br>【360雲盤】：http://www.linkbucks.com/6swQ
 <br>【360密碼】：ef62
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cQi2d
+<br>【百度雲盤】：http://www.linkbucks.com/6pfr
+<br>【百度密碼】：xx85
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 朱薰 E 2016-07-19（HD）
@@ -221,9 +221,9 @@
 <br>【360雲盤】：http://adf.ly/1cQYGE
 <br>【360雲盤】：http://www.linkbucks.com/6tGi
 <br>【360密碼】：b764
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cQhTa
+<br>【百度雲盤】：http://www.linkbucks.com/6pm3
+<br>【百度密碼】：gb8q
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-07-19（HD）
@@ -233,9 +233,9 @@
 <br>【360雲盤】：http://adf.ly/1cQYVk
 <br>【360雲盤】：http://www.linkbucks.com/6srJ
 <br>【360密碼】：d7e8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cQi6S
+<br>【百度雲盤】：http://www.linkbucks.com/6pZS
+<br>【百度密碼】：nmst
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 書.情.歌 2016-07-19（HD）
@@ -266,9 +266,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cQhzM
+<br>【360雲盤】：http://www.linkbucks.com/6pk3
+<br>【360密碼】：21dc
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
