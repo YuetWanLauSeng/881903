@@ -242,24 +242,24 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cRUSH
+<br>【360雲盤】：http://www.linkbucks.com/67TY
+<br>【360密碼】：dfac
+<br>【百度雲盤】：http://adf.ly/1cRUKG
+<br>【百度雲盤】：http://www.linkbucks.com/67Xy
+<br>【百度密碼】：5a3t
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-07-19（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cRUMh
+<br>【360雲盤】：http://www.linkbucks.com/67WB
+<br>【360密碼】：e6c7
+<br>【百度雲盤】：http://adf.ly/1cRUmX
+<br>【百度雲盤】：http://www.linkbucks.com/67Hn
+<br>【百度密碼】：fwyn
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-07-19（HD）
@@ -269,9 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1cQhzM
 <br>【360雲盤】：http://www.linkbucks.com/6pk3
 <br>【360密碼】：21dc
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cRUHs
+<br>【百度雲盤】：http://www.linkbucks.com/67Y7
+<br>【百度密碼】：88a9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-07-19（HD）
@@ -281,9 +281,9 @@
 <br>【360雲盤】：http://adf.ly/1cRU0X
 <br>【360雲盤】：http://www.linkbucks.com/67e1
 <br>【360密碼】：5de9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cRUuA
+<br>【百度雲盤】：http://www.linkbucks.com/67F4
+<br>【百度密碼】：thym
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-07-19（HD）
@@ -293,9 +293,9 @@
 <br>【360雲盤】：http://adf.ly/1cRTyG
 <br>【360雲盤】：http://www.linkbucks.com/67f4
 <br>【360密碼】：e37c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cRUaN
+<br>【百度雲盤】：http://www.linkbucks.com/67RV
+<br>【百度密碼】：b5x4
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 廣東爆谷 2016-07-19（HD）
@@ -305,9 +305,9 @@
 <br>【360雲盤】：http://adf.ly/1cRTw5
 <br>【360雲盤】：http://www.linkbucks.com/67hF
 <br>【360密碼】：9080
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cRUW5
+<br>【百度雲盤】：http://www.linkbucks.com/67SK
+<br>【百度密碼】：sh7q
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-19（HD）
@@ -317,7 +317,7 @@
 <br>【360雲盤】：http://adf.ly/1cRTtp
 <br>【360雲盤】：http://www.linkbucks.com/67hk
 <br>【360密碼】：0d60
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cRUpG
+<br>【百度雲盤】：http://www.linkbucks.com/67G6
+<br>【百度密碼】：gi4b
 <br>【城通雲盤】：翌日更新
