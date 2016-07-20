@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1cRrcz
 <br>【360雲盤】：http://www.linkbucks.com/6c83
 <br>【360密碼】：b25c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3Uq
+<br>【百度雲盤】：http://www.linkbucks.com/6zKF
+<br>【百度密碼】：8hiq
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早安，同學早! 2016-07-20（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1cRrTu
 <br>【360雲盤】：http://www.linkbucks.com/6d4e
 <br>【360密碼】：30c6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3WD
+<br>【百度雲盤】：http://www.linkbucks.com/6zJr
+<br>【百度密碼】：4i93
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-07-20（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1cRra5
 <br>【360雲盤】：http://www.linkbucks.com/6d1k
 <br>【360密碼】：61b8
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS2lu
+<br>【百度雲盤】：http://www.linkbucks.com/60CP
+<br>【百度密碼】：nhbu
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-07-20（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1cRrc8
 <br>【360雲盤】：http://www.linkbucks.com/6c9d
 <br>【360密碼】：f434
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3TJ
+<br>【百度雲盤】：http://www.linkbucks.com/6zKh
+<br>【百度密碼】：kqfj
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雲常開 2016-07-20（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1cRrT1
 <br>【360雲盤】：http://www.linkbucks.com/6d4y
 <br>【360密碼】：4c27
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3Rh
+<br>【百度雲盤】：http://www.linkbucks.com/6zK3
+<br>【百度密碼】：3x6c
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-07-20（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1cRrbI
 <br>【360雲盤】：http://www.linkbucks.com/6c9w
 <br>【360密碼】：4467
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3Zi
+<br>【百度雲盤】：http://www.linkbucks.com/6zIb
+<br>【百度密碼】：665y
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早霸王 2016-07-20（HD）
@@ -77,9 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1cRrYV
 <br>【360雲盤】：http://www.linkbucks.com/6d3i
 <br>【360密碼】：6a52
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3Xm
+<br>【百度雲盤】：http://www.linkbucks.com/6zJM
+<br>【百度密碼】：yk6n
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 十八樓C座 2016-07-20（HD）
@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1cRrRO
 <br>【360雲盤】：http://www.linkbucks.com/6d52
 <br>【360密碼】：bfbb
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3c2
+<br>【百度雲盤】：http://www.linkbucks.com/6zH9
+<br>【百度密碼】：kjsh
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 一點叮一叮 2016-07-20（HD）
@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1cS2JY
 <br>【360雲盤】：http://www.linkbucks.com/60LN
 <br>【360密碼】：36e6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3du
+<br>【百度雲盤】：http://www.linkbucks.com/6zHl
+<br>【百度密碼】：x4i9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 叱咤樂壇 2016-07-20（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1cS2Hc
 <br>【360雲盤】：http://www.linkbucks.com/60MS
 <br>【360密碼】：030a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS4EG
+<br>【百度雲盤】：http://www.linkbucks.com/6zCv
+<br>【百度密碼】：afjk
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-07-20（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1cS2Fy
 <br>【360雲盤】：http://www.linkbucks.com/60Mq
 <br>【360密碼】：bd6a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS3h6
+<br>【百度雲盤】：http://www.linkbucks.com/6zGe
+<br>【百度密碼】：thtn
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 關公災難 2016-07-20（HD）
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1cS2Q3
 <br>【360雲盤】：http://www.linkbucks.com/60IO
 <br>【360密碼】：c067
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cS4Fw
+<br>【百度雲盤】：http://www.linkbucks.com/6zCV
+<br>【百度密碼】：3nci
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-07-20（HD）
@@ -190,10 +190,10 @@
 <br>【百度密碼】：
 <br>【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 人民大道中 2016-07-20（HD）
-<br>【節目主持】：黃永 | 健吾
+<br>【節目名稱】：881 人民大道在乎你 2016-07-20（HD）
+<br>【節目主持】：黃永
 <br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Our Way Out
+<br>【檔案名稱】：The Way Out of Poverty
 <br>【360雲盤】：
 <br>【360雲盤】：
 <br>【360密碼】：
@@ -214,10 +214,10 @@
 <br>【百度密碼】：
 <br>【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 生活日常 2016-07-20（HD）
-<br>【節目主持】：細So
+<br>【節目名稱】：903 朱薰 E 2016-07-20（HD）
+<br>【節目主持】：朱薰
 <br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：My Daily Life
+<br>【檔案名稱】：FUN E
 <br>【360雲盤】：
 <br>【360雲盤】：
 <br>【360密碼】：
