@@ -146,24 +146,24 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cS8Um
+<br>【360雲盤】：http://www.linkbucks.com/6xFj
+<br>【360密碼】：4872
+<br>【百度雲盤】：http://adf.ly/1cSAjH
+<br>【百度雲盤】：http://www.linkbucks.com/6v0C
+<br>【百度密碼】：8qq9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-07-20（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cSA6r
+<br>【360雲盤】：http://www.linkbucks.com/6wh2
+<br>【360密碼】：0746
+<br>【百度雲盤】：http://adf.ly/1cSAqC
+<br>【百度雲盤】：http://www.linkbucks.com/6vzD
+<br>【百度密碼】：sz9v
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-07-20（HD）
