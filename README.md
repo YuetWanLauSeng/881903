@@ -242,36 +242,36 @@
 <br>【節目主持】：黃永
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：解困學貫中西
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cWtPR
+<br>【360雲盤】：http://www.linkbucks.com/7eG4
+<br>【360密碼】：aa69
+<br>【百度雲盤】：http://adf.ly/1cWtGm
+<br>【百度雲盤】：http://www.linkbucks.com/7eIq
+<br>【百度密碼】：7f6v
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-07-22（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cWtMI
+<br>【360雲盤】：http://www.linkbucks.com/7eHa
+<br>【360密碼】：c594
+<br>【百度雲盤】：http://adf.ly/1cWtDL
+<br>【百度雲盤】：http://www.linkbucks.com/7eK1
+<br>【百度密碼】：rwxw
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-07-22（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cWuGy
+<br>【360雲盤】：http://www.linkbucks.com/7dzS
+<br>【360密碼】：c8d8
+<br>【百度雲盤】：http://adf.ly/1cWwR6
+<br>【百度雲盤】：http://www.linkbucks.com/7cZu
+<br>【百度密碼】：95yu
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-07-22（HD）
