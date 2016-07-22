@@ -209,9 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1cWdR1
 <br>【360雲盤】：http://www.linkbucks.com/7a4P
 <br>【360密碼】：4cac
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cWh1B
+<br>【百度雲盤】：http://www.linkbucks.com/7s57
+<br>【百度密碼】：f56b
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 朱薰 E 2016-07-22（HD）
@@ -221,21 +221,21 @@
 <br>【360雲盤】：http://adf.ly/1cWdT5
 <br>【360雲盤】：http://www.linkbucks.com/7a39
 <br>【360密碼】：8c91
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cWgxm
+<br>【百度雲盤】：http://www.linkbucks.com/7s6X
+<br>【百度密碼】：rxpp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-07-22（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cWgtT
+<br>【360雲盤】：http://www.linkbucks.com/7tCd
+<br>【360密碼】：043d
+<br>【百度雲盤】：http://adf.ly/1cWhAA
+<br>【百度雲盤】：http://www.linkbucks.com/7sy5
+<br>【百度密碼】：i811
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 解困學貫中西 2016-07-22（HD）
