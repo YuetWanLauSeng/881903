@@ -2,9 +2,9 @@
 <br>【節目主持】：細So
 <br>【節目時間】：06:00 - 09:00
 <br>【檔案名稱】：So Sunshine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cYCbf
+<br>【360雲盤】：http://www.linkbucks.com/78Gs
+<br>【360密碼】：14d3
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
