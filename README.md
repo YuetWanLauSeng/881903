@@ -158,9 +158,9 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cYrwn
+<br>【360雲盤】：http://www.linkbucks.com/7w5R
+<br>【360密碼】：b953
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -170,9 +170,9 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cYstq
+<br>【360雲盤】：http://www.linkbucks.com/7wxI
+<br>【360密碼】：ae80
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
