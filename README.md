@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1cblQ3
 <br>【360雲盤】：http://www.linkbucks.com/8ijj
 <br>【360密碼】：2359
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2fB
+<br>【百度雲盤】：http://www.linkbucks.com/8oUx
+<br>【百度密碼】：2a4n
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早安，同學早! 2016-07-25（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1cbl6S
 <br>【360雲盤】：http://www.linkbucks.com/8ir3
 <br>【360密碼】：0c69
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2iV
+<br>【百度雲盤】：http://www.linkbucks.com/8oTR
+<br>【百度密碼】：7dqe
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-07-25（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1cblGa
 <br>【360雲盤】：http://www.linkbucks.com/8imN
 <br>【360密碼】：4e38
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2cU
+<br>【百度雲盤】：http://www.linkbucks.com/8oVR
+<br>【百度密碼】：mmce
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-07-25（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1cblNS
 <br>【360雲盤】：http://www.linkbucks.com/8ilK
 <br>【360密碼】：ad27
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2dr
+<br>【百度雲盤】：http://www.linkbucks.com/8oVE
+<br>【百度密碼】：hmj4
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雲常開 2016-07-25（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1cbl4h
 <br>【360雲盤】：http://www.linkbucks.com/8jBe
 <br>【360密碼】：03a7
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2ZL
+<br>【百度雲盤】：http://www.linkbucks.com/8oVw
+<br>【百度密碼】：anw2
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-07-25（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1cblKZ
 <br>【360雲盤】：http://www.linkbucks.com/8ilr
 <br>【360密碼】：8af9
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2jl
+<br>【百度雲盤】：http://www.linkbucks.com/8oS1
+<br>【百度密碼】：htjk
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早霸王 2016-07-25（HD）
@@ -77,9 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1cbl8q
 <br>【360雲盤】：http://www.linkbucks.com/8irT
 <br>【360密碼】：73c0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2gj
+<br>【百度雲盤】：http://www.linkbucks.com/8oTa
+<br>【百度密碼】：aaq5
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 十八樓C座 2016-07-25（HD）
@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1cblVr
 <br>【360雲盤】：http://www.linkbucks.com/8igp
 <br>【360密碼】：69b2
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2lD
+<br>【百度雲盤】：http://www.linkbucks.com/8oSV
+<br>【百度密碼】：9bua
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 一點叮一叮 2016-07-25（HD）
@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1cbxqg
 <br>【360雲盤】：http://www.linkbucks.com/8qOm
 <br>【360密碼】：6fa5
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2Ua
+<br>【百度雲盤】：http://www.linkbucks.com/8oW7
+<br>【百度密碼】：yrpd
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 叱咤樂壇 2016-07-25（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1cbxnh
 <br>【360雲盤】：http://www.linkbucks.com/8qQA
 <br>【360密碼】：380a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2R2
+<br>【百度雲盤】：http://www.linkbucks.com/8oZZ
+<br>【百度密碼】：yvcx
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-07-25（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1cbxkd
 <br>【360雲盤】：http://www.linkbucks.com/8qQp
 <br>【360密碼】：d940
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2XC
+<br>【百度雲盤】：http://www.linkbucks.com/8oWC
+<br>【百度密碼】：vr8d
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 關公災難 2016-07-25（HD）
@@ -137,18 +137,18 @@
 <br>【360雲盤】：http://adf.ly/1cbxvT
 <br>【360雲盤】：http://www.linkbucks.com/8qNl
 <br>【360密碼】：4f2d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cc2T3
+<br>【百度雲盤】：http://www.linkbucks.com/8oYw
+<br>【百度密碼】：x4yw
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-07-25（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cc2zr
+<br>【360雲盤】：http://www.linkbucks.com/8oNG
+<br>【360密碼】：2c81
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -158,9 +158,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cc3a7
+<br>【360雲盤】：http://www.linkbucks.com/8n6j
+<br>【360密碼】：f384
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
