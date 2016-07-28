@@ -278,9 +278,9 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cgtla
+<br>【360雲盤】：http://www.linkbucks.com/AAQV1
+<br>【360密碼】：ead3
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
