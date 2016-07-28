@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1chJPi
 <br>【360雲盤】：http://www.linkbucks.com/AApfG
 <br>【360密碼】：198a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1chMsF
+<br>【百度雲盤】：http://www.linkbucks.com/AAme2
+<br>【百度密碼】：apn2
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 叱咤樂壇 2016-07-28（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1chJYN
 <br>【360雲盤】：http://www.linkbucks.com/2ZuD
 <br>【360密碼】：f6ac
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1chMw5
+<br>【百度雲盤】：http://www.linkbucks.com/AAmbO
+<br>【百度密碼】：rgic
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-07-28（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1chJcV
 <br>【360雲盤】：http://www.linkbucks.com/2cjo
 <br>【360密碼】：aaae
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1chMps
+<br>【百度雲盤】：http://www.linkbucks.com/AAmf6
+<br>【百度密碼】：uxsf
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 關公災難 2016-07-28（HD）
@@ -137,18 +137,18 @@
 <br>【360雲盤】：http://adf.ly/1chJRQ
 <br>【360雲盤】：http://www.linkbucks.com/AApeO
 <br>【360密碼】：9147
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1chMzN
+<br>【百度雲盤】：http://www.linkbucks.com/AAmaK
+<br>【百度密碼】：pxkp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-07-28（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chwM0
+<br>【360雲盤】：http://www.linkbucks.com/97yM
+<br>【360密碼】：98ae
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -158,9 +158,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chwOO
+<br>【360雲盤】：http://www.linkbucks.com/95V6
+<br>【360密碼】：31b6
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -170,9 +170,9 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chw1N
+<br>【360雲盤】：http://www.linkbucks.com/97Py
+<br>【360密碼】：b11c
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -182,9 +182,9 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chwQM
+<br>【360雲盤】：http://www.linkbucks.com/95oV
+<br>【360密碼】：2a47
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -194,9 +194,9 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chwA5
+<br>【360雲盤】：http://www.linkbucks.com/98JV
+<br>【360密碼】：baae
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -206,9 +206,9 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chwHx
+<br>【360雲盤】：http://www.linkbucks.com/97z9
+<br>【360密碼】：a79e
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -218,9 +218,9 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chw7d
+<br>【360雲盤】：http://www.linkbucks.com/958g
+<br>【360密碼】：72df
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -230,9 +230,9 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chwCC
+<br>【360雲盤】：http://www.linkbucks.com/95u1
+<br>【360密碼】：902e
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -242,9 +242,9 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chwSb
+<br>【360雲盤】：http://www.linkbucks.com/95Xo
+<br>【360密碼】：7269
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -254,9 +254,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1chwuo
+<br>【360雲盤】：http://www.linkbucks.com/95vi
+<br>【360密碼】：7324
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
