@@ -98,9 +98,9 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cjTG3
+<br>【360雲盤】：http://www.linkbucks.com/AAW6A
+<br>【360密碼】：47a6
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -170,9 +170,9 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cjTB8
+<br>【360雲盤】：http://www.linkbucks.com/AAXt7
+<br>【360密碼】：1d29
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
