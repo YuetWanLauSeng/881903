@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1chwM0
 <br>【360雲盤】：http://www.linkbucks.com/97yM
 <br>【360密碼】：98ae
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ciohh
+<br>【百度雲盤】：http://www.linkbucks.com/3mF4
+<br>【百度密碼】：ursw
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-07-28（HD）
@@ -161,9 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1chwOO
 <br>【360雲盤】：http://www.linkbucks.com/95V6
 <br>【360密碼】：31b6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ciobJ
+<br>【百度雲盤】：http://www.linkbucks.com/4cS8
+<br>【百度密碼】：smcg
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-07-28（HD）
@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1chwQM
 <br>【360雲盤】：http://www.linkbucks.com/95oV
 <br>【360密碼】：2a47
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cioZv
+<br>【百度雲盤】：http://www.linkbucks.com/46BS
+<br>【百度密碼】：bdus
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-07-28（HD）
@@ -211,7 +211,7 @@
 <br>【360密碼】：a79e
 <br>【百度雲盤】：
 <br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度密碼】：qtc8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-07-28（HD）
@@ -257,9 +257,9 @@
 <br>【360雲盤】：http://adf.ly/1chwuo
 <br>【360雲盤】：http://www.linkbucks.com/95vi
 <br>【360密碼】：7324
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ciogA
+<br>【百度雲盤】：http://www.linkbucks.com/5u7M
+<br>【百度密碼】：nnyc
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-07-28（HD）
@@ -278,46 +278,46 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cioMn
+<br>【360雲盤】：http://www.allanalpass.com/37Lv
+<br>【360密碼】：df15
+<br>【百度雲盤】：http://adf.ly/1cioO5
+<br>【百度雲盤】：http://www.linkbucks.com/5EgI
+<br>【百度密碼】：7h2v
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-07-28（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cioJU
+<br>【360雲盤】：http://www.linkbucks.com/3xGh
+<br>【360密碼】：4ff2
+<br>【百度雲盤】：http://adf.ly/1cioUM
+<br>【百度雲盤】：http://www.linkbucks.com/4SF3
+<br>【百度密碼】：m929
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 廣東爆谷 2016-07-28（HD）
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cioKb
+<br>【360雲盤】：http://www.linkbucks.com/3us9
+<br>【360密碼】：4a22
+<br>【百度雲盤】：http://adf.ly/1cioSc
+<br>【百度雲盤】：http://www.linkbucks.com/4wzo
+<br>【百度密碼】：5dqv
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-28（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cioIS
+<br>【360雲盤】：http://www.linkbucks.com/36Xq
+<br>【360密碼】：0621
+<br>【百度雲盤】：http://adf.ly/1cioPi
+<br>【百度雲盤】：http://www.linkbucks.com/5Hfc
+<br>【百度密碼】：k2cc
 <br>【城通雲盤】：翌日更新
