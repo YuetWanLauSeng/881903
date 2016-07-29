@@ -238,40 +238,40 @@
 <br>【百度密碼】：6d3k
 <br>【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 書.情.歌 2016-07-29（HD）
-<br>【節目主持】：葉宇澄
+<br>【節目名稱】：881 解困學貫中西 2016-07-29（HD）
+<br>【節目主持】：黃永
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：解困學貫中西
+<br>【360雲盤】：http://adf.ly/1cjqca
+<br>【360雲盤】：http://www.linkbucks.com/92ff
+<br>【360密碼】：868e
+<br>【百度雲盤】：http://adf.ly/1cjqkk
+<br>【百度雲盤】：http://www.linkbucks.com/92PM
+<br>【百度密碼】：rrxc
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-07-29（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cjqZH
+<br>【360雲盤】：http://www.linkbucks.com/92gu
+<br>【360密碼】：d99b
+<br>【百度雲盤】：http://adf.ly/1cjqmf
+<br>【百度雲盤】：http://www.linkbucks.com/914s
+<br>【百度密碼】：gpiu
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-07-29（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cjqfG
+<br>【360雲盤】：http://www.linkbucks.com/9193
+<br>【360密碼】：04c4
+<br>【百度雲盤】：http://adf.ly/1cjr20
+<br>【百度雲盤】：http://www.linkbucks.com/91FM
+<br>【百度密碼】：8af5
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-07-29（HD）
