@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1clRc6
 <br>【360雲盤】：http://www.linkbucks.com/AA1H8
 <br>【360密碼】：df6f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1clddd
+<br>【百度雲盤】：http://www.linkbucks.com/AAH6V
+<br>【百度密碼】：i9ig
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903 豁達推介 2016-07-30（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1clRej
 <br>【360雲盤】：http://www.linkbucks.com/AAxGm
 <br>【360密碼】：3ea0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cldZ7
+<br>【百度雲盤】：http://www.linkbucks.com/AAITq
+<br>【百度密碼】：2s5c
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 3號螺絲釘 2016-07-30（HD）
@@ -137,30 +137,30 @@
 <br>【360雲盤】：http://adf.ly/1clS1K
 <br>【360雲盤】：http://www.linkbucks.com/AAxCY
 <br>【360密碼】：ebb7
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cldbz
+<br>【百度雲盤】：v
+<br>【百度密碼】：sg94
 <br>【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 西瓜大發 ! 2016-07-30（HD）
-<br>【節目主持】：西瓜
+<br>【節目名稱】：903 叱咤樂壇 2016-07-30（HD）
+<br>【節目主持】：梁文禮 | 謝茜嘉
 <br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：WonderMelon !
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：903 Music
+<br>【360雲盤】：http://adf.ly/1cldSk
+<br>【360雲盤】：http://www.linkbucks.com/AAH4y
+<br>【360密碼】：2f82
+<br>【百度雲盤】：http://adf.ly/1cldWB
+<br>【百度雲盤】：http://www.linkbucks.com/AAH44
+<br>【百度密碼】：c8x8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-07-30（HD）
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cldQ0
+<br>【360雲盤】：http://www.linkbucks.com/AAHFw
+<br>【360密碼】：adfa
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -170,9 +170,9 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cldNO
+<br>【360雲盤】：http://www.linkbucks.com/AAHFF
+<br>【360密碼】：55ea
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
