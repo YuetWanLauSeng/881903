@@ -8,7 +8,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYoW
 <br>【百度雲盤】：http://www.linkbucks.com/AARvQ
 <br>【百度密碼】：t54c
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 早安，同學早! 2016-07-29（HD）
 <br>【節目主持】：西瓜
@@ -20,7 +20,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYtY
 <br>【百度雲盤】：http://www.linkbucks.com/AAQlk
 <br>【百度密碼】：9ggt
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-07-29（HD）
 <br>【節目主持】：陳志雲 | 陳聰 | 謝遜 | 郭志仁 | 楊樂笙 | 麥詠宜
@@ -32,7 +32,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYr6
 <br>【百度雲盤】：http://www.linkbucks.com/AAQn6
 <br>【百度密碼】：k598
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-07-29（HD）
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
@@ -44,7 +44,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYip
 <br>【百度雲盤】：http://www.linkbucks.com/AAQok
 <br>【百度密碼】：w89j
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 雲常開 2016-07-29（HD）
 <br>【節目主持】：陳志雲
@@ -56,7 +56,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYg6
 <br>【百度雲盤】：http://www.linkbucks.com/AAR6Y
 <br>【百度密碼】：23e2
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 1圈圈 2016-07-29（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -68,7 +68,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYwY
 <br>【百度雲盤】：http://www.linkbucks.com/AARsW
 <br>【百度密碼】：dpaq
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 早霸王 2016-07-29（HD）
 <br>【節目主持】：森美 | 小儀
@@ -80,7 +80,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYlJ
 <br>【百度雲盤】：http://www.linkbucks.com/AARwA
 <br>【百度密碼】：4ncd
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 十八樓C座 2016-07-29（HD）
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
@@ -92,7 +92,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYyh
 <br>【百度雲盤】：http://www.linkbucks.com/AAQj8
 <br>【百度密碼】：2p7s
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 一點叮一叮 2016-07-29（HD）
 <br>【節目主持】：何飛鳳
@@ -104,7 +104,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjY8t
 <br>【百度雲盤】：http://www.linkbucks.com/AARhP
 <br>【百度密碼】：6eh5
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 叱咤樂壇 2016-07-29（HD）
 <br>【節目主持】：謝茜嘉 | 梁文禮
@@ -116,7 +116,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYOf
 <br>【百度雲盤】：http://www.linkbucks.com/AASMF
 <br>【百度密碼】：5yeb
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 人生交叉盤 2016-07-29（HD）
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
@@ -128,7 +128,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYdr
 <br>【百度雲盤】：http://www.linkbucks.com/AAR7q
 <br>【百度密碼】：6xfe
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 關公災難 2016-07-29（HD）
 <br>【節目主持】：劉翁 | 王迪詩
@@ -140,7 +140,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYTM
 <br>【百度雲盤】：http://www.linkbucks.com/AAQvD
 <br>【百度密碼】：nxi3
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 大玩派 2016-07-29（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
@@ -152,7 +152,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYFA
 <br>【百度雲盤】：http://www.linkbucks.com/AAPEq
 <br>【百度密碼】：rdxu
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 口水多過浪花 2016-07-29（HD）
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
@@ -164,7 +164,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjYCD
 <br>【百度雲盤】：http://www.linkbucks.com/AARf7
 <br>【百度密碼】：pjg5
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 毒檸王國 2016-07-29（HD）
 <br>【節目主持】：檸
@@ -176,7 +176,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjY6i
 <br>【百度雲盤】：http://www.linkbucks.com/AASXh
 <br>【百度密碼】：4bq5
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 集雜志 2016-07-29（HD）
 <br>【節目主持】：急急子
@@ -188,7 +188,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjfwR
 <br>【百度雲盤】：http://www.linkbucks.com/AALbF
 <br>【百度密碼】：pmnt
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 人民大道中 2016-07-29（HD）
 <br>【節目主持】：黃永 | 健吾
@@ -200,7 +200,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjfyx
 <br>【百度雲盤】：http://www.linkbucks.com/AALYT
 <br>【百度密碼】：e5r6
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 杏林茶 2016-07-29（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
@@ -212,7 +212,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjfma
 <br>【百度雲盤】：http://www.linkbucks.com/AALn3
 <br>【百度密碼】：untk
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 生活日常 2016-07-29（HD）
 <br>【節目主持】：細So
@@ -224,7 +224,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjfow
 <br>【百度雲盤】：http://www.linkbucks.com/AALhC
 <br>【百度密碼】：1hw3
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 串 2016-07-29（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
@@ -236,7 +236,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjiKn
 <br>【百度雲盤】：http://www.linkbucks.com/AAJPW
 <br>【百度密碼】：6d3k
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 解困學貫中西 2016-07-29（HD）
 <br>【節目主持】：黃永
@@ -248,7 +248,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjqkk
 <br>【百度雲盤】：http://www.linkbucks.com/92PM
 <br>【百度密碼】：rrxc
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 雲妮鍾情 2016-07-29（HD）
 <br>【節目主持】：Vani
@@ -260,7 +260,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjqmf
 <br>【百度雲盤】：http://www.linkbucks.com/914s
 <br>【百度密碼】：gpiu
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 光明頂 2016-07-29（HD）
 <br>【節目主持】：陶傑 | 嘉賓主持
@@ -272,7 +272,7 @@
 <br>【百度雲盤】：http://adf.ly/1cjr20
 <br>【百度雲盤】：http://www.linkbucks.com/91FM
 <br>【百度密碼】：8af5
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-07-29（HD）
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
@@ -284,7 +284,7 @@
 <br>【百度雲盤】：http://adf.ly/1ckXSq
 <br>【百度雲盤】：http://www.linkbucks.com/9zxP
 <br>【百度密碼】：dph6
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-07-29（HD）
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
@@ -296,7 +296,7 @@
 <br>【百度雲盤】：http://adf.ly/1ckXUZ
 <br>【百度雲盤】：http://www.linkbucks.com/9zmL
 <br>【百度密碼】：2k3a
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：903 廣東爆谷 2016-07-29（HD）
 <br>【節目主持】：Colin
@@ -308,7 +308,7 @@
 <br>【百度雲盤】：http://adf.ly/1ckXTd
 <br>【百度雲盤】：http://www.linkbucks.com/9zv4
 <br>【百度密碼】：g5y3
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-29（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
@@ -320,4 +320,4 @@
 <br>【百度雲盤】：http://adf.ly/1ckXRm
 <br>【百度雲盤】：http://www.linkbucks.com/9z7y
 <br>【百度密碼】：uxep
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Aug248699
