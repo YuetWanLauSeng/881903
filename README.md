@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1ckh2G
 <br>【360雲盤】：http://www.linkbucks.com/AAoUZ
 <br>【360密碼】：6419
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ckpAI
+<br>【百度雲盤】：http://www.linkbucks.com/AAudH
+<br>【百度密碼】：7jxh
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 政經星期六 2016-07-30（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1ckgzS
 <br>【360雲盤】：http://www.linkbucks.com/AAoz7
 <br>【360密碼】：4839
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ckpEr
+<br>【百度雲盤】：http://www.linkbucks.com/AAupI
+<br>【百度密碼】：s5cg
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 西加航空 2016-07-30（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1ckgnI
 <br>【360雲盤】：http://www.linkbucks.com/AAqDh
 <br>【360密碼】：c1de
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ckpHw
+<br>【百度雲盤】：http://www.linkbucks.com/AAuj9
+<br>【百度密碼】：c62m
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 不平平則鳴 2016-07-30（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1ckgyG
 <br>【360雲盤】：http://www.linkbucks.com/AAoqQ
 <br>【360密碼】：f823
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ckpGF
+<br>【百度雲盤】：http://www.linkbucks.com/AAunP
+<br>【百度密碼】：du7w
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 考股專家 2016-07-30（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1ckh3A
 <br>【360雲盤】：http://www.linkbucks.com/AAoPR
 <br>【360密碼】：0fbd
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ckpCM
+<br>【百度雲盤】：http://www.linkbucks.com/AAupd
+<br>【百度密碼】：n5uq
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903 專業推介 2016-07-30（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1cko1I
 <br>【360雲盤】：http://www.linkbucks.com/6R3M
 <br>【360密碼】：7a62
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ckp4C
+<br>【百度雲盤】：http://www.linkbucks.com/AAuuv
+<br>【百度密碼】：qy2j
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 電影圈 2016-07-30（HD）
@@ -77,9 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1cknxq
 <br>【360雲盤】：http://www.linkbucks.com/6R3U
 <br>【360密碼】：b684
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ckp6H
+<br>【百度雲盤】：http://www.linkbucks.com/AAuun
+<br>【百度密碼】：y9gk
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 咪芝蓮 2016-07-30（HD）
@@ -89,21 +89,21 @@
 <br>【360雲盤】：http://adf.ly/1cknvK
 <br>【360雲盤】：http://www.linkbucks.com/AAhF1
 <br>【360密碼】：4ead
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ckp7t
+<br>【百度雲盤】：http://www.linkbucks.com/AAuuC
+<br>【百度密碼】：3b98
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 咆哮山莊 2016-07-30（HD）
 <br>【節目主持】：903 DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cksiR
+<br>【360雲盤】：http://www.linkbucks.com/AAZnf
+<br>【360密碼】：a771
+<br>【百度雲盤】：http://adf.ly/1cktIt
+<br>【百度雲盤】：http://www.linkbucks.com/AATOX
+<br>【百度密碼】：scay
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-07-30（HD）
