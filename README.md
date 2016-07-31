@@ -62,12 +62,12 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Binge-Watch
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cmjMq
+<br>【360雲盤】：http://www.linkbucks.com/ABCgu
+<br>【360密碼】：1158
+<br>【百度雲盤】：http://adf.ly/1cmjtp
+<br>【百度雲盤】：http://www.linkbucks.com/AA7oD
+<br>【百度密碼】：7x84
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 Mali Mali Home 2016-07-31（HD）
