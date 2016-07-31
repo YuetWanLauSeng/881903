@@ -98,12 +98,12 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cn2SE
+<br>【360雲盤】：http://www.linkbucks.com/ABXOE
+<br>【360密碼】：8dda
+<br>【百度雲盤】：http://adf.ly/1cmyXd
+<br>【百度雲盤】：http://www.linkbucks.com/ABTJs
+<br>【百度密碼】：s4de
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 泡菜粉絲煲 2016-07-31（HD） 
