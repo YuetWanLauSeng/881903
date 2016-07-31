@@ -1,227 +1,203 @@
-<br>【節目名稱】：903 好醒晨 2016-07-30（HD）
-<br>【節目主持】：細So
-<br>【節目時間】：06:00 - 09:00
-<br>【檔案名稱】：So Sunshine
-<br>【360雲盤】：http://adf.ly/1ckh2G
-<br>【360雲盤】：http://www.linkbucks.com/AAoUZ
-<br>【360密碼】：6419
-<br>【百度雲盤】：http://adf.ly/1ckpAI
-<br>【百度雲盤】：http://www.linkbucks.com/AAudH
-<br>【百度密碼】：7jxh
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881 書.情.歌 2016-07-31（HD）
+【節目主持】：葉宇澄
+【節目時間】：06:00 - 08:00
+【檔案名稱】：Reading Time
+【360雲盤】：http://adf.ly/1cmYhm
+【360雲盤】：http://www.linkbucks.com/961C
+【360密碼】：00fa
+【百度雲盤】：http://adf.ly/1cmYm8
+【百度雲盤】：http://www.linkbucks.com/96zY
+【百度密碼】：eaer
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 政經星期六 2016-07-30（HD）
-<br>【節目主持】：陳淑薇 | 羅輝
-<br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：Saturday Forum
-<br>【360雲盤】：http://adf.ly/1ckgzS
-<br>【360雲盤】：http://www.linkbucks.com/AAoz7
-<br>【360密碼】：4839
-<br>【百度雲盤】：http://adf.ly/1ckpEr
-<br>【百度雲盤】：http://www.linkbucks.com/AAupI
-<br>【百度密碼】：s5cg
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881 政好星期天 2016-07-31（HD）
+【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
+【節目時間】：08:00 - 10:00
+【檔案名稱】：Beautiful Sunday
+【360雲盤】：http://adf.ly/1cmYgU
+【360雲盤】：http://www.linkbucks.com/9628
+【360密碼】：9825
+【百度雲盤】：http://adf.ly/1cmYn0
+【百度雲盤】：http://www.linkbucks.com/96zO
+【百度密碼】：azxa
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 西加航空 2016-07-30（HD）
-<br>【節目主持】：謝茜嘉
-<br>【節目時間】：09:00 - 11:00
-<br>【檔案名稱】：J.A.L
-<br>【360雲盤】：http://adf.ly/1ckgnI
-<br>【360雲盤】：http://www.linkbucks.com/AAqDh
-<br>【360密碼】：c1de
-<br>【百度雲盤】：http://adf.ly/1ckpHw
-<br>【百度雲盤】：http://www.linkbucks.com/AAuj9
-<br>【百度密碼】：c62m
-<br>【城通雲盤】：翌日更新
+【節目名稱】：903 Urban Touch 2016-07-31（HD）
+【節目主持】：急急子
+【節目時間】：09:00 - 11:00
+【檔案名稱】：Urban Touch
+【360雲盤】：http://adf.ly/1cmYiT
+【360雲盤】：http://www.linkbucks.com/960a
+【360密碼】：8134
+【百度雲盤】：http://adf.ly/1cmYkz
+【百度雲盤】：http://www.linkbucks.com/960M
+【百度密碼】：d9wp
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 不平平則鳴 2016-07-30（HD）
-<br>【節目主持】：陳聰 | 王永平
-<br>【節目時間】：10:00 - 11:00
-<br>【檔案名稱】：LegCo Inside-Out
-<br>【360雲盤】：http://adf.ly/1ckgyG
-<br>【360雲盤】：http://www.linkbucks.com/AAoqQ
-<br>【360密碼】：f823
-<br>【百度雲盤】：http://adf.ly/1ckpGF
-<br>【百度雲盤】：http://www.linkbucks.com/AAunP
-<br>【百度密碼】：du7w
-<br>【城通雲盤】：翌日更新
+【節目名稱】：903 阿叔殖民地 2016-07-31（HD）
+【節目主持】：何兆基
+【節目時間】：11:00 - 12:00
+【檔案名稱】：Music Frog
+【360雲盤】：http://adf.ly/1cmYjP
+【360雲盤】：http://www.linkbucks.com/960T
+【360密碼】：9122
+【百度雲盤】：http://adf.ly/1cmYoI
+【百度雲盤】：http://www.linkbucks.com/96zG
+【百度密碼】：b2fi
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 考股專家 2016-07-30（HD）
-<br>【節目主持】：陳永陸 | 伍甄琪
-<br>【節目時間】：11:00 - 12:00
-<br>【檔案名稱】：Stockaeologist
-<br>【360雲盤】：http://adf.ly/1ckh3A
-<br>【360雲盤】：http://www.linkbucks.com/AAoPR
-<br>【360密碼】：0fbd
-<br>【百度雲盤】：http://adf.ly/1ckpCM
-<br>【百度雲盤】：http://www.linkbucks.com/AAupd
-<br>【百度密碼】：n5uq
-<br>【城通雲盤】：翌日更新
+【節目名稱】：903 讀賣Sunday 2016-07-31（HD）
+【節目主持】：占 | 王貽興
+【節目時間】：12:00 - 14:00
+【檔案名稱】：Sunny Day Readings
+【360雲盤】：http://adf.ly/1cmaGS
+【360雲盤】：http://www.linkbucks.com/91tv
+【360密碼】：cf7d
+【百度雲盤】：http://adf.ly/1cmavU
+【百度雲盤】：http://www.linkbucks.com/9Hoq
+【百度密碼】：e7is
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 903 專業推介 2016-07-30（HD）
-<br>【節目主持】：Donald
-<br>【節目時間】：11:00 - 13:00
-<br>【檔案名稱】：903 Top 20
-<br>【360雲盤】：http://adf.ly/1cko1I
-<br>【360雲盤】：http://www.linkbucks.com/6R3M
-<br>【360密碼】：7a62
-<br>【百度雲盤】：http://adf.ly/1ckp4C
-<br>【百度雲盤】：http://www.linkbucks.com/AAuuv
-<br>【百度密碼】：qy2j
-<br>【城通雲盤】：翌日更新
+【節目名稱】：903 無定向喪煲病狂 2016-07-31（HD）
+【節目主持】：鄒凱光 | 檸
+【節目時間】：14:00 - 16:00
+【檔案名稱】：Binge-Watch
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 電影圈 2016-07-30（HD）
-<br>【節目主持】：馮志豐 | 鄔家麟
-<br>【節目時間】：12:30 - 14:00
-<br>【檔案名稱】：Movies
-<br>【360雲盤】：http://adf.ly/1cknxq
-<br>【360雲盤】：http://www.linkbucks.com/6R3U
-<br>【360密碼】：b684
-<br>【百度雲盤】：http://adf.ly/1ckp6H
-<br>【百度雲盤】：http://www.linkbucks.com/AAuun
-<br>【百度密碼】：y9gk
-<br>【城通雲盤】：翌日更新
+【節目名稱】：903 Mali Mali Home 2016-07-31（HD）
+【節目主持】：麻利亞
+【節目時間】：16:00 - 18:00
+【檔案名稱】：Mali Mali Home
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 咪芝蓮 2016-07-30（HD）
-<br>【節目主持】：小儀
-<br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Mr Chef
-<br>【360雲盤】：http://adf.ly/1cknvK
-<br>【360雲盤】：http://www.linkbucks.com/AAhF1
-<br>【360密碼】：4ead
-<br>【百度雲盤】：http://adf.ly/1ckp7t
-<br>【百度雲盤】：http://www.linkbucks.com/AAuuC
-<br>【百度密碼】：3b98
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881 串 2016-07-31（HD）
+【節目主持】：潘小濤 | 何亦文
+【節目時間】：18:30 - 19:00
+【檔案名稱】：Sino Stream
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 咆哮山莊 2016-07-30（HD）
-<br>【節目主持】：903 DJ
-<br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：903 Band Time
-<br>【360雲盤】：http://adf.ly/1cksiR
-<br>【360雲盤】：http://www.linkbucks.com/AAZnf
-<br>【360密碼】：a771
-<br>【百度雲盤】：http://adf.ly/1cktIt
-<br>【百度雲盤】：http://www.linkbucks.com/AATOX
-<br>【百度密碼】：scay
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881 讀懂中國 2016-07-31（HD）
+【節目主持】：潘小濤 | 何亦文
+【節目時間】：19:00 - 20:00
+【檔案名稱】：Sino Stream - Reading
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 1圈圈 2016-07-30（HD）
-<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
-<br>【節目時間】：14:00 - 17:00
-<br>【檔案名稱】：Circles
-<br>【360雲盤】：http://adf.ly/1clRc6
-<br>【360雲盤】：http://www.linkbucks.com/AA1H8
-<br>【360密碼】：df6f
-<br>【百度雲盤】：http://adf.ly/1clddd
-<br>【百度雲盤】：http://www.linkbucks.com/AAH6V
-<br>【百度密碼】：i9ig
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881 泡菜粉絲煲 2016-07-31（HD） 
+【節目主持】：伍甄琪 | 伍悅
+【節目時間】：20:00 - 21:00
+【檔案名稱】：Kimchi Fans Club
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 903 豁達推介 2016-07-30（HD）
-<br>【節目主持】：梁文禮
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：Quote Chart
-<br>【360雲盤】：http://adf.ly/1clRej
-<br>【360雲盤】：http://www.linkbucks.com/AAxGm
-<br>【360密碼】：3ea0
-<br>【百度雲盤】：http://adf.ly/1cldZ7
-<br>【百度雲盤】：http://www.linkbucks.com/AAITq
-<br>【百度密碼】：2s5c
-<br>【城通雲盤】：翌日更新
+【節目名稱】：903 國語類 2016-07-31（HD）
+【節目主持】：Vani
+【節目時間】：18:00 - 21:00
+【檔案名稱】：Bo Po Mo Fo
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 3號螺絲釘 2016-07-30（HD）
-<br>【節目主持】：Colin
-<br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Screw No.3
-<br>【360雲盤】：http://adf.ly/1clS1K
-<br>【360雲盤】：http://www.linkbucks.com/AAxCY
-<br>【360密碼】：ebb7
-<br>【百度雲盤】：http://adf.ly/1cldbz
-<br>【百度雲盤】：v
-<br>【百度密碼】：sg94
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881 細路強 2016-07-31（HD） 
+【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+【節目時間】：21:00 - 22:00 
+【檔案名稱】：Mighty Kids Mighty Parents
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 叱咤樂壇 2016-07-30（HD）
-<br>【節目主持】：梁文禮 | 謝茜嘉
-<br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：903 Music
-<br>【360雲盤】：http://adf.ly/1cldSk
-<br>【360雲盤】：http://www.linkbucks.com/AAH4y
-<br>【360密碼】：2f82
-<br>【百度雲盤】：http://adf.ly/1cldWB
-<br>【百度雲盤】：http://www.linkbucks.com/AAH44
-<br>【百度密碼】：c8x8
-<br>【城通雲盤】：翌日更新
+【節目名稱】：903 903國民教育 2016-07-31（HD）
+【節目主持】：健吾
+【節目時間】：21:00 - 23:00
+【檔案名稱】：Time's Up Pen's Down
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 雷霆音樂圈 2016-07-30（HD）
-<br>【節目主持】：楊美琪
-<br>【節目時間】：20:00 - 23:00
-<br>【檔案名稱】：881 Music Station
-<br>【360雲盤】：http://adf.ly/1cldQ0
-<br>【360雲盤】：http://www.linkbucks.com/AAHFw
-<br>【360密碼】：adfa
-<br>【百度雲盤】：http://adf.ly/1cmTEs
-<br>【百度雲盤】：http://www.linkbucks.com/AAZJR
-<br>【百度密碼】：czdp
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881 葛民教育 2016-07-31（HD）
+【節目主持】：葛民輝
+【節目時間】：23:00 - 23:30
+【檔案名稱】：Kot’s ology
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 Chi Chung's Class 2016-07-30（HD）
-<br>【節目主持】：黃志淙
-<br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Chi Chung's Class
-<br>【360雲盤】：http://adf.ly/1cldNO
-<br>【360雲盤】：http://www.linkbucks.com/AAHFF
-<br>【360密碼】：55ea
-<br>【百度雲盤】：http://adf.ly/1cmTFj
-<br>【百度雲盤】：http://www.linkbucks.com/AAZSA
-<br>【百度密碼】：jjbq
-<br>【城通雲盤】：翌日更新
+【節目名稱】：903 短期租約 2016-07-31（HD）
+【節目主持】：Wasabi
+【節目時間】：23:00 - 02:00
+【檔案名稱】：Short-term Lease
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 公子會 2016-07-30（HD）
-<br>【節目主持】：森美
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：The Playtoy Mansion
-<br>【360雲盤】：http://adf.ly/1cmHoj
-<br>【360雲盤】：http://www.linkbucks.com/AA4NG
-<br>【360密碼】：cda2
-<br>【百度雲盤】：http://adf.ly/1cmTIB
-<br>【百度雲盤】：http://www.linkbucks.com/AASu9
-<br>【百度密碼】：9yvr
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881 寫生活 2016-07-31（HD）
+【節目主持】：881 主持人
+【節目時間】：01:00 - 02:00
+【檔案名稱】：Bedtime Readings
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 發式生活 2016-07-30（HD） 
-<br>【節目主持】：余宜發
-<br>【節目時間】：00:30 - 02:00
-<br>【檔案名稱】：Fat’s Lifestyle
-<br>【360雲盤】：http://adf.ly/1cmJip
-<br>【360雲盤】：http://www.linkbucks.com/AA2Bg
-<br>【360密碼】：8f83
-<br>【百度雲盤】：http://adf.ly/1cmTCi
-<br>【百度雲盤】：http://www.linkbucks.com/AAZIZ
-<br>【百度密碼】：ni29
-<br>【城通雲盤】：翌日更新
-
-<br>【節目名稱】：903 皇牌出場 2016-07-30（HD）
-<br>【節目主持】：Marco | Keyman
-<br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Losing Eleven
-<br>【360雲盤】：http://adf.ly/1cmJqX
-<br>【360雲盤】：http://www.linkbucks.com/AA1SY
-<br>【360密碼】：313e
-<br>【百度雲盤】：http://adf.ly/1cmTDV
-<br>【百度雲盤】：http://www.linkbucks.com/AAZIk
-<br>【百度密碼】：f3qb
-<br>【城通雲盤】：翌日更新
-
-<br>【節目名稱】：881903 一切從音樂開始 2016-07-30（HD）
-<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
-<br>【節目時間】：02:00 - 06:00
-<br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：http://adf.ly/1cmJcI
-<br>【360雲盤】：http://www.linkbucks.com/AA2K1
-<br>【360密碼】：e154
-<br>【百度雲盤】：http://adf.ly/1cmTGy
-<br>【百度雲盤】：http://www.linkbucks.com/AASu0
-<br>【百度密碼】：xz5f
-<br>【城通雲盤】：翌日更新
+【節目名稱】：881903 一切從音樂開始 2016-07-31（HD）
+【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+【節目時間】：02:00 - 06:00
+【檔案名稱】：Begin with Music
+【360雲盤】：
+【360雲盤】：
+【360密碼】：
+【百度雲盤】：
+【百度雲盤】：
+【百度密碼】：
+【城通雲盤】：翌日更新
