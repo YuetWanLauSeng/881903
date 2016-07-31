@@ -74,24 +74,24 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Mali Mali Home
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cmt1s
+<br>【360雲盤】：http://www.linkbucks.com/AAnnU
+<br>【360密碼】：f965
+<br>【百度雲盤】：http://adf.ly/1cmte4
+<br>【百度雲盤】：http://www.linkbucks.com/AAiFR
+<br>【百度密碼】：aynp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-07-31（HD）
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cmyYx
+<br>【360雲盤】：http://www.linkbucks.com/AAb4v
+<br>【360密碼】：7cf9
+<br>【百度雲盤】：http://adf.ly/1cmyXd
+<br>【百度雲盤】：http://www.linkbucks.com/AAb46
+<br>【百度密碼】：s4de
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 讀懂中國 2016-07-31（HD）
