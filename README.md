@@ -161,9 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1cldQ0
 <br>【360雲盤】：http://www.linkbucks.com/AAHFw
 <br>【360密碼】：adfa
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cmTEs
+<br>【百度雲盤】：http://www.linkbucks.com/AAZJR
+<br>【百度密碼】：czdp
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 Chi Chung's Class 2016-07-30（HD）
@@ -173,9 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1cldNO
 <br>【360雲盤】：http://www.linkbucks.com/AAHFF
 <br>【360密碼】：55ea
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cmTFj
+<br>【百度雲盤】：http://www.linkbucks.com/AAZSA
+<br>【百度密碼】：jjbq
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 公子會 2016-07-30（HD）
@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1cmHoj
 <br>【360雲盤】：http://www.linkbucks.com/AA4NG
 <br>【360密碼】：cda2
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cmTIB
+<br>【百度雲盤】：http://www.linkbucks.com/AASu9
+<br>【百度密碼】：9yvr
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 發式生活 2016-07-30（HD） 
@@ -197,9 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1cmJip
 <br>【360雲盤】：http://www.linkbucks.com/AA2Bg
 <br>【360密碼】：8f83
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cmTCi
+<br>【百度雲盤】：http://www.linkbucks.com/AAZIZ
+<br>【百度密碼】：ni29
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 皇牌出場 2016-07-30（HD）
@@ -209,9 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1cmJqX
 <br>【360雲盤】：http://www.linkbucks.com/AA1SY
 <br>【360密碼】：313e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cmTDV
+<br>【百度雲盤】：http://www.linkbucks.com/AAZIk
+<br>【百度密碼】：f3qb
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-30（HD）
@@ -221,7 +221,7 @@
 <br>【360雲盤】：http://adf.ly/1cmJcI
 <br>【360雲盤】：http://www.linkbucks.com/AA2K1
 <br>【360密碼】：e154
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cmTGy
+<br>【百度雲盤】：http://www.linkbucks.com/AASu0
+<br>【百度密碼】：xz5f
 <br>【城通雲盤】：翌日更新
