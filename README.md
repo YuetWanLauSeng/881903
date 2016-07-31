@@ -110,60 +110,60 @@
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cnDfq
+<br>【360雲盤】：http://www.linkbucks.com/AANCZ
+<br>【360密碼】：fad8
+<br>【百度雲盤】：http://adf.ly/1cnDsF
+<br>【百度雲盤】：http://adf.ly/1cnDsF
+<br>【百度密碼】：425w
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 國語類 2016-07-31（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：18:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cnDbe
+<br>【360雲盤】：http://www.linkbucks.com/AANE9
+<br>【360密碼】：2eb6
+<br>【百度雲盤】：http://adf.ly/1cnDqh
+<br>【百度雲盤】：http://www.linkbucks.com/AAM94
+<br>【百度密碼】：umig
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 細路強 2016-07-31（HD） 
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cnDif
+<br>【360雲盤】：http://www.linkbucks.com/AANCC
+<br>【360密碼】：8b90
+<br>【百度雲盤】：http://adf.ly/1cnDob
+<br>【百度雲盤】：http://www.linkbucks.com/AANAJ
+<br>【百度密碼】：wfh9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903國民教育 2016-07-31（HD）
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cnDkH
+<br>【360雲盤】：http://www.linkbucks.com/AANBV
+<br>【360密碼】：cd8b
+<br>【百度雲盤】：http://adf.ly/1cnDmx
+<br>【百度雲盤】：http://www.linkbucks.com/AANBN
+<br>【百度密碼】：iqtg
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 葛民教育 2016-07-31（HD）
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cnDtt
+<br>【360雲盤】：http://www.linkbucks.com/AAM9p
+<br>【360密碼】：c476
+<br>【百度雲盤】：http://adf.ly/1cnE6o
+<br>【百度雲盤】：http://www.linkbucks.com/AAM2E
+<br>【百度密碼】：b8re
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 短期租約 2016-07-31（HD）
