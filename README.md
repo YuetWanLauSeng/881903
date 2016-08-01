@@ -161,43 +161,43 @@
 <br>【360雲盤】：http://adf.ly/1cnDtt
 <br>【360雲盤】：http://www.linkbucks.com/AAM9p
 <br>【360密碼】：c476
-<br>【百度雲盤】：http://adf.ly/1cnE6o
-<br>【百度雲盤】：http://www.linkbucks.com/AAM2E
-<br>【百度密碼】：b8re
+<br>【百度雲盤】：http://adf.ly/1cnvqQ
+<br>【百度雲盤】：http://www.linkbucks.com/AAeWs
+<br>【百度密碼】：nk1p
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 短期租約 2016-07-31（HD）
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cnvsd
+<br>【360雲盤】：http://www.linkbucks.com/AAeV0
+<br>【360密碼】：9178
+<br>【百度雲盤】：http://adf.ly/1cnw56
+<br>【百度雲盤】：http://www.linkbucks.com/AAeVN
+<br>【百度密碼】：8dr3
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 寫生活 2016-07-31（HD）
 <br>【節目主持】：881 主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cnw1z
+<br>【360雲盤】：http://www.linkbucks.com/AAeVZ
+<br>【360密碼】：59a2
+<br>【百度雲盤】：http://adf.ly/1cnw6i
+<br>【百度雲盤】：http://www.linkbucks.com/AAeVD
+<br>【百度密碼】：2fe8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-07-31（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cnw0c
+<br>【360雲盤】：http://www.linkbucks.com/AAeVh
+<br>【360密碼】：3e7d
+<br>【百度雲盤】：http://adf.ly/1cnw41
+<br>【百度雲盤】：http://www.linkbucks.com/AAeVP
+<br>【百度密碼】：cxwx
 <br>【城通雲盤】：翌日更新
