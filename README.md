@@ -173,9 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1cqbMn
 <br>【360雲盤】：http://www.linkbucks.com/ABISU
 <br>【360密碼】：25df
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cqllQ
+<br>【百度雲盤】：http://www.linkbucks.com/ABRV3
+<br>【百度密碼】：vbv5
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-08-02（HD）
@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1cqbHc
 <br>【360雲盤】：http://www.linkbucks.com/ABITr
 <br>【360密碼】：8965
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cqliX
+<br>【百度雲盤】：http://www.linkbucks.com/ABRWk
+<br>【百度密碼】：5na9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-08-02（HD）
@@ -197,9 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1cqgrM
 <br>【360雲盤】：http://www.linkbucks.com/3h6E
 <br>【360密碼】：b186
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cqygJ
+<br>【百度雲盤】：http://www.linkbucks.com/ABgX7
+<br>【百度密碼】：y8e8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-08-02（HD）
@@ -209,42 +209,42 @@
 <br>【360雲盤】：http://adf.ly/1cqgpA
 <br>【360雲盤】：http://www.linkbucks.com/7tL0
 <br>【360密碼】：8991
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cqyjj
+<br>【百度雲盤】：http://www.linkbucks.com/ABgXb
+<br>【百度密碼】：ievx
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-08-02（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cqy7y
+<br>【360雲盤】：http://www.linkbucks.com/ABg1I
+<br>【360密碼】：e24b
+<br>【百度雲盤】：http://adf.ly/1cqylO
+<br>【百度雲盤】：http://www.linkbucks.com/ABgW0
+<br>【百度密碼】：azkt
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 書.情.歌 2016-08-02（HD）
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cqy5k
+<br>【360雲盤】：http://www.linkbucks.com/ABg3L
+<br>【360密碼】：a2ab
+<br>【百度雲盤】：http://adf.ly/1cqyoF
+<br>【百度雲盤】：http://www.linkbucks.com/ABgV7
+<br>【百度密碼】：9r3x
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-08-02（HD）
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cqyBr
+<br>【360雲盤】：http://www.linkbucks.com/ABgzM
+<br>【360密碼】：8558
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -254,12 +254,12 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cqyFj
+<br>【360雲盤】：http://www.linkbucks.com/ABgyV
+<br>【360密碼】：6ae5
+<br>【百度雲盤】：http://adf.ly/1cqyrT
+<br>【百度雲盤】：http://www.linkbucks.com/ABgVi
+<br>【百度密碼】：1r3w
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-08-02（HD）
