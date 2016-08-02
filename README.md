@@ -158,9 +158,9 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cqQ2G
+<br>【360雲盤】：http://www.linkbucks.com/AAote
+<br>【360密碼】：a33e
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
