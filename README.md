@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1cqExI
 <br>【360雲盤】：http://www.linkbucks.com/ABEyL
 <br>【360密碼】：1877
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cqIKP
+<br>【百度雲盤】：http://www.linkbucks.com/AA6vK
+<br>【百度密碼】：7u57
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 叱咤樂壇 2016-08-02（HD）
@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1cqEtt
 <br>【360雲盤】：http://www.linkbucks.com/ABE1E
 <br>【360密碼】：a81f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cqIPT
+<br>【百度雲盤】：http://www.linkbucks.com/AA6uz
+<br>【百度密碼】：9wh5
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-08-02（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1cqEvQ
 <br>【360雲盤】：http://www.linkbucks.com/ABE07
 <br>【360密碼】：42e6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cqIM9
+<br>【百度雲盤】：http://www.linkbucks.com/AA6vB
+<br>【百度密碼】：mthn
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 關公災難 2016-08-02（HD）
@@ -125,18 +125,18 @@
 <br>【360雲盤】：http://adf.ly/1cqEyy
 <br>【360雲盤】：http://www.linkbucks.com/ABEyF
 <br>【360密碼】：a1ce
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cqIIU
+<br>【百度雲盤】：http://www.linkbucks.com/AA6vO
+<br>【百度密碼】：avx8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-08-02（HD）
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cqNsR
+<br>【360雲盤】：http://www.linkbucks.com/AArXU
+<br>【360密碼】：ccab
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -146,9 +146,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cqOZ1
+<br>【360雲盤】：http://www.linkbucks.com/AApJH
+<br>【360密碼】：0c00
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
