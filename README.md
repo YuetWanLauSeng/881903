@@ -134,9 +134,9 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1csB2v
+<br>【360雲盤】：http://www.linkbucks.com/ABfXJ
+<br>【360密碼】：4eb3
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -146,9 +146,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1csB5P
+<br>【360雲盤】：http://www.linkbucks.com/ABfW8
+<br>【360密碼】：9267
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -158,9 +158,9 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1csB02
+<br>【360雲盤】：http://www.linkbucks.com/ABfXt
+<br>【360密碼】：3cbd
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -170,21 +170,21 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1csIKr
+<br>【360雲盤】：http://www.linkbucks.com/ABdxp
+<br>【360密碼】：7a9c
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
 <br>【城通雲盤】：翌日更新
 
-<br>【節目名稱】：881 人民大道中 2016-08-03（HD）
-<br>【節目主持】：黃永 | 健吾
+<br>【節目名稱】：881 人民大道在乎你 2016-08-03（HD）
+<br>【節目主持】：黃永
 <br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【檔案名稱】：The Way Out of Poverty
+<br>【360雲盤】：http://adf.ly/1csII1
+<br>【360雲盤】：http://www.linkbucks.com/ABdxu
+<br>【360密碼】：9246
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -194,9 +194,9 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1csKTg
+<br>【360雲盤】：http://www.linkbucks.com/ABdja
+<br>【360密碼】：c816
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
