@@ -161,9 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1ctdW4
 <br>【360雲盤】：http://www.linkbucks.com/ABxjI
 <br>【360密碼】：a750
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ctvzC
+<br>【百度雲盤】：http://www.linkbucks.com/AB62T
+<br>【百度密碼】：su8x
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 集雜志 2016-08-04（HD）
@@ -173,9 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1ctr4z
 <br>【360雲盤】：http://www.linkbucks.com/ACAUD
 <br>【360密碼】：7386
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ctvHw
+<br>【百度雲盤】：http://www.linkbucks.com/AB7G1
+<br>【百度密碼】：x4nv
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-08-04（HD）
@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1ctqTh
 <br>【360雲盤】：http://www.linkbucks.com/ACAXT
 <br>【360密碼】：bcdf
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ctvvI
+<br>【百度雲盤】：http://www.linkbucks.com/AB64l
+<br>【百度密碼】：qkwg
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-08-04（HD）
@@ -197,33 +197,33 @@
 <br>【360雲盤】：http://adf.ly/1ctqja
 <br>【360雲盤】：http://www.linkbucks.com/AB97c
 <br>【360密碼】：3c30
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ctvx6
+<br>【百度雲盤】：http://www.linkbucks.com/AB620
+<br>【百度密碼】：kwaz
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-08-04（HD）
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ctvDT
+<br>【360雲盤】：http://www.linkbucks.com/AB7IO
+<br>【360密碼】：e426
+<br>【百度雲盤】：http://adf.ly/1ctvsr
+<br>【百度雲盤】：http://www.linkbucks.com/AB643
+<br>【百度密碼】：yi9y
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-08-04（HD）
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ctxTd
+<br>【360雲盤】：http://www.linkbucks.com/AB5dY
+<br>【360密碼】：962e
+<br>【百度雲盤】：http://adf.ly/1ctxWq
+<br>【百度雲盤】：http://www.linkbucks.com/AB5cd
+<br>【百度密碼】：mctj
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 書.情.歌 2016-08-04（HD）
