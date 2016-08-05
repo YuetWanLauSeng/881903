@@ -173,9 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1cvZHV
 <br>【360雲盤】：http://www.linkbucks.com/ACFbf
 <br>【360密碼】：0539
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cvmov
+<br>【百度雲盤】：http://www.linkbucks.com/ACSEg
+<br>【百度密碼】：xpaj
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-08-05（HD）
@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1cvZCv
 <br>【360雲盤】：http://www.linkbucks.com/ACFqy
 <br>【360密碼】：a8a3
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cvmkG
+<br>【百度雲盤】：http://www.linkbucks.com/ACSID
+<br>【百度密碼】：bv5x
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-08-05（HD）
@@ -197,9 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1cvZEg
 <br>【360雲盤】：http://www.linkbucks.com/ACFwS
 <br>【360密碼】：4940
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cvmmu
+<br>【百度雲盤】：http://www.linkbucks.com/ACSHb
+<br>【百度密碼】：46vy
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-08-05（HD）
@@ -230,21 +230,21 @@
 <br>【節目主持】：黃永
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：解困學貫中西
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cvlqV
+<br>【360雲盤】：http://www.linkbucks.com/ACOSE
+<br>【360密碼】：3b19
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
 <br>【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 雲妮鍾情 2016-08-05（HD）
-<br>【節目主持】：Vani
-<br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Vanila Sky
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【節目名稱】：903 朱薰 E 2016-08-05（HD） 
+<br>【節目主持】：朱薰 
+<br>【節目時間】：21:00 - 23:00 
+<br>【檔案名稱】：FUN E 
+<br>【360雲盤】：http://adf.ly/1cvlkg
+<br>【360雲盤】：http://www.linkbucks.com/ACOSL
+<br>【360密碼】：3019
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -254,12 +254,12 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cvm6O
+<br>【360雲盤】：http://www.linkbucks.com/ACOO3
+<br>【360密碼】：7062
+<br>【百度雲盤】：http://adf.ly/1cvmhk
+<br>【百度雲盤】：http://www.linkbucks.com/ACSMY
+<br>【百度密碼】：kx3q
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-08-05（HD）
