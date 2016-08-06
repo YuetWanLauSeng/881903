@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1cx06W
 <br>【360雲盤】：http://www.linkbucks.com/VS8G
 <br>【360密碼】：85e0
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdFs
+<br>【百度雲盤】：http://www.linkbucks.com/ACohp
+<br>【百度密碼】：6tbk
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 政經星期六 2016-08-06（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1cx04Q
 <br>【360雲盤】：http://www.linkbucks.com/TLUw
 <br>【360密碼】：b25e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdP0
+<br>【百度雲盤】：http://www.linkbucks.com/ACo4A
+<br>【百度密碼】：gg9i
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 西加航空 2016-08-06（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1cwzuH
 <br>【360雲盤】：http://www.linkbucks.com/UaJs
 <br>【360密碼】：cc30
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdxo
+<br>【百度雲盤】：http://www.linkbucks.com/ACJLJ
+<br>【百度密碼】：vuhv
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雷霆有約熱內盧 2016-08-06（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1cx01X
 <br>【360雲盤】：http://www.linkbucks.com/V3Js
 <br>【360密碼】：7564
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdli
+<br>【百度雲盤】：http://www.linkbucks.com/ACoIK
+<br>【百度密碼】：wric
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 考股專家 2016-08-06（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1cx08X
 <br>【360雲盤】：http://www.linkbucks.com/VPbs
 <br>【360密碼】：3662
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdHw
+<br>【百度雲盤】：http://www.linkbucks.com/ACotv
+<br>【百度密碼】：qxu4
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903 專業推介 2016-08-06（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1cwzsD
 <br>【360雲盤】：http://www.linkbucks.com/ZL25
 <br>【360密碼】：e508
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdiF
+<br>【百度雲盤】：http://www.linkbucks.com/ACoU2
+<br>【百度密碼】：ndrh
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 電影圈 2016-08-06（HD）
@@ -77,9 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1cwzwf
 <br>【360雲盤】：http://www.linkbucks.com/WTQM
 <br>【360密碼】：a468
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxeNP
+<br>【百度雲盤】：http://www.linkbucks.com/mc52
+<br>【百度密碼】：fs3p
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 咪芝蓮 2016-08-06（HD）
@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1cwzyr
 <br>【360雲盤】：http://www.linkbucks.com/Tv8r
 <br>【360密碼】：1d23
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdtu
+<br>【百度雲盤】：http://www.linkbucks.com/ACoH1
+<br>【百度密碼】：q2in
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 咆哮山莊 2016-08-06（HD）
@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1cx0BF
 <br>【360雲盤】：http://www.linkbucks.com/SYnM
 <br>【360密碼】：b35a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdqf
+<br>【百度雲盤】：http://www.linkbucks.com/ACoH6
+<br>【百度密碼】：ze53
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-08-06（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1cxRU4
 <br>【360雲盤】：http://www.linkbucks.com/ACvMx
 <br>【360密碼】：202a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdL1
+<br>【百度雲盤】：http://www.linkbucks.com/ACo0L
+<br>【百度密碼】：r66i
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903 豁達推介 2016-08-06（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1cxRWj
 <br>【360雲盤】：http://www.linkbucks.com/ACvIN
 <br>【360密碼】：6ba2
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdMe
+<br>【百度雲盤】：http://www.linkbucks.com/ACo0z
+<br>【百度密碼】：csjt
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 3號螺絲釘 2016-08-06（HD）
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1cxRcn
 <br>【360雲盤】：http://www.linkbucks.com/ACvNn
 <br>【360密碼】：a951
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxdC7
+<br>【百度雲盤】：http://www.linkbucks.com/ACogl
+<br>【百度密碼】：4jg2
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 西瓜大發 ! 2016-08-06（HD）
@@ -149,18 +149,18 @@
 <br>【360雲盤】：http://adf.ly/1cxXhr
 <br>【360雲盤】：http://www.linkbucks.com/ACtJU
 <br>【360密碼】：9f33
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cxd9p
+<br>【百度雲盤】：http://www.linkbucks.com/ACpDW
+<br>【百度密碼】：nxa9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-08-06（HD）
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cxfzK
+<br>【360雲盤】：http://www.linkbucks.com/ACccK
+<br>【360密碼】：6daf
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -170,9 +170,9 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cxgLA
+<br>【360雲盤】：http://www.linkbucks.com/ACbzO
+<br>【360密碼】：3a09
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
