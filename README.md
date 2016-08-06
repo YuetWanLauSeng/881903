@@ -110,9 +110,9 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cxRU4
+<br>【360雲盤】：http://www.linkbucks.com/ACvMx
+<br>【360密碼】：202a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -122,9 +122,9 @@
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cxRWj
+<br>【360雲盤】：http://www.linkbucks.com/ACvIN
+<br>【360密碼】：6ba2
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -134,9 +134,9 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1cxRcn
+<br>【360雲盤】：http://www.linkbucks.com/ACvNn
+<br>【360密碼】：a951
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
