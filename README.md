@@ -110,12 +110,12 @@
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cz9fZ
+<br>【360雲盤】：http://www.linkbucks.com/AC36n
+<br>【360密碼】：f39d
+<br>【百度雲盤】：http://adf.ly/1czALI
+<br>【百度雲盤】：http://www.linkbucks.com/AC3vj
+<br>【百度密碼】：ht4i
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 朱薰 E  2016-08-07（HD）
