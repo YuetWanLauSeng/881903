@@ -122,48 +122,48 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：18:00 - 21:00
 <br>【檔案名稱】：FUN E
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1czDhD
+<br>【360雲盤】：http://www.linkbucks.com/AC22K
+<br>【360密碼】：f6e1
+<br>【百度雲盤】：http://adf.ly/1czFVp
+<br>【百度雲盤】：http://www.linkbucks.com/AC1wq
+<br>【百度密碼】：urty
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 細路強 2016-08-07（HD） 
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1czDj7
+<br>【360雲盤】：http://www.linkbucks.com/AC2fs
+<br>【360密碼】：d9e4
+<br>【百度雲盤】：http://adf.ly/1czFXk
+<br>【百度雲盤】：http://www.linkbucks.com/AC1v0
+<br>【百度密碼】：f7r9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 903國民教育 2016-08-07（HD）
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1czIJK
+<br>【360雲盤】：http://www.linkbucks.com/AC1Cj
+<br>【360密碼】：a8df
+<br>【百度雲盤】：http://adf.ly/1czIHQ
+<br>【百度雲盤】：http://www.linkbucks.com/AC1Cn
+<br>【百度密碼】：5pvd
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 葛民教育 2016-08-07（HD）
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1czHvz
+<br>【360雲盤】：http://www.linkbucks.com/AC1II
+<br>【360密碼】：6a8c
+<br>【百度雲盤】：http://adf.ly/1czI84
+<br>【百度雲盤】：http://www.linkbucks.com/AC1EV
+<br>【百度密碼】：53im
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 短期租約 2016-08-07（HD）
