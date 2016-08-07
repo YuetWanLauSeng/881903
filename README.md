@@ -65,45 +65,45 @@
 <br>【360雲盤】：http://adf.ly/1cym4N
 <br>【360雲盤】：http://www.linkbucks.com/ACrwh
 <br>【360密碼】：1f3f
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1cyn8L
+<br>【百度雲盤】：http://www.linkbucks.com/ACreD
+<br>【百度密碼】：vkm8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 Mali Mali Home 2016-08-07（HD）
 <br>【節目主持】：麻利亞
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Mali Mali Home
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cyzlp
+<br>【360雲盤】：http://www.linkbucks.com/ACpFP
+<br>【360密碼】：270c
+<br>【百度雲盤】：http://adf.ly/1cyzng
+<br>【百度雲盤】：http://www.linkbucks.com/ACpDT
+<br>【百度密碼】：ge7f
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-08-07（HD）
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cz0Ti
+<br>【360雲盤】：http://www.linkbucks.com/d9oy
+<br>【360密碼】：ff7d
+<br>【百度雲盤】：http://adf.ly/1cz0XJ
+<br>【百度雲盤】：http://www.linkbucks.com/ZEsf
+<br>【百度密碼】：sfqt
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 讀懂中國 2016-08-07（HD）
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1cz3va
+<br>【360雲盤】：http://www.linkbucks.com/AC5XD
+<br>【360密碼】：526e
+<br>【百度雲盤】：http://adf.ly/1cz4W0
+<br>【百度雲盤】：http://www.linkbucks.com/AC5ME
+<br>【百度密碼】：a7qq
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 泡菜粉絲煲 2016-08-07（HD） 
@@ -118,10 +118,10 @@
 <br>【百度密碼】：
 <br>【城通雲盤】：翌日更新
 
-<br>【節目名稱】：903 國語類 2016-08-07（HD）
-<br>【節目主持】：Vani
+<br>【節目名稱】：903 朱薰 E  2016-08-07（HD）
+<br>【節目主持】：朱薰
 <br>【節目時間】：18:00 - 21:00
-<br>【檔案名稱】：Bo Po Mo Fo
+<br>【檔案名稱】：FUN E
 <br>【360雲盤】：
 <br>【360雲盤】：
 <br>【360密碼】：
