@@ -8,7 +8,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdFs
 <br>【百度雲盤】：http://www.linkbucks.com/ACohp
 <br>【百度密碼】：6tbk
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：881 政經星期六 2016-08-06（HD）
 <br>【節目主持】：陳淑薇 | 羅輝
@@ -20,7 +20,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdP0
 <br>【百度雲盤】：http://www.linkbucks.com/ACo4A
 <br>【百度密碼】：gg9i
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 西加航空 2016-08-06（HD）
 <br>【節目主持】：謝茜嘉
@@ -32,7 +32,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdxo
 <br>【百度雲盤】：http://www.linkbucks.com/ACJLJ
 <br>【百度密碼】：vuhv
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：881 雷霆有約熱內盧 2016-08-06（HD）
 <br>【節目主持】：陳聰 | 楊樂笙 | 熊書頤
@@ -44,7 +44,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdli
 <br>【百度雲盤】：http://www.linkbucks.com/ACoIK
 <br>【百度密碼】：wric
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：881 考股專家 2016-08-06（HD）
 <br>【節目主持】：陳永陸 | 伍甄琪
@@ -56,7 +56,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdHw
 <br>【百度雲盤】：http://www.linkbucks.com/ACotv
 <br>【百度密碼】：qxu4
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 903 專業推介 2016-08-06（HD）
 <br>【節目主持】：Donald
@@ -68,7 +68,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdiF
 <br>【百度雲盤】：http://www.linkbucks.com/ACoU2
 <br>【百度密碼】：ndrh
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：881 電影圈 2016-08-06（HD）
 <br>【節目主持】：馮志豐 | 鄔家麟
@@ -80,7 +80,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxeNP
 <br>【百度雲盤】：http://www.linkbucks.com/mc52
 <br>【百度密碼】：fs3p
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 咪芝蓮 2016-08-06（HD）
 <br>【節目主持】：小儀
@@ -92,7 +92,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdtu
 <br>【百度雲盤】：http://www.linkbucks.com/ACoH1
 <br>【百度密碼】：q2in
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 咆哮山莊 2016-08-06（HD）
 <br>【節目主持】：903 DJ
@@ -104,7 +104,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdqf
 <br>【百度雲盤】：http://www.linkbucks.com/ACoH6
 <br>【百度密碼】：ze53
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：881 1圈圈 2016-08-06（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -116,7 +116,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdL1
 <br>【百度雲盤】：http://www.linkbucks.com/ACo0L
 <br>【百度密碼】：r66i
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 903 豁達推介 2016-08-06（HD）
 <br>【節目主持】：梁文禮
@@ -128,7 +128,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdMe
 <br>【百度雲盤】：http://www.linkbucks.com/ACo0z
 <br>【百度密碼】：csjt
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 3號螺絲釘 2016-08-06（HD）
 <br>【節目主持】：Colin
@@ -140,7 +140,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxdC7
 <br>【百度雲盤】：http://www.linkbucks.com/ACogl
 <br>【百度密碼】：4jg2
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 西瓜大發 ! 2016-08-06（HD）
 <br>【節目主持】：西瓜
@@ -152,7 +152,7 @@
 <br>【百度雲盤】：http://adf.ly/1cxd9p
 <br>【百度雲盤】：http://www.linkbucks.com/ACpDW
 <br>【百度密碼】：nxa9
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：881 雷霆音樂圈 2016-08-06（HD）
 <br>【節目主持】：楊美琪
@@ -164,7 +164,7 @@
 <br>【百度雲盤】：http://adf.ly/1cyVEj
 <br>【百度雲盤】：http://www.linkbucks.com/ACZ6B
 <br>【百度密碼】：7fpx
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 Chi Chung's Class 2016-08-06（HD）
 <br>【節目主持】：黃志淙
@@ -176,7 +176,7 @@
 <br>【百度雲盤】：http://adf.ly/1cyVFU
 <br>【百度雲盤】：http://www.linkbucks.com/ACZ51
 <br>【百度密碼】：3qvp
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 公子會 2016-08-06（HD）
 <br>【節目主持】：森美
@@ -188,7 +188,7 @@
 <br>【百度雲盤】：http://adf.ly/1cyVCf
 <br>【百度雲盤】：http://www.linkbucks.com/ACZ6R
 <br>【百度密碼】：r8j9
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：881 發式生活 2016-08-06（HD） 
 <br>【節目主持】：余宜發
@@ -200,7 +200,7 @@
 <br>【百度雲盤】：http://adf.ly/1cyURg
 <br>【百度雲盤】：http://www.linkbucks.com/ACaMW
 <br>【百度密碼】：2eqp
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：903 皇牌出場 2016-08-06（HD）
 <br>【節目主持】：Marco | Keyman
@@ -212,7 +212,7 @@
 <br>【百度雲盤】：http://adf.ly/1cyVDb
 <br>【百度雲盤】：http://www.linkbucks.com/ACZ6J
 <br>【百度密碼】：y4sz
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-08-06（HD）
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
@@ -224,4 +224,4 @@
 <br>【百度雲盤】：http://adf.ly/1cyUPx
 <br>【百度雲盤】：http://www.linkbucks.com/ACbkD
 <br>【百度密碼】：bp9t
-<br>【城通雲盤】：翌日更新
+<br>【城通雲盤】：http://www.ctfile.com/info/Dxh257324
