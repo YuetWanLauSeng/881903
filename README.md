@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1d3Ql7
 <br>【360雲盤】：http://www.linkbucks.com/YL78
 <br>【360密碼】：46ba
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3g4W
+<br>【百度雲盤】：http://www.linkbucks.com/ADXOD
+<br>【百度密碼】：am4i
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早安，同學早! 2016-08-10（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1d3Qcm
 <br>【360雲盤】：http://www.linkbucks.com/ZkBN
 <br>【360密碼】：4b21
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3g84
+<br>【百度雲盤】：http://www.linkbucks.com/ADWvW
+<br>【百度密碼】：n129
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-08-10（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1d3QjU
 <br>【360雲盤】：http://www.linkbucks.com/YZPG
 <br>【360密碼】：6ab1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3g6S
+<br>【百度雲盤】：http://www.linkbucks.com/ADWvs
+<br>【百度密碼】：p9nv
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-08-10（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1d3Qh2
 <br>【360雲盤】：http://www.linkbucks.com/YhM2
 <br>【360密碼】：2adf
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3g1w
+<br>【百度雲盤】：http://www.linkbucks.com/ADXOL
+<br>【百度密碼】：xe8j
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-08-10（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1d3QiC
 <br>【360雲盤】：http://www.linkbucks.com/YhBz
 <br>【360密碼】：3be2
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3gEW
+<br>【百度雲盤】：http://www.linkbucks.com/ADWsv
+<br>【百度密碼】：rbrs
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早霸王 2016-08-10（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1d3Qf6
 <br>【360雲盤】：http://www.linkbucks.com/ZJ8M
 <br>【360密碼】：74b7
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3gCO
+<br>【百度雲盤】：http://www.linkbucks.com/ADWsz
+<br>【百度密碼】：i8rx
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 十八樓C座 2016-08-10（HD）
@@ -77,9 +77,9 @@
 <br>【360雲盤】：http://adf.ly/1d3QZv
 <br>【360雲盤】：http://www.linkbucks.com/ZuBt
 <br>【360密碼】：f288
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3gGU
+<br>【百度雲盤】：http://www.linkbucks.com/ADWre
+<br>【百度密碼】：rs85
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 一點叮一叮 2016-08-10（HD）
@@ -134,9 +134,9 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d3ggW
+<br>【360雲盤】：http://www.linkbucks.com/ADWXi
+<br>【360密碼】：5f77
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -146,9 +146,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d3hLf
+<br>【360雲盤】：http://www.linkbucks.com/ADV3r
+<br>【360密碼】：f7f3
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
