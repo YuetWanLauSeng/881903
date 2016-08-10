@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1d3e2M
 <br>【360雲盤】：http://www.linkbucks.com/ADXoQ
 <br>【360密碼】：da09
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3o54
+<br>【百度雲盤】：http://www.linkbucks.com/ADXFF
+<br>【百度密碼】：qzii
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 叱咤樂壇 2016-08-10（HD）
@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1d3dws
 <br>【360雲盤】：http://www.linkbucks.com/ADXoV
 <br>【360密碼】：8e88
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3o1M
+<br>【百度雲盤】：http://www.linkbucks.com/ADXLb
+<br>【百度密碼】：ad5v
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-08-10（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1d3e4o
 <br>【360雲盤】：http://www.linkbucks.com/ADXm3
 <br>【360密碼】：964e
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3o7G
+<br>【百度雲盤】：http://www.linkbucks.com/ADW70
+<br>【百度密碼】：y7j1
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 關公災難 2016-08-10（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1d3e6W
 <br>【360雲盤】：http://www.linkbucks.com/ADXm0
 <br>【360密碼】：360a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3o3I
+<br>【百度雲盤】：http://www.linkbucks.com/ADXFR
+<br>【百度密碼】：vgx7
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-08-10（HD）
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1d3ggW
 <br>【360雲盤】：http://www.linkbucks.com/ADWXi
 <br>【360密碼】：5f77
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3nxW
+<br>【百度雲盤】：http://www.linkbucks.com/ADYOE
+<br>【百度密碼】：gi63
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-08-10（HD）
@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1d3hLf
 <br>【360雲盤】：http://www.linkbucks.com/ADV3r
 <br>【360密碼】：f7f3
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3nzh
+<br>【百度雲盤】：http://www.linkbucks.com/ADXMy
+<br>【百度密碼】：k929
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-08-10（HD）
@@ -161,9 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1d3mog
 <br>【360雲盤】：http://www.linkbucks.com/ADki8
 <br>【360密碼】：df67
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d3nvl
+<br>【百度雲盤】：http://www.linkbucks.com/ADYOH
+<br>【百度密碼】：uedn
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 集雜志 2016-08-10（HD）
