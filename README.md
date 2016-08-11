@@ -2,11 +2,11 @@
 <br>【節目主持】：Wasabi | 嘉賓主持
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song
-<br>【360雲盤】：[url]http://adf.ly/1d4zcj[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD78h[/url]
+<br>【360雲盤】：http://adf.ly/1d4zcj
+<br>【360雲盤】：http://www.linkbucks.com/AD78h
 <br>【360密碼】：8eb1
-<br>【百度雲盤】：[url]http://adf.ly/1d5MFL[/url]
-<br>【百度雲盤】：[url]http://www.linkbucks.com/AD9Hs[/url]
+<br>【百度雲盤】：http://adf.ly/1d5MFL
+<br>【百度雲盤】：http://www.linkbucks.com/AD9Hs
 <br>【百度密碼】：s3nd
 <br>【城通雲盤】：翌日更新
 
@@ -14,11 +14,11 @@
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!
-<br>【360雲盤】：[url]http://adf.ly/1d4zWY[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD791[/url]
+<br>【360雲盤】：http://adf.ly/1d4zWY
+<br>【360雲盤】：http://www.linkbucks.com/AD791
 <br>【360密碼】：2f40
-<br>【百度雲盤】：[url]http://adf.ly/1d5MIa[/url]
-<br>【百度雲盤】：[url]http://www.linkbucks.com/AD9w5[/url]
+<br>【百度雲盤】：http://adf.ly/1d5MIa
+<br>【百度雲盤】：http://www.linkbucks.com/AD9w5
 <br>【百度密碼】：4yrx
 <br>【城通雲盤】：翌日更新
 
@@ -26,11 +26,11 @@
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）
-<br>【360雲盤】：[url]http://adf.ly/1d4zdU[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD8EP[/url]
+<br>【360雲盤】：http://adf.ly/1d4zdU
+<br>【360雲盤】：http://www.linkbucks.com/AD8EP
 <br>【360密碼】：5c76
-<br>【百度雲盤】：[url]http://adf.ly/1d5MCz[/url]
-<br>【百度雲盤】：[url]http://www.linkbucks.com/AD9Ja[/url]
+<br>【百度雲盤】：http://adf.ly/1d5MCz
+<br>【百度雲盤】：http://www.linkbucks.com/AD9Ja
 <br>【百度密碼】：85t5
 <br>【城通雲盤】：翌日更新
 
@@ -38,11 +38,11 @@
 <br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 符靜琳 | 李兆綸
 <br>【節目時間】：06:30 - 10:30
 <br>【檔案名稱】：On a Clear Day（881）
-<br>【360雲盤】：[url]http://adf.ly/1d4zb2[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD78x[/url]
+<br>【360雲盤】：http://adf.ly/1d4zb2
+<br>【360雲盤】：http://www.linkbucks.com/AD78x
 <br>【360密碼】：7e6c
-<br>【百度雲盤】：[url]http://adf.ly/1d5M9h[/url]
-<br>【百度雲盤】：[url]http://www.linkbucks.com/AD9Lb[/url]
+<br>【百度雲盤】：http://adf.ly/1d5M9h
+<br>【百度雲盤】：http://www.linkbucks.com/AD9Lb
 <br>【百度密碼】：a1i5
 <br>【城通雲盤】：翌日更新
 
@@ -50,11 +50,11 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles
-<br>【360雲盤】：[url]http://adf.ly/1d4zfN[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD7uP[/url]
+<br>【360雲盤】：http://adf.ly/1d4zfN
+<br>【360雲盤】：http://www.linkbucks.com/AD7uP
 <br>【360密碼】：db72
-<br>【百度雲盤】：[url]http://adf.ly/1d5MK7[/url]
-<br>【百度雲盤】：[url]http://www.linkbucks.com/AD9wt[/url]
+<br>【百度雲盤】：http://adf.ly/1d5MK7
+<br>【百度雲盤】：http://www.linkbucks.com/AD9wt
 <br>【百度密碼】：7rj8
 <br>【城通雲盤】：翌日更新
 
@@ -62,11 +62,11 @@
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King
-<br>【360雲盤】：[url]http://adf.ly/1d4zeR[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD7ml[/url]
+<br>【360雲盤】：http://adf.ly/1d4zeR
+<br>【360雲盤】：http://www.linkbucks.com/AD7ml
 <br>【360密碼】：2a91
-<br>【百度雲盤】：[url]http://adf.ly/1d5MHE[/url]
-<br>【百度雲盤】：[url]http://www.linkbucks.com/AD9G0[/url]
+<br>【百度雲盤】：http://adf.ly/1d5MHE
+<br>【百度雲盤】：http://www.linkbucks.com/AD9G0
 <br>【百度密碼】：ckwn
 <br>【城通雲盤】：翌日更新
 
@@ -74,11 +74,11 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C
-<br>【360雲盤】：[url]http://adf.ly/1d4za1[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD79o[/url]
+<br>【360雲盤】：http://adf.ly/1d4za1
+<br>【360雲盤】：http://www.linkbucks.com/AD79o
 <br>【360密碼】：2f50
-<br>【百度雲盤】：[url]http://adf.ly/1d5MLf[/url]
-<br>【百度雲盤】：[url]http://www.linkbucks.com/AD9tW[/url]
+<br>【百度雲盤】：http://adf.ly/1d5MLf
+<br>【百度雲盤】：http://www.linkbucks.com/AD9tW
 <br>【百度密碼】：9fge
 <br>【城通雲盤】：翌日更新
 
@@ -86,8 +86,8 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：[url]http://adf.ly/1d5MQd[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD9rL[/url]
+<br>【360雲盤】：http://adf.ly/1d5MQd
+<br>【360雲盤】：http://www.linkbucks.com/AD9rL
 <br>【360密碼】：2cae
 <br>【百度雲盤】：
 <br>【百度雲盤】：
@@ -98,8 +98,8 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：[url]http://adf.ly/1d5MNT[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD9tQ[/url]
+<br>【360雲盤】：http://adf.ly/1d5MNT
+<br>【360雲盤】：http://www.linkbucks.com/AD9tQ
 <br>【360密碼】：b599
 <br>【百度雲盤】：
 <br>【百度雲盤】：
@@ -110,8 +110,8 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：[url]http://adf.ly/1d5MP2[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD9sE[/url]
+<br>【360雲盤】：http://adf.ly/1d5MP2
+<br>【360雲盤】：http://www.linkbucks.com/AD9sE
 <br>【360密碼】：a6b6
 <br>【百度雲盤】：
 <br>【百度雲盤】：
@@ -122,8 +122,8 @@
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：PR
-<br>【360雲盤】：[url]http://adf.ly/1d5MWH[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD9pH[/url]
+<br>【360雲盤】：http://adf.ly/1d5MWH
+<br>【360雲盤】：http://www.linkbucks.com/AD9pH
 <br>【360密碼】：81e2
 <br>【百度雲盤】：
 <br>【百度雲盤】：
@@ -134,8 +134,8 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box
-<br>【360雲盤】：[url]http://adf.ly/1d5NSz[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD9RX[/url]
+<br>【360雲盤】：http://adf.ly/1d5NSz
+<br>【360雲盤】：http://www.linkbucks.com/AD9RX
 <br>【360密碼】：7fea
 <br>【百度雲盤】：
 <br>【百度雲盤】：
@@ -146,8 +146,8 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio
-<br>【360雲盤】：[url]http://adf.ly/1d5Nt1[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD9DH[/url]
+<br>【360雲盤】：http://adf.ly/1d5Nt1
+<br>【360雲盤】：http://www.linkbucks.com/AD9DH
 <br>【360密碼】：cf53
 <br>【百度雲盤】：
 <br>【百度雲盤】：
@@ -158,8 +158,8 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku
-<br>【360雲盤】：[url]http://adf.ly/1d5OJw[/url]
-<br>【360雲盤】：[url]http://www.linkbucks.com/AD81p[/url]
+<br>【360雲盤】：http://adf.ly/1d5OJw
+<br>【360雲盤】：http://www.linkbucks.com/AD81p
 <br>【360密碼】：f4ce
 <br>【百度雲盤】：
 <br>【百度雲盤】：
