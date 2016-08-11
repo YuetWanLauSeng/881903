@@ -89,9 +89,9 @@
 <br>【360雲盤】：http://adf.ly/1d5MQd
 <br>【360雲盤】：http://www.linkbucks.com/AD9rL
 <br>【360密碼】：2cae
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d5cFP
+<br>【百度雲盤】：http://www.linkbucks.com/yyxK
+<br>【百度密碼】：i13s
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 叱咤樂壇 2016-08-11（HD）
@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1d5MNT
 <br>【360雲盤】：http://www.linkbucks.com/AD9tQ
 <br>【360密碼】：b599
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d5cQ1
+<br>【百度雲盤】：http://www.linkbucks.com/yTm1
+<br>【百度密碼】：wu2n
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人生交叉盤 2016-08-11（HD）
@@ -113,9 +113,9 @@
 <br>【360雲盤】：http://adf.ly/1d5MP2
 <br>【360雲盤】：http://www.linkbucks.com/AD9sE
 <br>【360密碼】：a6b6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d5cIx
+<br>【百度雲盤】：http://www.linkbucks.com/yikc
+<br>【百度密碼】：ps3s
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 關公災難 2016-08-11（HD）
@@ -125,9 +125,9 @@
 <br>【360雲盤】：http://adf.ly/1d5MWH
 <br>【360雲盤】：http://www.linkbucks.com/AD9pH
 <br>【360密碼】：81e2
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d5cM5
+<br>【百度雲盤】：http://www.linkbucks.com/yafg
+<br>【百度密碼】：bcin
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 大玩派 2016-08-11（HD）
@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1d5NSz
 <br>【360雲盤】：http://www.linkbucks.com/AD9RX
 <br>【360密碼】：7fea
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d5cB8
+<br>【百度雲盤】：http://www.linkbucks.com/zYlz
+<br>【百度密碼】：xym2
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-08-11（HD）
@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1d5Nt1
 <br>【360雲盤】：http://www.linkbucks.com/AD9DH
 <br>【360密碼】：cf53
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d5cCm
+<br>【百度雲盤】：http://www.linkbucks.com/y5rt
+<br>【百度密碼】：qj67
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-08-11（HD）
@@ -161,42 +161,42 @@
 <br>【360雲盤】：http://adf.ly/1d5OJw
 <br>【360雲盤】：http://www.linkbucks.com/AD81p
 <br>【360密碼】：f4ce
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d5cam
+<br>【百度雲盤】：http://www.linkbucks.com/wtyC
+<br>【百度密碼】：k3ac
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 集雜志 2016-08-11（HD）
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1d5c1J
+<br>【360雲盤】：http://www.linkbucks.com/2fe5
+<br>【360密碼】：2311
+<br>【百度雲盤】：http://adf.ly/1d5c9T
+<br>【百度雲盤】：http://www.linkbucks.com/zjVC
+<br>【百度密碼】：k73y
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-08-11（HD）
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1d5c4w
+<br>【360雲盤】：http://www.linkbucks.com/2eca
+<br>【360密碼】：3a1d
+<br>【百度雲盤】：http://adf.ly/1d5c7k
+<br>【百度雲盤】：http://www.linkbucks.com/1cnc
+<br>【百度密碼】：ef2u
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-08-11（HD）
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d5cm4
+<br>【360雲盤】：http://www.linkbucks.com/vq3R
+<br>【360密碼】：29f0
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -218,9 +218,9 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d5d8Z
+<br>【360雲盤】：http://www.linkbucks.com/wS1F
+<br>【360密碼】：2be6
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
