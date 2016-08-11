@@ -173,9 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1d3yiy
 <br>【360雲盤】：http://www.linkbucks.com/ADSdI
 <br>【360密碼】：569c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4l2L
+<br>【百度雲盤】：http://www.linkbucks.com/ADX4K
+<br>【百度密碼】：6cfe
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道在乎你 2016-08-10（HD）
@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1d3yb6
 <br>【360雲盤】：http://www.linkbucks.com/ADSnM
 <br>【360密碼】：285b
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4l3g
+<br>【百度雲盤】：http://www.linkbucks.com/ADX37
+<br>【百度密碼】：sqni
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-08-10（HD）
@@ -197,9 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1d3ysb
 <br>【360雲盤】：http://www.linkbucks.com/ADSCM
 <br>【360密碼】：090d
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4l13
+<br>【百度雲盤】：http://www.linkbucks.com/ADX6U
+<br>【百度密碼】：npkf
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-08-10（HD）
@@ -209,9 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1d41X4
 <br>【360雲盤】：http://www.linkbucks.com/ADQvi
 <br>【360密碼】：144c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4kyQ
+<br>【百度雲盤】：http://www.linkbucks.com/ADX7v
+<br>【百度密碼】：kx3t
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-08-10（HD）
@@ -221,9 +221,9 @@
 <br>【360雲盤】：http://adf.ly/1d41hY
 <br>【360雲盤】：http://www.linkbucks.com/ADQuZ
 <br>【360密碼】：d501
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4kzY
+<br>【百度雲盤】：http://www.linkbucks.com/ADX7m
+<br>【百度密碼】：ji88
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 書.情.歌 2016-08-10（HD）
@@ -233,9 +233,9 @@
 <br>【360雲盤】：http://adf.ly/1d4kVX
 <br>【360雲盤】：http://www.linkbucks.com/ADZ0c
 <br>【360密碼】：f894
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4kts
+<br>【百度雲盤】：http://www.linkbucks.com/ADX9b
+<br>【百度密碼】：x7c4
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-08-10（HD）
@@ -245,9 +245,9 @@
 <br>【360雲盤】：http://adf.ly/1d4kPJ
 <br>【360雲盤】：http://www.linkbucks.com/ADZ2E
 <br>【360密碼】：9ea6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4mz8
+<br>【百度雲盤】：http://www.linkbucks.com/BI0Kr
+<br>【百度密碼】：zp3u
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-08-10（HD）
@@ -257,9 +257,9 @@
 <br>【360雲盤】：http://adf.ly/1d4kcD
 <br>【360雲盤】：http://www.linkbucks.com/ADZyB
 <br>【360密碼】：8c9a
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4l5M
+<br>【百度雲盤】：http://www.linkbucks.com/ADX2V
+<br>【百度密碼】：6pzd
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-08-10（HD）
@@ -269,9 +269,9 @@
 <br>【360雲盤】：http://adf.ly/1d4kai
 <br>【360雲盤】：http://www.linkbucks.com/ADZ0A
 <br>【360密碼】：3c0c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4l73
+<br>【百度雲盤】：http://www.linkbucks.com/ADXzJ
+<br>【百度密碼】：bqcg
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 月光光呵呵呵 2016-08-10（HD）
@@ -281,9 +281,9 @@
 <br>【360雲盤】：http://adf.ly/1d4kYr
 <br>【360雲盤】：http://www.linkbucks.com/ADZ0U
 <br>【360密碼】：a9bd
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4kwQ
+<br>【百度雲盤】：http://www.linkbucks.com/ADX9L
+<br>【百度密碼】：k2gc
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 廣東爆谷 2016-08-10（HD）
@@ -293,9 +293,9 @@
 <br>【360雲盤】：http://adf.ly/1d4kg3
 <br>【360雲盤】：http://www.linkbucks.com/ADZuM
 <br>【360密碼】：38b1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4kvK
+<br>【百度雲盤】：http://www.linkbucks.com/ADX9P
+<br>【百度密碼】：m227
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881903 一切從音樂開始 2016-08-10（HD）
@@ -305,7 +305,7 @@
 <br>【360雲盤】：http://adf.ly/1d4kdI
 <br>【360雲盤】：http://www.linkbucks.com/ADZxw
 <br>【360密碼】：54eb
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d4nZJ
+<br>【百度雲盤】：http://www.linkbucks.com/AD4Xk
+<br>【百度密碼】：7iwp
 <br>【城通雲盤】：翌日更新
