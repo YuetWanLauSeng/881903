@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1d3hLf
 <br>【360雲盤】：http://www.linkbucks.com/ADV3r
 <br>【360密碼】：f7f3
-<br>【百度雲盤】：http://adf.ly/1d3nzh
-<br>【百度雲盤】：http://www.linkbucks.com/ADXMy
-<br>【百度密碼】：k929
+<br>【百度雲盤】：http://adf.ly/1d4nmh
+<br>【百度雲盤】：http://www.linkbucks.com/ADzAG
+<br>【百度密碼】：7hf5
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-08-10（HD）
