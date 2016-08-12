@@ -5,9 +5,9 @@
 <br>【360雲盤】：http://adf.ly/1d6cAw
 <br>【360雲盤】：http://www.linkbucks.com/AEBpf
 <br>【360密碼】：5a14
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d6giC
+<br>【百度雲盤】：http://www.linkbucks.com/AD8jd
+<br>【百度密碼】：gpeb
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早安，同學早! 2016-08-12（HD）
@@ -17,9 +17,9 @@
 <br>【360雲盤】：http://adf.ly/1d6bqw
 <br>【360雲盤】：http://www.linkbucks.com/AEBvc
 <br>【360密碼】：6aac
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d6gqK
+<br>【百度雲盤】：http://www.linkbucks.com/AD8iX
+<br>【百度密碼】：kdas
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 在晴朗的一天出發 2016-08-12（HD）
@@ -29,9 +29,9 @@
 <br>【360雲盤】：http://adf.ly/1d6bxX
 <br>【360雲盤】：http://www.linkbucks.com/AEBuQ
 <br>【360密碼】：9ed6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d6gkL
+<br>【百度雲盤】：http://www.linkbucks.com/AD8jS
+<br>【百度密碼】：sh2y
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 在晴朗的一天出發 2016-08-12（HD）
@@ -41,9 +41,9 @@
 <br>【360雲盤】：http://adf.ly/1d6bry
 <br>【360雲盤】：http://www.linkbucks.com/AEBvU
 <br>【360密碼】：ab97
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d6ggV
+<br>【百度雲盤】：http://www.linkbucks.com/AD8jp
+<br>【百度密碼】：aa87
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 1圈圈 2016-08-12（HD）
@@ -53,9 +53,9 @@
 <br>【360雲盤】：http://adf.ly/1d6bok
 <br>【360雲盤】：http://www.linkbucks.com/AEBw4
 <br>【360密碼】：2cc1
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d6go6
+<br>【百度雲盤】：http://www.linkbucks.com/AD8i8
+<br>【百度密碼】：5v98
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 早霸王 2016-08-12（HD）
@@ -65,9 +65,9 @@
 <br>【360雲盤】：http://adf.ly/1d6bpm
 <br>【360雲盤】：http://www.linkbucks.com/AEBvn
 <br>【360密碼】：e4ea
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d6gmG
+<br>【百度雲盤】：http://www.linkbucks.com/AD8jM
+<br>【百度密碼】：kuwi
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 十八樓C座 2016-08-12（HD）
@@ -77,18 +77,18 @@
 <br>【360雲盤】：http://adf.ly/1d6bzH
 <br>【360雲盤】：http://www.linkbucks.com/AEBtr
 <br>【360密碼】：fe3c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d6guz
+<br>【百度雲盤】：http://www.linkbucks.com/AD8hG
+<br>【百度密碼】：bgrn
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 一點叮一叮 2016-08-12（HD）
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d6jk6
+<br>【360雲盤】：http://www.linkbucks.com/AD4hu
+<br>【360密碼】：9990
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -98,9 +98,9 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d6jiI
+<br>【360雲盤】：http://www.linkbucks.com/AD4i7
+<br>【360密碼】：3ec9
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -110,9 +110,9 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d6jlb
+<br>【360雲盤】：http://www.linkbucks.com/AD4hm
+<br>【360密碼】：d63a
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -122,9 +122,9 @@
 <br>【節目主持】：劉翁 | 王迪詩
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：PR
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d6jnS
+<br>【360雲盤】：http://www.linkbucks.com/AD4hf
+<br>【360密碼】：5f84
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
