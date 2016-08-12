@@ -137,9 +137,9 @@
 <br>【360雲盤】：http://adf.ly/1d6qqd
 <br>【360雲盤】：http://www.linkbucks.com/ADz6g
 <br>【360密碼】：8f35
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d7R8j
+<br>【百度雲盤】：http://www.linkbucks.com/AEIFx
+<br>【百度密碼】：e8vt
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 口水多過浪花 2016-08-12（HD）
@@ -149,9 +149,9 @@
 <br>【360雲盤】：http://adf.ly/1d6rTT
 <br>【360雲盤】：http://www.linkbucks.com/ADxgY
 <br>【360密碼】：7f3c
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d7RBj
+<br>【百度雲盤】：http://www.linkbucks.com/AEIFI
+<br>【百度密碼】：a8n6
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 毒檸王國 2016-08-12（HD）
@@ -161,9 +161,9 @@
 <br>【360雲盤】：http://adf.ly/1d7P8e
 <br>【360雲盤】：http://www.linkbucks.com/AEJ0Y
 <br>【360密碼】：8dfd
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d7RQi
+<br>【百度雲盤】：http://www.linkbucks.com/AEH6o
+<br>【百度密碼】：6np9
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 集雜志 2016-08-12（HD）
@@ -221,9 +221,9 @@
 <br>【360雲盤】：http://adf.ly/1d7P3Q
 <br>【360雲盤】：http://www.linkbucks.com/AEJ57
 <br>【360密碼】：0828
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d7RNx
+<br>【百度雲盤】：http://www.linkbucks.com/AEH7q
+<br>【百度密碼】：vgx4
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 解困學貫中西 2016-08-12（HD）
@@ -233,9 +233,9 @@
 <br>【360雲盤】：http://adf.ly/1d7Owr
 <br>【360雲盤】：http://www.linkbucks.com/AEKBk
 <br>【360密碼】：6ed6
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d7R2v
+<br>【百度雲盤】：http://www.linkbucks.com/AEIKn
+<br>【百度密碼】：728n
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 雲妮鍾情 2016-08-12（HD）
@@ -254,12 +254,12 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1d7Qad
+<br>【360雲盤】：http://www.linkbucks.com/AEIh6
+<br>【360密碼】：7641
+<br>【百度雲盤】：http://adf.ly/1d7R5e
+<br>【百度雲盤】：http://www.linkbucks.com/AEIGl
+<br>【百度密碼】：javi
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 聖艾粒忌廉夜校 2016-08-12（HD）
