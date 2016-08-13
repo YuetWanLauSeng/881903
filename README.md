@@ -173,9 +173,9 @@
 <br>【360雲盤】：http://adf.ly/1d7Oza
 <br>【360雲盤】：http://www.linkbucks.com/AEJ7k
 <br>【360密碼】：4364
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d8Hn9
+<br>【百度雲盤】：http://www.linkbucks.com/AEQHW
+<br>【百度密碼】：5biq
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 人民大道中 2016-08-12（HD）
@@ -245,9 +245,9 @@
 <br>【360雲盤】：http://adf.ly/1d7Osv
 <br>【360雲盤】：http://www.linkbucks.com/AEKCd
 <br>【360密碼】：e012
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d8HlZ
+<br>【百度雲盤】：http://www.linkbucks.com/AEQIe
+<br>【百度密碼】：u9ei
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 光明頂 2016-08-12（HD）
@@ -266,9 +266,9 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d8Hoo
+<br>【360雲盤】：http://www.linkbucks.com/AEQHO
+<br>【360密碼】：e6b7
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
