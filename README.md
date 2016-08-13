@@ -185,9 +185,9 @@
 <br>【360雲盤】：http://adf.ly/1d7P4x
 <br>【360雲盤】：http://www.linkbucks.com/AEJ2G
 <br>【360密碼】：9870
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d8Hzv
+<br>【百度雲盤】：http://www.linkbucks.com/AEQDU
+<br>【百度密碼】：ybjv
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 杏林茶 2016-08-12（HD）
@@ -197,9 +197,9 @@
 <br>【360雲盤】：http://adf.ly/1d7P1y
 <br>【360雲盤】：http://www.linkbucks.com/AEJ69
 <br>【360密碼】：7cfa
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d8Hyp
+<br>【百度雲盤】：http://www.linkbucks.com/AEQDd
+<br>【百度密碼】：nbim
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 生活日常 2016-08-12（HD）
@@ -209,9 +209,9 @@
 <br>【360雲盤】：http://adf.ly/1d7P6u
 <br>【360雲盤】：http://www.linkbucks.com/AEJ1B
 <br>【360密碼】：598b
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1d8Hvn
+<br>【百度雲盤】：http://www.linkbucks.com/AEQD2
+<br>【百度密碼】：nk2y
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-08-12（HD）
@@ -278,9 +278,9 @@
 <br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d8JYB
+<br>【360雲盤】：http://www.linkbucks.com/AEPf4
+<br>【360密碼】：7093
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -290,9 +290,9 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d8JWh
+<br>【360雲盤】：http://www.linkbucks.com/AEPgS
+<br>【360密碼】：60dc
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -302,9 +302,9 @@
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1d8JVB
+<br>【360雲盤】：http://www.linkbucks.com/AEPhT
+<br>【360密碼】：05ae
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
