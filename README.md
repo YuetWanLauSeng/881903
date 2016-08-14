@@ -74,21 +74,33 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：16:00 - 18:00
 <br>【檔案名稱】：Mali Mali Home
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dAHVJ
+<br>【360雲盤】：http://www.linkbucks.com/AEPAp
+<br>【360密碼】：0869
+<br>【百度雲盤】：http://adf.ly/1dAKJH
+<br>【百度雲盤】：http://www.linkbucks.com/AEOqS
+<br>【百度密碼】：2jny
+<br>【城通雲盤】：翌日更新
+
+<br>【節目名稱】：881 都是我的流行曲 2016-08-14（HD）
+<br>【節目主持】：江健聰
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Oldies Buddy
+<br>【360雲盤】：http://adf.ly/1dAHOT
+<br>【360雲盤】：http://www.linkbucks.com/AEPBY
+<br>【360密碼】：3c95
+<br>【百度雲盤】：http://adf.ly/1dAKNf
+<br>【百度雲盤】：http://www.linkbucks.com/AEOpz
+<br>【百度密碼】：njj7
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 串 2016-08-14（HD）
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dANpg
+<br>【360雲盤】：http://www.linkbucks.com/BkPKX
+<br>【360密碼】：b729
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -98,9 +110,9 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dANow
+<br>【360雲盤】：http://www.linkbucks.com/BkPLG
+<br>【360密碼】：df27
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
