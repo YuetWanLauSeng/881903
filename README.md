@@ -101,9 +101,9 @@
 <br>【360雲盤】：http://adf.ly/1dANpg
 <br>【360雲盤】：http://www.linkbucks.com/BkPKX
 <br>【360密碼】：b729
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dAPMi
+<br>【百度雲盤】：http://www.linkbucks.com/BdFxG
+<br>【百度密碼】：kpjk
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 讀懂中國 2016-08-14（HD）
@@ -113,18 +113,18 @@
 <br>【360雲盤】：http://adf.ly/1dANow
 <br>【360雲盤】：http://www.linkbucks.com/BkPLG
 <br>【360密碼】：df27
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dAPKh
+<br>【百度雲盤】：http://www.linkbucks.com/BdFxO
+<br>【百度密碼】：jwk1
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 泡菜粉絲煲 2016-08-14（HD） 
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dAYmm
+<br>【360雲盤】：http://www.linkbucks.com/AEsQ2
+<br>【360密碼】：f762
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -134,9 +134,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：18:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dAYkf
+<br>【360雲盤】：http://www.linkbucks.com/AEsRA
+<br>【360密碼】：9194
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
@@ -146,9 +146,9 @@
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dAYpQ
+<br>【360雲盤】：http://www.linkbucks.com/AEsMm
+<br>【360密碼】：f7aa
 <br>【百度雲盤】：
 <br>【百度雲盤】：
 <br>【百度密碼】：
