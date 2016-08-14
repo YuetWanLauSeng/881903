@@ -158,24 +158,24 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dAe3I
+<br>【360雲盤】：http://www.linkbucks.com/AEnkG
+<br>【360密碼】：fbc2
+<br>【百度雲盤】：http://adf.ly/1dAe8G
+<br>【百度雲盤】：http://www.linkbucks.com/AEnZ9
+<br>【百度密碼】：tny8
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：881 葛民教育 2016-08-14（HD）
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology
-<br>【360雲盤】：
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dAe0n
+<br>【360雲盤】：http://www.linkbucks.com/AEnlM
+<br>【360密碼】：226e
+<br>【百度雲盤】：http://adf.ly/1dAe6j
+<br>【百度雲盤】：http://www.linkbucks.com/AEneL
+<br>【百度密碼】：7ehy
 <br>【城通雲盤】：翌日更新
 
 <br>【節目名稱】：903 短期租約 2016-08-14（HD）
