@@ -16,7 +16,7 @@
 <br>【360密碼】：b18b
 <br>【百度雲盤】： 或 
 <br>【百度密碼】：
-<br>【MediaFire】： 或 
+<br>【MediaFire】：http://adf.ly/1dDHF5 或 http://www.linkbucks.com/AFbS7
 
 <br>【節目名稱】：903 早安，同學早! 2016-08-16（HD）
 <br>【節目主持】：西瓜
@@ -36,7 +36,7 @@
 <br>【360密碼】：0f7d
 <br>【百度雲盤】： 或 
 <br>【百度密碼】：
-<br>【MediaFire】： 或 
+<br>【MediaFire】：http://adf.ly/1dDHC0 或 http://www.linkbucks.com/AFbVx
 
 <br>【節目名稱】：903 早霸王 2016-08-16（HD）
 <br>【節目主持】：森美 | 小儀
@@ -46,7 +46,7 @@
 <br>【360密碼】：e912
 <br>【百度雲盤】： 或 
 <br>【百度密碼】：
-<br>【MediaFire】： 或 
+<br>【MediaFire】：http://adf.ly/1dDHE0 或 http://www.linkbucks.com/AFbVf
 
 <br>【節目名稱】：881 1圈圈 2016-08-16（HD）
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
@@ -62,8 +62,8 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music
-<br>【360雲盤】： 或 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dDJfZ 或 http://www.linkbucks.com/AFZv1
+<br>【360密碼】：268f
 <br>【百度雲盤】： 或 
 <br>【百度密碼】：
 <br>【MediaFire】： 或 
@@ -76,14 +76,14 @@
 <br>【360密碼】：1b88
 <br>【百度雲盤】： 或 
 <br>【百度密碼】：
-<br>【MediaFire】： 或 
+<br>【MediaFire】：http://adf.ly/1dDH7z 或 http://www.linkbucks.com/AFbWP
 
 <br>【節目名稱】：881 一點叮一叮 2016-08-16（HD）
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special
-<br>【360雲盤】： 或 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dDJp3 或 http://www.linkbucks.com/AFZrV
+<br>【360密碼】：0a4f
 <br>【百度雲盤】： 或 
 <br>【百度密碼】：
 <br>【MediaFire】： 或 
@@ -92,18 +92,18 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade
-<br>【360雲盤】： 或 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dDJl5 或 http://www.linkbucks.com/AFZsT
+<br>【360密碼】：17f6
 <br>【百度雲盤】： 或 
 <br>【百度密碼】：
 <br>【MediaFire】： 或 
 
-<br>【節目名稱】：903 關公災難 2016-08-16（HD）
-<br>【節目主持】：劉翁 | 王迪詩
+<br>【節目名稱】：903 你好嘢 2016-08-16（HD）
+<br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：PR
-<br>【360雲盤】： 或 
-<br>【360密碼】：
+<br>【檔案名稱】：You Are The Best
+<br>【360雲盤】：http://adf.ly/1dDJjB 或 http://www.linkbucks.com/AFZt3
+<br>【360密碼】：2bab
 <br>【百度雲盤】： 或 
 <br>【百度密碼】：
 <br>【MediaFire】： 或 
