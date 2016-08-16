@@ -119,8 +119,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dDJl5 （or） http://www.linkbucks.com/AFZsT
 <br>【360密碼】：17f6
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dDgHr （or） http://www.linkbucks.com/AFTKa
+<br>【百度密碼】：mu44
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -145,7 +145,7 @@
 <br>【360密碼】：ac42
 <br>【百度雲盤】：http://adf.ly/1dDZhp （or） http://www.linkbucks.com/szQc
 <br>【百度密碼】：qwyj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dDgFU （or） http://www.linkbucks.com/AFThd
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -158,7 +158,7 @@
 <br>【360密碼】：97ef
 <br>【百度雲盤】：http://adf.ly/1dDZeW （or） http://www.linkbucks.com/teI3
 <br>【百度密碼】：uy4q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dDgCY （or） http://www.linkbucks.com/AFTns
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -205,8 +205,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dDddx （or） http://www.linkbucks.com/AFVv5
 <br>【360密碼】：8d4b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dDhki （or） http://www.linkbucks.com/AFSHs
+<br>【百度密碼】：pxg5
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -217,8 +217,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dDdbB （or） http://www.linkbucks.com/AFV0Z
 <br>【360密碼】：aaf0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dDhit （or） http://www.linkbucks.com/AFSLT
+<br>【百度密碼】：52gk
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -239,10 +239,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dDhgO （or） http://www.linkbucks.com/AFSNC
+<br>【360密碼】：81f8
+<br>【百度雲盤】：http://adf.ly/1dDhp3 （or） http://www.linkbucks.com/AFSAI
+<br>【百度密碼】：4gfi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：小朋友都熄
@@ -318,4 +318,3 @@
 <br>【360密碼】：
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-
