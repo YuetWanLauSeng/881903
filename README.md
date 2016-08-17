@@ -229,8 +229,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dDpzK （or） http://www.linkbucks.com/AFINi
 <br>【360密碼】：d1b3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dEKFH （or） http://www.linkbucks.com/AFPMp
+<br>【百度密碼】：b2pa
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -279,8 +279,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dEIZL （or） http://www.linkbucks.com/AFSpQ
 <br>【360密碼】：243f
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dEKGH （or） http://www.linkbucks.com/AFPMn
+<br>【百度密碼】：2dnx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -316,5 +316,5 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dEIV8 （or） http://www.linkbucks.com/AFSrG
 <br>【360密碼】：9894
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dEKEB （or） http://www.linkbucks.com/AFPNw
+<br>【百度密碼】：g314
