@@ -30,8 +30,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners! .2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEzDr （or） http://www.linkbucks.com/AFbca
+<br>【360密碼】：9b41
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -68,8 +68,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEz4I （or） http://www.linkbucks.com/AFbd4
+<br>【360密碼】：1fc9
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -80,8 +80,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEywx （or） http://www.linkbucks.com/AFbgW
+<br>【360密碼】：783f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -105,8 +105,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEzI9 （or） http://www.linkbucks.com/AFbWz
+<br>【360密碼】：418a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -117,8 +117,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEz6A （or） http://www.linkbucks.com/AFbdU
+<br>【360密碼】：ee69
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -129,8 +129,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEzMH （or） http://www.linkbucks.com/AFbVU
+<br>【360密碼】：29eb
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEzAl （or） http://www.linkbucks.com/AFbcp
+<br>【360密碼】：cc7a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -179,20 +179,20 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEzNl （or） http://www.linkbucks.com/AFbUc
+<br>【360密碼】：dae0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
-<br>【節目名稱】：人民大道中
+<br>【節目名稱】：人民大道在乎你
 <br>【節目頻道】：881
 <br>【節目日期】：2016-08-17
-<br>【節目主持】：黃永 | 健吾
+<br>【節目主持】：黃永
 <br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Our Way Out.2016-08-17
+<br>【檔案名稱】：The Way Out of Poverty.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dEzPk （or） http://www.linkbucks.com/AFbUQ
+<br>【360密碼】：53c2
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
