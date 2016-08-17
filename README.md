@@ -227,8 +227,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dFDQ3 （or） http://www.linkbucks.com/AF0UZ
+<br>【360密碼】：e5a8
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -252,8 +252,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dFDO4 （or） http://www.linkbucks.com/AF0nJ
+<br>【360密碼】：1ae6
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -264,8 +264,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dFDc8 （or） http://www.linkbucks.com/AF0Vo
+<br>【360密碼】：119f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
