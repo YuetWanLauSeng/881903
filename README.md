@@ -243,7 +243,7 @@
 <br>【360密碼】：81f8
 <br>【百度雲盤】：http://adf.ly/1dDhp3 （or） http://www.linkbucks.com/AFSAI
 <br>【百度密碼】：4gfi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dEOVW （or） http://www.linkbucks.com/AFLkO
 
 <br>【節目名稱】：小朋友都熄
 <br>【節目頻道】：881
@@ -268,7 +268,7 @@
 <br>【360密碼】：e1ed
 <br>【百度雲盤】：http://adf.ly/1dDqgx （or） http://www.linkbucks.com/AFHpD
 <br>【百度密碼】：wnt4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dEOQQ （or） http://www.linkbucks.com/AFLlx
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -281,7 +281,7 @@
 <br>【360密碼】：243f
 <br>【百度雲盤】：http://adf.ly/1dEKGH （or） http://www.linkbucks.com/AFPMn
 <br>【百度密碼】：2dnx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dEOcU （or） http://www.linkbucks.com/AFLe9
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
