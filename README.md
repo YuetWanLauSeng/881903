@@ -215,8 +215,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dF0I1 （or） http://www.linkbucks.com/AFbGy
+<br>【360密碼】：886f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
