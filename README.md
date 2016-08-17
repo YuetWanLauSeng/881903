@@ -59,7 +59,7 @@
 <br>【360密碼】：b3db
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dFdSD （or） http://www.linkbucks.com/AFhhH
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -96,7 +96,7 @@
 <br>【360密碼】：53e9
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dFdVI （or） http://www.linkbucks.com/AFhex
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -158,7 +158,7 @@
 <br>【360密碼】：62a0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dFdPT （or） http://www.linkbucks.com/AFh6A
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -268,7 +268,7 @@
 <br>【360密碼】：119f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dFdR3 （or） http://www.linkbucks.com/AFhiT
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -277,8 +277,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-08-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dFcbN （or） http://www.linkbucks.com/AFiiY
+<br>【360密碼】：faba
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
