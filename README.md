@@ -278,7 +278,7 @@
 <br>【360密碼】：faba
 <br>【百度雲盤】：http://adf.ly/1dFgyh （or） http://www.linkbucks.com/81qI
 <br>【百度密碼】：c58s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dFiqP （or） http://www.linkbucks.com/AFqPC
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
