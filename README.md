@@ -158,7 +158,7 @@
 <br>【360密碼】：d5be
 <br>【百度雲盤】：http://adf.ly/1dGLu7 （or） http://www.linkbucks.com/AFvya
 <br>【百度密碼】：q33n
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dGToX （or） http://www.linkbucks.com/AFj7W
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -203,8 +203,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-08-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dGTjd （or） http://www.linkbucks.com/AFkyZ
+<br>【360密碼】：58db
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -215,8 +215,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-08-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dGThD （or） http://www.linkbucks.com/AFkyq
+<br>【360密碼】：01a0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -239,8 +239,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dGTfi （or） http://www.linkbucks.com/AFkyz
+<br>【360密碼】：1f44
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
