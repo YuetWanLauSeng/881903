@@ -181,8 +181,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dGMQS （or） http://www.linkbucks.com/AFvng
 <br>【360密碼】：d21b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dGbSw （or） http://www.linkbucks.com/AFfcs
+<br>【百度密碼】：2rfk
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -193,8 +193,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dGMMM （or） http://www.linkbucks.com/AFvr3
 <br>【360密碼】：99d0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dGbRF （or） http://www.linkbucks.com/AFfc5
+<br>【百度密碼】：82kj
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -205,8 +205,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dGTjd （or） http://www.linkbucks.com/AFkyZ
 <br>【360密碼】：58db
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dGbM4 （or） http://www.linkbucks.com/AFgYj
+<br>【百度密碼】：3gt5
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -217,8 +217,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dGThD （or） http://www.linkbucks.com/AFkyq
 <br>【360密碼】：01a0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dGbNY （or） http://www.linkbucks.com/AFgYe
+<br>【百度密碼】：7dnj
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -227,10 +227,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-08-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dGbBp （or） http://www.linkbucks.com/AFgWi
+<br>【360密碼】：93eb
+<br>【百度雲盤】：http://adf.ly/1dGbIh （or） http://www.linkbucks.com/AFgZU
+<br>【百度密碼】：vcif
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -241,8 +241,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dGTfi （or） http://www.linkbucks.com/AFkyz
 <br>【360密碼】：1f44
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dGbQ0 （or） http://adf.ly/1dGbQ0
+<br>【百度密碼】：96sk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -252,10 +252,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-08-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dGb7p （or） http://www.linkbucks.com/AFgUg
+<br>【360密碼】：4a4f
+<br>【百度雲盤】：http://adf.ly/1dGbKC （or） http://www.linkbucks.com/AFgZf
+<br>【百度密碼】：j9zh
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -264,10 +264,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-08-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dGbE5 （or） http://www.linkbucks.com/AFgWr
+<br>【360密碼】：edb0
+<br>【百度雲盤】：http://adf.ly/1dGbHL （or） http://www.linkbucks.com/AFgW4
+<br>【百度密碼】：fijg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
