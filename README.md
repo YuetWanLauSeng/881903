@@ -226,10 +226,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dHzSZ （or） http://www.linkbucks.com/AGAzp
+<br>【360密碼】：2713
+<br>【百度雲盤】：http://adf.ly/1dHzhM （or） http://www.linkbucks.com/AGAuU
+<br>【百度密碼】：2kmg
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -250,10 +250,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：解困學貫中西.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dHzU3 （or） http://www.linkbucks.com/AGAyX
+<br>【360密碼】：4d6e
+<br>【百度雲盤】：http://adf.ly/1dHzbS （or） http://www.linkbucks.com/AGAwD
+<br>【百度密碼】：8rea
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -262,10 +262,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dHzZN （or） http://www.linkbucks.com/AGAwd
+<br>【360密碼】：8196
+<br>【百度雲盤】：http://adf.ly/1dHzjO （or） http://www.linkbucks.com/AGAuB
+<br>【百度密碼】：hbwe
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
