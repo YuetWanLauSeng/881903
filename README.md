@@ -145,7 +145,6 @@
 <br>【360密碼】：5eaf
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -158,7 +157,7 @@
 <br>【360密碼】：6b17
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dHh8H （or） http://www.linkbucks.com/AGJgG
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -179,8 +178,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dHk3k （or） http://www.linkbucks.com/AGHzp
+<br>【360密碼】：8c06
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -191,8 +190,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dHjW2 （or） http://www.linkbucks.com/AGIMJ
+<br>【360密碼】：950e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
