@@ -202,8 +202,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dHtIn （or） http://www.linkbucks.com/AGCRe
+<br>【360密碼】：d183
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -214,8 +214,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dHtPl （or） http://www.linkbucks.com/AGCP3
+<br>【360密碼】：1ca6
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -238,8 +238,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dHtKz （or） http://www.linkbucks.com/AGCQi
+<br>【360密碼】：f79f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
