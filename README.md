@@ -267,7 +267,7 @@
 <br>【360密碼】：edb0
 <br>【百度雲盤】：http://adf.ly/1dGbHL （or） http://www.linkbucks.com/AFgW4
 <br>【百度密碼】：fijg
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dH6DD （or） http://www.linkbucks.com/AF6Eg
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -280,7 +280,7 @@
 <br>【360密碼】：03a8
 <br>【百度雲盤】：http://adf.ly/1dH5Ra （or） http://www.linkbucks.com/AF7Xh
 <br>【百度密碼】：enmi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dH6DD （or） http://www.linkbucks.com/AF4sK
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
