@@ -145,7 +145,6 @@
 <br>【360密碼】：51d2
 <br>【百度雲盤】：http://adf.ly/1dGM0w （or） http://www.linkbucks.com/AFvwn
 <br>【百度密碼】：usy8
-<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -279,8 +278,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dH4Cb （or） http://www.linkbucks.com/AFzsP
 <br>【360密碼】：03a8
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dH5Ra （or） http://www.linkbucks.com/AF7Xh
+<br>【百度密碼】：enmi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -316,5 +315,5 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dH4Dd （or） http://www.linkbucks.com/AFzrN
 <br>【360密碼】：1db9
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dH5Zn （or） http://www.linkbucks.com/AF7Su
+<br>【百度密碼】：ibpw
