@@ -266,7 +266,7 @@
 <br>【360密碼】：8196
 <br>【百度雲盤】：http://adf.ly/1dHzjO （or） http://www.linkbucks.com/AGAuB
 <br>【百度密碼】：hbwe
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dI1hY （or） http://www.linkbucks.com/AGANc
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
