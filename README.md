@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dIxro （or） http://www.linkbucks.com/77wx
 <br>【360密碼】：f85b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIzqR （or） http://www.linkbucks.com/mn8c
+<br>【百度密碼】：ideb
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dIxtE （or） http://www.linkbucks.com/7pEj
 <br>【360密碼】：2ba7
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIzpV （or） http://www.linkbucks.com/ke3y
+<br>【百度密碼】：syyv
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dIxux （or） http://www.linkbucks.com/AE2VP
 <br>【360密碼】：345c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIzt9 （or） http://www.linkbucks.com/mmhu
+<br>【百度密碼】：in5k
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -113,10 +113,10 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dIzmE （or） http://www.linkbucks.com/iuOe
+<br>【360密碼】：295c
+<br>【百度雲盤】：http://adf.ly/1dIzoM （or） http://www.linkbucks.com/kiRS
+<br>【百度密碼】：kk2q
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
