@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dIrGB （or） http://www.linkbucks.com/kWDM
 <br>【360密碼】：2de2
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIy16 （or） http://www.linkbucks.com/4Qqg
+<br>【百度密碼】：mc9h
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dIrCp （or） http://www.linkbucks.com/kWDV
 <br>【360密碼】：6727
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIy6A （or） http://www.linkbucks.com/1x8O
+<br>【百度密碼】：n26e
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dIrAC （or） http://www.linkbucks.com/kWDa
 <br>【360密碼】：5cc6
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIy4c （or） http://www.linkbucks.com/vpS2
+<br>【百度密碼】：2quu
 
 <br>【節目名稱】：雷霆有約熱內盧
 <br>【節目頻道】：881
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dIrK7 （or） http://www.linkbucks.com/hOsB
 <br>【360密碼】：cc00
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIxy8 （or） http://www.linkbucks.com/6f9G
+<br>【百度密碼】：r68u
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dIrIM （or） http://www.linkbucks.com/hOsJ
 <br>【360密碼】：1d17
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIy3Z （or） http://www.linkbucks.com/3Dd6
+<br>【百度密碼】：b6h8
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -65,8 +65,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dIxro （or） http://www.linkbucks.com/77wx
+<br>【360密碼】：f85b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -77,8 +77,8 @@
 <br>【節目時間】：12:30 - 14:00
 <br>【檔案名稱】：Movies.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dIxtE （or） http://www.linkbucks.com/7pEj
+<br>【360密碼】：2ba7
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -89,8 +89,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dIxux （or） http://www.linkbucks.com/AE2VP
+<br>【360密碼】：345c
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
