@@ -101,8 +101,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dJOWI （or） http://www.linkbucks.com/AGWao
+<br>【360密碼】：d9cd
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -125,8 +125,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dJOXv （or） http://www.linkbucks.com/AGWZH
+<br>【360密碼】：eaee
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -137,8 +137,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dJOZo （or） http://www.linkbucks.com/AGWY2
+<br>【360密碼】：d6ec
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
