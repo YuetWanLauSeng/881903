@@ -275,11 +275,11 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-08-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
+<br>【360雲盤】：http://adf.ly/1dIkdR （or） http://www.linkbucks.com/AGUxs
 <br>【360密碼】：9430
-<br>【百度雲盤】：http://adf.ly/1dIkdR （or） http://www.linkbucks.com/AGUxs
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dIprN （or） http://www.linkbucks.com/AGNpu
+<br>【百度密碼】：6qj1
+<br>【MediaFire】：http://adf.ly/1dIpkp （or） http://www.linkbucks.com/AGNr3
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -290,8 +290,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dImPF （or） http://www.linkbucks.com/AGOzr
 <br>【360密碼】：5d09
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIpuJ （or） http://www.linkbucks.com/AGNpK
+<br>【百度密碼】：e86r
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -302,8 +302,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dImOQ （or） http://www.linkbucks.com/AGO0D
 <br>【360密碼】：49c0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIpv4 （or） http://www.linkbucks.com/AGNo4
+<br>【百度密碼】：x9xa
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -314,5 +314,5 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dImNT （or） http://www.linkbucks.com/AGO0I
 <br>【360密碼】：ffb3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dIpm8 （or） http://www.linkbucks.com/AGNrm
+<br>【百度密碼】：tuz3
