@@ -149,8 +149,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dK3eK （or） http://www.linkbucks.com/AGxqh
+<br>【360密碼】：2765
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -161,8 +161,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dK3b0 （or） http://www.linkbucks.com/AGxrm
+<br>【360密碼】：cb82
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,8 +173,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dK3ci （or） http://www.linkbucks.com/AGxrY
+<br>【360密碼】：3ee2
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -185,8 +185,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2016-08-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dK3hs （or） http://www.linkbucks.com/AGxnU
+<br>【360密碼】：bda4
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
