@@ -103,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dJOWI （or） http://www.linkbucks.com/AGWao
 <br>【360密碼】：d9cd
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKZ87 （or） http://www.linkbucks.com/AGiPl
+<br>【百度密碼】：apy9
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -127,8 +127,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dJOXv （or） http://www.linkbucks.com/AGWZH
 <br>【360密碼】：eaee
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKZ9e （or） http://www.linkbucks.com/AGiPS
+<br>【百度密碼】：3kaa
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -139,8 +139,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dJOZo （or） http://www.linkbucks.com/AGWY2
 <br>【360密碼】：d6ec
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKZ6R （or） http://www.linkbucks.com/AGiPz
+<br>【百度密碼】：mtr6
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dK3eK （or） http://www.linkbucks.com/AGxqh
 <br>【360密碼】：2765
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKZ59 （or） http://www.linkbucks.com/AGiRs
+<br>【百度密碼】：74b7
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dK3b0 （or） http://www.linkbucks.com/AGxrm
 <br>【360密碼】：cb82
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKZ3c （or） http://www.linkbucks.com/AGiSW
+<br>【百度密碼】：23ie
 
 <br>【節目名稱】：Chi Chung's Class
 <br>【節目頻道】：903
@@ -175,8 +175,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dK3ci （or） http://www.linkbucks.com/AGxrY
 <br>【360密碼】：3ee2
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKZ0m （or） http://www.linkbucks.com/AGidE
+<br>【百度密碼】：34rw
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
@@ -187,9 +187,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dK3hs （or） http://www.linkbucks.com/AGxnU
 <br>【360密碼】：bda4
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dKYtn （or） http://www.linkbucks.com/AGiw7
+<br>【百度密碼】：rr5m
+<br>【MediaFire】：http://adf.ly/1dKZJq （or） http://www.linkbucks.com/AGiJz
 
 <br>【節目名稱】：發式生活
 <br>【節目頻道】：881
@@ -200,8 +200,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dK5eh （or） http://www.linkbucks.com/AGwcL
 <br>【360密碼】：9cb4
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKYwF （or） http://www.linkbucks.com/AGiko
+<br>【百度密碼】：fq6y
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -212,9 +212,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dK5gq （or） http://www.linkbucks.com/AGwZZ
 <br>【360密碼】：b82d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dKYxN （or） http://www.linkbucks.com/AGihw
+<br>【百度密碼】：7axc
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -225,5 +224,5 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dK5cs （or） http://www.linkbucks.com/AGwcV
 <br>【360密碼】：1280
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKYt0 （or） http://www.linkbucks.com/AGizN
+<br>【百度密碼】：k3s1
