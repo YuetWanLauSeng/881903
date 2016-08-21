@@ -68,8 +68,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKhwc （or） http://www.linkbucks.com/AGkYU
 <br>【360密碼】：53c0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKmDN （or） http://www.linkbucks.com/AGib4
+<br>【百度密碼】：d6xt
 
 <br>【節目名稱】：都是我的流行曲
 <br>【節目頻道】：881
@@ -80,8 +80,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKhut （or） http://www.linkbucks.com/AGkYd
 <br>【360密碼】：34cc
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKmFX （or） http://www.linkbucks.com/AGibt
+<br>【百度密碼】：advm
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -92,9 +92,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKhll （or） http://www.linkbucks.com/AGkcX
 <br>【360密碼】：fd07
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dKmZh （or） http://www.linkbucks.com/AGiZ5
+<br>【百度密碼】：ase1
+<br>【MediaFire】：http://adf.ly/1dKnjc （or） http://www.linkbucks.com/AGiEg
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -105,19 +105,19 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKibf （or） http://www.linkbucks.com/AGkJw
 <br>【360密碼】：3cdb
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dKmIg （or） http://www.linkbucks.com/AGibb
+<br>【百度密碼】：p5xj
+<br>【MediaFire】：http://adf.ly/1dKnlU （or） http://www.linkbucks.com/AGiEX
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
 <br>【節目日期】：2016-08-21
 <br>【節目主持】：Vani
-<br>【節目時間】：18:00 - 21:00
+<br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dKm8O （or） http://www.linkbucks.com/AGicP
+<br>【360密碼】：4b95
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -128,8 +128,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dKmB4 （or） http://www.linkbucks.com/AGicF
+<br>【360密碼】：f0a7
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
