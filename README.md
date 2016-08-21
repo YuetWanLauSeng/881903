@@ -59,6 +59,18 @@
 <br>【百度雲盤】：http://adf.ly/1dKiCL （or） http://www.linkbucks.com/AGkTN
 <br>【百度密碼】：4fc6
 
+<br>【節目名稱】：兒童適宜
+<br>【節目頻道】：903
+<br>【節目日期】：2016-08-21
+<br>【節目主持】：朱薰 | 陸永
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：Kiss Kiss Kids.2016-08-21
+<br>【檔案音質】：高清
+<br>【360雲盤】：http://adf.ly/1dKs33 （or） http://www.linkbucks.com/AGrk4
+<br>【360密碼】：0b63
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：4fc6
+
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
 <br>【節目日期】：2016-08-21
@@ -140,8 +152,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dKs92 （or） http://www.linkbucks.com/AGrkH
+<br>【360密碼】：6652
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
