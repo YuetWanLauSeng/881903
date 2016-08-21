@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKcJF （or） http://www.linkbucks.com/AGmCn
 <br>【360密碼】：7be8
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKiE8 （or） http://www.linkbucks.com/AGkRy
+<br>【百度密碼】：xng3
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKcFl （or） http://www.linkbucks.com/AGmDK
 <br>【360密碼】：7258
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKiHO （or） http://www.linkbucks.com/AGkRt
+<br>【百度密碼】：df84
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKcNh （or） http://www.linkbucks.com/AGmCY
 <br>【360密碼】：c985
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dKiAe （or） http://www.linkbucks.com/AGkTQ
+<br>【百度密碼】：vpnm
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -43,9 +43,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKcLb （or） http://www.linkbucks.com/AGmCf
 <br>【360密碼】：4609
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dKi8a （or） http://www.linkbucks.com/AGkVF
+<br>【百度密碼】：k6qh
+<br>【MediaFire】：http://adf.ly/1dKi5i （or） http://www.linkbucks.com/AGkVT
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -56,9 +56,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKcHk （or） http://www.linkbucks.com/AGmC2
 <br>【360密碼】：1d1c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dKiCL （or） http://www.linkbucks.com/AGkTN
+<br>【百度密碼】：4fc6
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -67,8 +66,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dKhwc （or） http://www.linkbucks.com/AGkYU
+<br>【360密碼】：53c0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -79,8 +78,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dKhut （or） http://www.linkbucks.com/AGkYd
+<br>【360密碼】：34cc
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -91,8 +90,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dKhll （or） http://www.linkbucks.com/AGkcX
+<br>【360密碼】：fd07
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -102,10 +101,10 @@
 <br>【節目日期】：2016-08-21
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
-<br>【檔案名稱】：Sino Stream – Reading.2016-08-21
+<br>【檔案名稱】：Sino Stream - Reading.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dKibf （or） http://www.linkbucks.com/AGkJw
+<br>【360密碼】：3cdb
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
