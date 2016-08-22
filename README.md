@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dMb2U （or） http://www.linkbucks.com/AHHOV
+<br>【360密碼】：66de
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -243,15 +243,15 @@
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：書.情.歌
+<br>【節目名稱】：絕不放棄
 <br>【節目頻道】：881
 <br>【節目日期】：2016-08-22
-<br>【節目主持】：葉宇澄
+<br>【節目主持】：阮子健
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time.2016-08-22
+<br>【檔案名稱】：Never say Never.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dMb1D （or） http://www.linkbucks.com/AHG1o
+<br>【360密碼】：7537
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -262,8 +262,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dMbRp （or） http://www.linkbucks.com/AHFzO
+<br>【360密碼】：00f2
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
