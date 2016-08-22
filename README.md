@@ -68,8 +68,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKs33 （or） http://www.linkbucks.com/AGrk4
 <br>【360密碼】：0b63
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：4fc6
+<br>【百度雲盤】：http://adf.ly/1dLReU （or） http://www.linkbucks.com/3gDX
+<br>【百度密碼】：gmgs
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -130,8 +130,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKm8O （or） http://www.linkbucks.com/AGicP
 <br>【360密碼】：4b95
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dLRfh （or） http://www.linkbucks.com/3aqN
+<br>【百度密碼】：5hey
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKmB4 （or） http://www.linkbucks.com/AGicF
 <br>【360密碼】：f0a7
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dLRlD （or） http://www.linkbucks.com/1685
+<br>【百度密碼】：dkxc
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -154,8 +154,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dKs92 （or） http://www.linkbucks.com/AGrkH
 <br>【360密碼】：6652
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dLRZC （or） http://www.linkbucks.com/4qSI
+<br>【百度密碼】：i8ht
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -177,10 +177,10 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dLRRV （or） http://www.linkbucks.com/6jei
+<br>【360密碼】：524b
+<br>【百度雲盤】：http://adf.ly/1dLRbt （or） http://www.linkbucks.com/4KVi
+<br>【百度密碼】：655p
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：短期租約
@@ -190,10 +190,10 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dLRPy （or） http://www.linkbucks.com/7pws
+<br>【360密碼】：2f80
+<br>【百度雲盤】：http://adf.ly/1dLRUJ （or） http://www.linkbucks.com/k2J2
+<br>【百度密碼】：4qm7
 
 <br>【節目名稱】：寫生活
 <br>【節目頻道】：881
@@ -202,10 +202,10 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dLRSS （or） http://www.linkbucks.com/6Fgv
+<br>【360密碼】：101c
+<br>【百度雲盤】：http://adf.ly/1dLRXB （or） http://www.linkbucks.com/4t5s
+<br>【百度密碼】：48am
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -214,7 +214,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-08-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dLRTT （or） http://www.linkbucks.com/3OP6
+<br>【360密碼】：32f9
+<br>【百度雲盤】：http://adf.ly/1dLRVJ （or） http://www.linkbucks.com/4yZv
+<br>【百度密碼】：rcxh
