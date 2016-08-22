@@ -46,7 +46,7 @@
 <br>【360密碼】：7f31
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dM16q （or） http://www.linkbucks.com/AHCPC
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -59,7 +59,7 @@
 <br>【360密碼】：00dd
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dM1IP （or） http://www.linkbucks.com/AHTyD
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -166,8 +166,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dM2Ji （or） http://www.linkbucks.com/AHTjX
+<br>【360密碼】：91f1
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
