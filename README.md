@@ -21,7 +21,6 @@
 <br>【360密碼】：8309
 <br>【百度雲盤】：http://adf.ly/1dM3rS （or） http://www.linkbucks.com/AHTAQ
 <br>【百度密碼】：brtg
-<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -157,7 +156,7 @@
 <br>【360密碼】：0a1f
 <br>【百度雲盤】：http://adf.ly/1dM4dv （or） http://www.linkbucks.com/AHStF
 <br>【百度密碼】：x3q9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dMQCC （or） http://www.linkbucks.com/AGz8u
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -178,10 +177,10 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dMPqy （or） http://www.linkbucks.com/AG0A5
+<br>【360密碼】：41b3
+<br>【百度雲盤】：http://adf.ly/1dMPtS （or） http://www.linkbucks.com/AG0Au
+<br>【百度密碼】：h9qb
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,10 +189,10 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dMPoT （or） http://www.linkbucks.com/AG0DR
+<br>【360密碼】：1e1c
+<br>【百度雲盤】：http://adf.ly/1dMPw4 （or） http://www.linkbucks.com/AG0Ao
+<br>【百度密碼】：q8kp
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -202,8 +201,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dMS4x （or） http://www.linkbucks.com/AGzzS
+<br>【360密碼】：c8f4
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -214,8 +213,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dMT1h （or） http://www.linkbucks.com/AGzqm
+<br>【360密碼】：2401
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -238,8 +237,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dMTAS （or） http://www.linkbucks.com/AGzp2
+<br>【360密碼】：f4da
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
