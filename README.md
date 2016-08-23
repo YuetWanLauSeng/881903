@@ -203,8 +203,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNpJi （or） http://www.linkbucks.com/AG84x
 <br>【360密碼】：a416
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNrt2 （or） http://www.linkbucks.com/AG8rF
+<br>【百度密碼】：swgf
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -215,8 +215,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNodA （or） http://www.linkbucks.com/AG87y
 <br>【360密碼】：3195
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNryd （or） http://www.linkbucks.com/AG8qq
+<br>【百度密碼】：4r3s
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -237,11 +237,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【360雲盤】：http://adf.ly/1dNsWI （or） http://www.linkbucks.com/AG8m4
+<br>【360密碼】：aec3
+<br>【百度雲盤】：http://adf.ly/1dNsbC （or） http://www.linkbucks.com/AG8mp
+<br>【百度密碼】：8k8x
 
 <br>【節目名稱】：小朋友都熄
 <br>【節目頻道】：881
