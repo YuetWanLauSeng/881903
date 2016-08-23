@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNiKQ （or） http://www.linkbucks.com/AHALr
 <br>【360密碼】：446f
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNovn （or） http://www.linkbucks.com/AG86W
+<br>【百度密碼】：nj2e
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -154,9 +154,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNiLX （or） http://www.linkbucks.com/AHALh
 <br>【360密碼】：e364
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dNosR （or） http://www.linkbucks.com/AG86k
+<br>【百度密碼】：17fb
+<br>【MediaFire】：http://adf.ly/1dNpcx （or） http://www.linkbucks.com/AG82l
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNiIM （or） http://www.linkbucks.com/AHATw
 <br>【360密碼】：a7c3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNoqQ （or） http://www.linkbucks.com/AG86t
+<br>【百度密碼】：wupr
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -201,8 +201,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-08-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dNpJi （or） http://www.linkbucks.com/AG84x
+<br>【360密碼】：a416
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
