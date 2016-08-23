@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-08-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dNzec （or） http://www.linkbucks.com/AHFgP
+<br>【360密碼】：0330
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -249,8 +249,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：小朋友都熄.2016-08-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dNzgp （or） http://www.linkbucks.com/AHFgF
+<br>【360密碼】：caa3
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -261,8 +261,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-08-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dNzjT （or） http://www.linkbucks.com/AHFf9
+<br>【360密碼】：1b8d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
