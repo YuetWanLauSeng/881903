@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNO0C （or） http://www.linkbucks.com/AHCqk
 <br>【360密碼】：5d70
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNi0J （or） http://www.linkbucks.com/AHAM5
+<br>【百度密碼】：1a7j
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -19,9 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNNzU （or） http://www.linkbucks.com/AHCqe
 <br>【360密碼】：0397
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dNhBG （or） http://www.linkbucks.com/AHAO2
+<br>【百度密碼】：wxhb
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -32,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNNtL （or） http://www.linkbucks.com/AHCph
 <br>【360密碼】：dbfd
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNi2G （or） http://www.linkbucks.com/AHAMx
+<br>【百度密碼】：2yqt
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -44,9 +43,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNO1M （or） http://www.linkbucks.com/AHCqt
 <br>【360密碼】：f326
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dNhIj （or） http://www.linkbucks.com/AHAKN
+<br>【百度密碼】：uqyq
+<br>【MediaFire】：http://adf.ly/1dNXpV （or） http://www.linkbucks.com/AHAQ5
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -57,9 +56,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNO3V （or） http://www.linkbucks.com/AHCsp
 <br>【360密碼】：13d6
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dNiEW （or） http://www.linkbucks.com/AHAMC
+<br>【百度密碼】：efi8
+<br>【MediaFire】：http://adf.ly/1dNXrd （or） http://www.linkbucks.com/AHAQv
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -70,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNO5p （or） http://www.linkbucks.com/AHCxZ
 <br>【360密碼】：c91c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNi4L （or） http://www.linkbucks.com/AHAMl
+<br>【百度密碼】：gc2n
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -82,8 +81,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNWcd （or） http://www.linkbucks.com/AHBcT
 <br>【360密碼】：ee4b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNiFz （or） http://www.linkbucks.com/AHALy
+<br>【百度密碼】：2jvh
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -94,9 +93,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNNxy （or） http://www.linkbucks.com/AHCqA
 <br>【360密碼】：d9a0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dNiH8 （or） http://www.linkbucks.com/AHAT0
+<br>【百度密碼】：cukh
+<br>【MediaFire】：http://adf.ly/1dNXoZ （or） http://www.linkbucks.com/AHAYY
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -107,8 +106,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNWfD （or） http://www.linkbucks.com/AHBcB
 <br>【360密碼】：80f0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNi31 （or） http://www.linkbucks.com/AHAMt
+<br>【百度密碼】：jvk5
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -119,8 +118,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNWe9 （or） http://www.linkbucks.com/AHBcI
 <br>【360密碼】：ae4e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNi9m （or） http://www.linkbucks.com/AHAMV
+<br>【百度密碼】：i9k9
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -131,8 +130,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dNWuI （or） http://www.linkbucks.com/AHBaL
 <br>【360密碼】：2065
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dNh9N （or） http://www.linkbucks.com/AHAPJ
+<br>【百度密碼】：g4yv
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -141,8 +140,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-08-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dNiKQ （or） http://www.linkbucks.com/AHALr
+<br>【360密碼】：446f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -153,8 +152,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-08-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dNiLX （or） http://www.linkbucks.com/AHALh
+<br>【360密碼】：e364
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -166,8 +165,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-08-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dNiIM （or） http://www.linkbucks.com/AHATw
+<br>【360密碼】：a7c3
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -285,7 +284,7 @@
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
 <br>【節目日期】：2016-08-23
-<br>【節目主持】：梅小惠 | 鄔家麟 | 梁泰來
+<br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-08-23
 <br>【檔案音質】：高清
