@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dQWhD （or） http://www.linkbucks.com/BwB0c
 <br>【360密碼】：b9b3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dQsJm （or） http://www.linkbucks.com/AHbAW
+<br>【百度密碼】：ehrv
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -154,9 +154,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dQWg3 （or） http://www.linkbucks.com/BwB0i
 <br>【360密碼】：2d95
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dQsMr （or） http://www.linkbucks.com/AHbAQ
+<br>【百度密碼】：hysb
+<br>【MediaFire】：http://adf.ly/1dQsVJ （or） http://www.linkbucks.com/AHa9W
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dQqVI （or） http://www.linkbucks.com/AHbSz
 <br>【360密碼】：f6b3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dQsPe （or） http://www.linkbucks.com/AHa96
+<br>【百度密碼】：m6qz
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -179,8 +179,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dQqcq （or） http://www.linkbucks.com/AHbOw
 <br>【360密碼】：a738
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dQsDM （or） http://www.linkbucks.com/AHbBP
+<br>【百度密碼】：vfht
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -191,8 +191,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dQqYi （or） http://www.linkbucks.com/AHbQY
 <br>【360密碼】：3753
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dQsGi （or） http://www.linkbucks.com/AHbAt
+<br>【百度密碼】：qbn5
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -201,10 +201,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-08-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dQuJd （or） http://www.linkbucks.com/AHaxd
+<br>【360密碼】：60ad
+<br>【百度雲盤】：http://adf.ly/1dQywh （or） http://www.linkbucks.com/AHaXG
+<br>【百度密碼】：c2tm
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -213,8 +213,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-08-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dQuOl （or） http://www.linkbucks.com/AHaxT
+<br>【360密碼】：1304
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -237,8 +237,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dQzd2 （or） http://www.linkbucks.com/AHaQO
+<br>【360密碼】：da12
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
