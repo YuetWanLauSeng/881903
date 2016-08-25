@@ -165,8 +165,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-08-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dQqVI （or） http://www.linkbucks.com/AHbSz
+<br>【360密碼】：f6b3
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -177,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-08-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dQqcq （or） http://www.linkbucks.com/AHbOw
+<br>【360密碼】：a738
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -189,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-08-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dQqYi （or） http://www.linkbucks.com/AHbQY
+<br>【360密碼】：3753
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
