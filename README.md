@@ -215,8 +215,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dQuOl （or） http://www.linkbucks.com/AHaxT
 <br>【360密碼】：1304
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dRBPU （or） http://www.linkbucks.com/AHYti
+<br>【百度密碼】：4we1
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -239,8 +239,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dQzd2 （or） http://www.linkbucks.com/AHaQO
 <br>【360密碼】：da12
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dRBRt （or） http://www.linkbucks.com/AHYtc
+<br>【百度密碼】：p5g9
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -249,8 +249,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-08-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dRAzF （or） http://www.linkbucks.com/AHYrR
+<br>【360密碼】：24c4
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -261,8 +261,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-08-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dRBb7 （or） http://www.linkbucks.com/AHYi0
+<br>【360密碼】：882a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
