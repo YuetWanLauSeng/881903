@@ -5,8 +5,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song. 2016-08-26
 <br>【檔案音質】：高清
-<br>【360雲盤】：稍後發布
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dSsZc （or） http://www.linkbucks.com/AHy4c
+<br>【360密碼】：ae76
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -29,8 +29,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!.2016-08-26
 <br>【檔案音質】：高清
-<br>【360雲盤】：稍後發布
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dSscL （or） http://www.linkbucks.com/AHy32
+<br>【360密碼】：4cb0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -67,8 +67,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2016-08-26
 <br>【檔案音質】：高清
-<br>【360雲盤】：稍後發布
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dSsgU （or） http://www.linkbucks.com/AHy3k
+<br>【360密碼】：0a14
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -79,8 +79,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-08-26
 <br>【檔案音質】：高清
-<br>【360雲盤】：稍後發布
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dSsiP （or） http://www.linkbucks.com/AHy3N
+<br>【360密碼】：d247
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-08-26
 <br>【檔案音質】：高清
-<br>【360雲盤】：稍後發布
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dSsan （or） http://www.linkbucks.com/AHy4O
+<br>【360密碼】：399a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -116,8 +116,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-08-26
 <br>【檔案音質】：高清
-<br>【360雲盤】：稍後發布
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dSse6 （or） http://www.linkbucks.com/AHy3v
+<br>【360密碼】：7f2e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -128,8 +128,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-08-26
 <br>【檔案音質】：高清
-<br>【360雲盤】：稍後發布
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dSsV2 （or） http://www.linkbucks.com/AHy4x
+<br>【360密碼】：86af
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
