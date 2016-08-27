@@ -156,7 +156,7 @@
 <br>【360密碼】：6597
 <br>【百度雲盤】：http://adf.ly/1dT5Bm （or） http://www.linkbucks.com/AHuPa
 <br>【百度密碼】：32pr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dTnzr （or） http://www.linkbucks.com/AHs6L
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -276,9 +276,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dTiAs （or） http://www.linkbucks.com/AHVYm
 <br>【360密碼】：da14
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dTmXN （or） http://www.linkbucks.com/AGVgD
+<br>【百度密碼】：gk4a
+<br>【MediaFire】：http://adf.ly/1dTo1Y （or） http://www.linkbucks.com/AHs5O
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -289,8 +289,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dTk8P （or） http://www.linkbucks.com/AHUis
 <br>【360密碼】：35a1
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dTmi3 （or） http://www.linkbucks.com/AHT4L
+<br>【百度密碼】：65uw
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -301,8 +301,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dTk7E （or） http://www.linkbucks.com/AHUPS
 <br>【360密碼】：98e8
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dTmj6 （or） http://www.linkbucks.com/AHT36
+<br>【百度密碼】：f1aj
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -313,5 +313,5 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dTk5j （or） http://www.linkbucks.com/AHUjI
 <br>【360密碼】：d89f
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dTmfp （or） http://www.linkbucks.com/AHT4n
+<br>【百度密碼】：paj4
