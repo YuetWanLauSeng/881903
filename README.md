@@ -160,8 +160,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dVmRm （or） http://www.linkbucks.com/AHtwY
 <br>【360密碼】：f11d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dVsuJ （or） http://www.linkbucks.com/AH0fM
+<br>【百度密碼】：26pv
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -172,8 +172,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dVmil （or） http://www.linkbucks.com/AHtup
 <br>【360密碼】：e275
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dVssy （or） http://www.linkbucks.com/AH0fa
+<br>【百度密碼】：58ab
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -182,8 +182,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVsmI （or） http://www.linkbucks.com/AH0gr
+<br>【360密碼】：efe3
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -192,8 +192,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVsnk （or） http://www.linkbucks.com/AH0f5
+<br>【360密碼】：4fe1
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -202,8 +202,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVsqm （or） http://www.linkbucks.com/AH0fd
+<br>【360密碼】：38fd
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
