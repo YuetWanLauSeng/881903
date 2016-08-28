@@ -212,8 +212,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVvk4 （or） http://www.linkbucks.com/AH0U3
+<br>【360密碼】：2110
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -224,8 +224,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVve6 （or） http://www.linkbucks.com/AH0VX
+<br>【360密碼】：21da
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
