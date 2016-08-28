@@ -67,9 +67,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dVX3A （or） http://www.linkbucks.com/AHvth
 <br>【360密碼】：c764
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dVewc （or） http://www.linkbucks.com/AHupA
+<br>【百度密碼】：5gqt
+<br>【MediaFire】：http://adf.ly/1dVexV （or） http://www.linkbucks.com/AHuo8
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -78,8 +78,8 @@
 <br>【節目時間】：12:30 - 14:00
 <br>【檔案名稱】：881 Music Station.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVaA8 （or） http://www.linkbucks.com/AHvWU
+<br>【360密碼】：d803
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -88,8 +88,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVa91 （or） http://www.linkbucks.com/AHvWW
+<br>【360密碼】：89c5
 
 <br>【節目名稱】：貼身科技局
 <br>【節目頻道】：881
@@ -98,8 +98,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Daily i.t. bureau.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVa82 （or） http://www.linkbucks.com/AHvWq
+<br>【360密碼】：0bf1
 
 <br>【節目名稱】：大開選舉世界
 <br>【節目頻道】：881
@@ -108,8 +108,8 @@
 <br>【節目時間】：15:00 - 16:00
 <br>【檔案名稱】：The world election files.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVa6p （or） http://www.linkbucks.com/AHvXI
+<br>【360密碼】：c9a4
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -118,8 +118,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVetK （or） http://www.linkbucks.com/AHupQ
+<br>【360密碼】：27e0
 
 <br>【節目名稱】：細眉細眼調查科
 <br>【節目頻道】：881
@@ -128,8 +128,8 @@
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Trivial-vestigation.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVeyi （or） http://www.linkbucks.com/AHuo3
+<br>【360密碼】：6f14
 
 <br>【節目名稱】：都是我的流行曲
 <br>【節目頻道】：881
@@ -138,8 +138,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2016-08-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dVeuP （or） http://www.linkbucks.com/AHupK
+<br>【360密碼】：4c7c
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
