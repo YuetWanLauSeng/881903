@@ -140,7 +140,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-08-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
+<br>【360雲盤】：http://adf.ly/1dXJRU （or） http://www.linkbucks.com/AHZ1D
 <br>【360密碼】：e813
 <br>【百度雲盤】：http://adf.ly/1dX5wi （or） http://www.linkbucks.com/AHiqy
 <br>【百度密碼】：1g5a
@@ -156,7 +156,7 @@
 <br>【360密碼】：6b4d
 <br>【百度雲盤】：http://adf.ly/1dX5ue （or） http://www.linkbucks.com/AHiq2
 <br>【百度密碼】：qguh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dXGnj （or） http://www.linkbucks.com/AHaJw
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -179,8 +179,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dX5rk （or） http://www.linkbucks.com/AHirG
 <br>【360密碼】：b522
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dXGix （or） http://www.linkbucks.com/AHaKX
+<br>【百度密碼】：kd3a
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -191,8 +191,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dX5q3 （or） http://www.linkbucks.com/AHirY
 <br>【360密碼】：7baf
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dXGkM （or） http://www.linkbucks.com/AHaKN
+<br>【百度密碼】：b7bu
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -201,10 +201,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-08-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dXF3u （or） http://www.linkbucks.com/AHfJO
+<br>【360密碼】：5388
+<br>【百度雲盤】：http://adf.ly/1dXGY0 （or） http://www.linkbucks.com/AHaMO
+<br>【百度密碼】：hi61
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -213,10 +213,10 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-08-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dXF6I （or） http://www.linkbucks.com/AHfI2
+<br>【360密碼】：40ee
+<br>【百度雲盤】：http://adf.ly/1dXGam （or） http://www.linkbucks.com/AHaMF
+<br>【百度密碼】：fwrd
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -227,8 +227,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dXIOq （or） http://www.linkbucks.com/AHZ84
+<br>【百度密碼】：xncz
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -237,22 +237,22 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dXF53 （or） http://www.linkbucks.com/AHfJE
+<br>【360密碼】：ef0c
+<br>【百度雲盤】：http://adf.ly/1dXGgc （or） http://www.linkbucks.com/AHaLH
+<br>【百度密碼】：xkr6
 
-<br>【節目名稱】：書.情.歌
+<br>【節目名稱】：絕不放棄
 <br>【節目頻道】：881
 <br>【節目日期】：2016-08-29
-<br>【節目主持】：葉宇澄
+<br>【節目主持】：阮子健
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time.2016-08-29
+<br>【檔案名稱】：Never say Never.2016-08-29
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dXISI （or） http://www.linkbucks.com/AHZ49
+<br>【百度密碼】：9nmc
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -261,8 +261,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-08-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dXJOD （or） http://www.linkbucks.com/AHZ1h
+<br>【360密碼】：4c42
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
