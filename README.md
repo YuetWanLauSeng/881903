@@ -54,7 +54,7 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2016-08-29
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1dWfjZ （or） http://www.linkbucks.com/yiLy
+<br>【360雲盤】：http://adf.ly/1dWjhr （or） http://www.linkbucks.com/cJ7A
 <br>【360密碼】：adc1
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
