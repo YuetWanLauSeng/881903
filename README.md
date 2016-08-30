@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dYOU5 （or） http://www.linkbucks.com/AHdsO
 <br>【360密碼】：8000
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dYjim （or） http://www.linkbucks.com/AHbqj
+<br>【百度密碼】：ajwm
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -179,8 +179,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dYVjD （or） http://www.linkbucks.com/AHc6r
 <br>【360密碼】：5803
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dYjfR （or） http://www.linkbucks.com/AHbqs
+<br>【百度密碼】：uvm5
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -191,8 +191,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dYVfe （or） http://www.linkbucks.com/AHc63
 <br>【360密碼】：832e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dYjbm （or） http://www.linkbucks.com/AHbq2
+<br>【百度密碼】：yv84
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -201,8 +201,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYjUS （or） http://www.linkbucks.com/AHbrU
+<br>【360密碼】：7834
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -213,8 +213,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYjXX （or） http://www.linkbucks.com/AHbrH
+<br>【360密碼】：c6e7
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -237,8 +237,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYjmI （or） http://www.linkbucks.com/AHbqX
+<br>【360密碼】：6506
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
