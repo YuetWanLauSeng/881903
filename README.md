@@ -79,8 +79,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYEC3 （or） http://www.linkbucks.com/AHefl
+<br>【360密碼】：dada
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYEDg （or） http://www.linkbucks.com/AHefe
+<br>【360密碼】：6736
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -116,8 +116,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYEFM （or） http://www.linkbucks.com/AHefV
+<br>【360密碼】：f10d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -128,8 +128,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYEHC （or） http://www.linkbucks.com/AHefF
+<br>【360密碼】：9a0b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
