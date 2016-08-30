@@ -45,7 +45,7 @@
 <br>【360密碼】：7fd6
 <br>【百度雲盤】：http://adf.ly/1dYGzC （or） http://www.linkbucks.com/AHeSE
 <br>【百度密碼】：7f9q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dWlTb （or） http://www.linkbucks.com/AHc9H
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -58,7 +58,7 @@
 <br>【360密碼】：3b07
 <br>【百度雲盤】：http://adf.ly/1dYHD4 （or） http://www.linkbucks.com/AHeQy
 <br>【百度密碼】：8cta
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dWlcB （or） http://www.linkbucks.com/AHc9M
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【360密碼】：8b3c
 <br>【百度雲盤】：http://adf.ly/1dYHEJ （or） http://www.linkbucks.com/AHeQn
 <br>【百度密碼】：r2y3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dYUbK （or） http://www.linkbucks.com/AHc8l
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dYJ05 （or） http://www.linkbucks.com/AHeMD
 <br>【360密碼】：e126
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dYUUO （or） http://www.linkbucks.com/AHc8a
+<br>【百度密碼】：ce46
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -154,9 +154,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dYJHI （or） http://www.linkbucks.com/AHeLH
 <br>【360密碼】：5aba
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dYUYp （or） http://www.linkbucks.com/AHc8f
+<br>【百度密碼】：yyxx
+<br>【MediaFire】：http://adf.ly/1dXGnj （or） http://www.linkbucks.com/AHc9X
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -177,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYVjD （or） http://www.linkbucks.com/AHc6r
+<br>【360密碼】：5803
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -189,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dYVfe （or） http://www.linkbucks.com/AHc63
+<br>【360密碼】：832e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
