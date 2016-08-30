@@ -203,8 +203,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dYjUS （or） http://www.linkbucks.com/AHbrU
 <br>【360密碼】：7834
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dYm2U （or） http://www.linkbucks.com/AHbbf
+<br>【百度密碼】：2nyq
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -215,8 +215,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dYjXX （or） http://www.linkbucks.com/AHbrH
 <br>【360密碼】：c6e7
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dYmGR （or） http://www.linkbucks.com/AHbc9
+<br>【百度密碼】：fdzm
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,10 +225,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dYsna （or） http://www.linkbucks.com/AHazw
+<br>【360密碼】：ee98
+<br>【百度雲盤】：http://adf.ly/1dYsj9 （or） http://www.linkbucks.com/AHa0F
+<br>【百度密碼】：ygs2
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -239,20 +239,20 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dYjmI （or） http://www.linkbucks.com/AHbqX
 <br>【360密碼】：6506
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dYmNW （or） http://www.linkbucks.com/AHbPR
+<br>【百度密碼】：8gdg
 
-<br>【節目名稱】：書.情.歌
+<br>【節目名稱】：小朋友都熄
 <br>【節目頻道】：881
 <br>【節目日期】：2016-08-30
-<br>【節目主持】：葉宇澄
+<br>【節目主持】：黃永
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time.2016-08-30
+<br>【檔案名稱】：小朋友都熄.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dYsp3 （or） http://www.linkbucks.com/AHazm
+<br>【360密碼】：9c4f
+<br>【百度雲盤】：http://adf.ly/1dYslc （or） http://www.linkbucks.com/AHaz5
+<br>【百度密碼】：pymt
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
