@@ -263,9 +263,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dZSh1 （or） http://www.linkbucks.com/AH7f7
 <br>【360密碼】：6ce2
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dZTNX （or） http://www.linkbucks.com/AH7Pr
+<br>【百度密碼】：peh4
+<br>【MediaFire】：http://adf.ly/1dZUbf （or） http://www.linkbucks.com/AH68A
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -276,9 +276,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dZSiS （or） http://www.linkbucks.com/AH7fF
 <br>【360密碼】：2629
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dZTRU （or） http://www.linkbucks.com/AH7O5
+<br>【百度密碼】：56cx
+<br>【MediaFire】：http://adf.ly/1dZUaW （or） http://www.linkbucks.com/AH68I
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -289,8 +289,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dZSes （or） http://www.linkbucks.com/AH7gX
 <br>【360密碼】：6ada
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dZTP7 （or） http://www.linkbucks.com/AH7PH
+<br>【百度密碼】：mxut
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -301,8 +301,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dZSc9 （or） http://www.linkbucks.com/AH7g2
 <br>【360密碼】：8f28
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dZTTC （or） http://www.linkbucks.com/AH7Oa
+<br>【百度密碼】：pamb
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -313,5 +313,5 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dZSa3 （or） http://www.linkbucks.com/AH7he
 <br>【360密碼】：498d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dZTJR （or） http://www.linkbucks.com/AH7Qn
+<br>【百度密碼】：rvis
