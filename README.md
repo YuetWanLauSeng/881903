@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1daFST （or） http://www.linkbucks.com/AH0xa
 <br>【360密碼】：c675
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1daIr2 （or） http://www.linkbucks.com/AIORL
+<br>【百度密碼】：s149
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -154,9 +154,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1daFeE （or） http://www.linkbucks.com/AH0ph
 <br>【360密碼】：8627
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1daImy （or） http://www.linkbucks.com/AIORf
+<br>【百度密碼】：gygj
+<br>【MediaFire】：http://adf.ly/1dahXq （or） http://www.linkbucks.com/AIKpn
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -165,8 +165,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-08-31
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1daJfj （or） http://www.linkbucks.com/AIONF
+<br>【360密碼】：b678
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -177,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-08-31
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dai2m （or） http://www.linkbucks.com/AIKiD
+<br>【360密碼】：ea5b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -189,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：The Way Out of Poverty.2016-08-31
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dahgQ （or） http://www.linkbucks.com/AIKmm
+<br>【360密碼】：4505
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -201,8 +201,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-08-31
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dahbz （or） http://www.linkbucks.com/AIKog
+<br>【360密碼】：8d89
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -213,8 +213,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-08-31
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dahdi （or） http://www.linkbucks.com/AIKnU
+<br>【360密碼】：efb7
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -237,8 +237,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-08-31
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dahkP （or） http://www.linkbucks.com/AIKmS
+<br>【360密碼】：9711
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
