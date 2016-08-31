@@ -261,8 +261,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dZSh1 （or） http://www.linkbucks.com/AH7f7
+<br>【360密碼】：6ce2
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -274,8 +274,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dZSiS （or） http://www.linkbucks.com/AH7fF
+<br>【360密碼】：2629
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -287,8 +287,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dZSes （or） http://www.linkbucks.com/AH7gX
+<br>【360密碼】：6ada
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -299,8 +299,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dZSc9 （or） http://www.linkbucks.com/AH7g2
+<br>【360密碼】：8f28
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -311,7 +311,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-08-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dZSa3 （or） http://www.linkbucks.com/AH7he
+<br>【360密碼】：498d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
