@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dcIKb （or） http://www.linkbucks.com/AH2j3
 <br>【360密碼】：3f28
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dcMRo （or） http://www.linkbucks.com/AH2O6
+<br>【百度密碼】：x9h2
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -154,8 +154,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dcJ07 （or） http://www.linkbucks.com/AH2aU
 <br>【360密碼】：e927
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dcMQG （or） http://www.linkbucks.com/AH2O9
+<br>【百度密碼】：mxgv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dcHtz （or） http://www.linkbucks.com/AH2hf
 <br>【360密碼】：b1cb
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dcMMs （or） http://www.linkbucks.com/AH2PI
+<br>【百度密碼】：5n9g
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -177,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dcN8t （or） http://www.linkbucks.com/AH2HV
+<br>【360密碼】：8b09
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -189,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dcMYx （or） http://www.linkbucks.com/AH2Og
+<br>【360密碼】：1af6
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
