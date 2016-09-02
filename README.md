@@ -156,7 +156,7 @@
 <br>【360密碼】：485b
 <br>【百度雲盤】：http://adf.ly/1ddo1x （or） http://www.linkbucks.com/AH7w0
 <br>【百度密碼】：qaft
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1deI7N （or） http://www.linkbucks.com/AIEMX
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -201,8 +201,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1deIyR （or） http://www.linkbucks.com/AIEF7
+<br>【360密碼】：4c43
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1deJ3c （or） http://www.linkbucks.com/AIEFf
+<br>【360密碼】：3e98
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -237,17 +237,17 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1deJ13 （or） http://www.linkbucks.com/AIEFs
+<br>【360密碼】：55d5
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
-<br>【節目名稱】：書.情.歌
+<br>【節目名稱】：解困學貫中西
 <br>【節目頻道】：881
 <br>【節目日期】：2016-09-02
-<br>【節目主持】：葉宇澄
+<br>【節目主持】：黃永
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time.2016-09-02
+<br>【檔案名稱】：解困學貫中西.2016-09-02
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
@@ -261,8 +261,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1deJIn （or） http://www.linkbucks.com/AIEEN
+<br>【360密碼】：ccaa
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
