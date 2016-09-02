@@ -1,7 +1,3 @@
-
-本帖最後由 粵韻流聲 於 2016-9-2 06:42 PM 編輯
-
-
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2016-09-02
@@ -171,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ddpD5 （or） http://www.linkbucks.com/AH7i5
 <br>【360密碼】：736e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ddu3j （or） http://www.linkbucks.com/AH6yb
+<br>【百度密碼】：7tj2
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -181,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1de3IZ （or） http://www.linkbucks.com/AH5y4
+<br>【360密碼】：dfe7
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -193,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1de36U （or） http://www.linkbucks.com/AH50B
+<br>【360密碼】：fab9
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -217,8 +213,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1de38v （or） http://www.linkbucks.com/AH5zy
+<br>【360密碼】：38f2
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
