@@ -1,3 +1,7 @@
+
+本帖最後由 粵韻流聲 於 2016-9-2 06:42 PM 編輯
+
+
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2016-09-02
@@ -81,8 +85,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ddf17 （or） http://www.linkbucks.com/AH8jC
 <br>【360密碼】：af89
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ddnqr （or） http://www.linkbucks.com/AH7x7
+<br>【百度密碼】：35qh
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,8 +110,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ddeyv （or） http://www.linkbucks.com/AH8jT
 <br>【360密碼】：75d4
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ddnsb （or） http://www.linkbucks.com/AH7x1
+<br>【百度密碼】：6iyb
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -118,8 +122,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ddf3s （or） http://www.linkbucks.com/AH8i5
 <br>【360密碼】：9c37
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ddnuq （or） http://www.linkbucks.com/AH7xv
+<br>【百度密碼】：36k2
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -130,8 +134,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ddfHN （or） http://www.linkbucks.com/AH8hu
 <br>【360密碼】：2ff3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ddnpG （or） http://www.linkbucks.com/AH7yE
+<br>【百度密碼】：rg61
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -142,8 +146,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ddmZv （or） http://www.linkbucks.com/AH73c
 <br>【360密碼】：ed46
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ddnnI （or） http://www.linkbucks.com/AH7yj
+<br>【百度密碼】：qejh
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -154,8 +158,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ddnNE （or） http://www.linkbucks.com/AH70F
 <br>【360密碼】：485b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ddo1x （or） http://www.linkbucks.com/AH7w0
+<br>【百度密碼】：qaft
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -165,8 +169,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ddpD5 （or） http://www.linkbucks.com/AH7i5
+<br>【360密碼】：736e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
