@@ -249,8 +249,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：解困學貫中西.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1df6Pu （or） http://www.linkbucks.com/AISy2
+<br>【360密碼】：3877
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -287,8 +287,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1df6O3 （or） http://www.linkbucks.com/AISy8
+<br>【360密碼】：e0fe
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -299,8 +299,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1df6ND （or） http://www.linkbucks.com/AISNH
+<br>【360密碼】：1a70
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -311,7 +311,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1df6M5 （or） http://www.linkbucks.com/AISNh
+<br>【360密碼】：87e8
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
