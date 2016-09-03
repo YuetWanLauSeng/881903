@@ -95,8 +95,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-09-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dflOS （or） http://www.linkbucks.com/AIGTe
+<br>【360密碼】：6ee9
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -105,8 +105,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-09-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dflqR （or） http://www.linkbucks.com/AIGYG
+<br>【360密碼】：7227
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
