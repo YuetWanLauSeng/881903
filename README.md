@@ -155,8 +155,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-09-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dfrS5 （or） http://www.linkbucks.com/AIFrq
+<br>【360密碼】：f06e
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
