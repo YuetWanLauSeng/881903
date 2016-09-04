@@ -178,8 +178,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-09-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgTdv （or） http://www.linkbucks.com/AILcL
+<br>【360密碼】：1254
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -188,17 +188,17 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-09-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgTg4 （or） http://www.linkbucks.com/AILbm
+<br>【360密碼】：ac46
 
-<br>【節目名稱】：881一切從音樂開始
-<br>【節目頻道】：& 903
+<br>【節目名稱】：一切從音樂開始
+<br>【節目頻道】：881 & 903
 <br>【節目日期】：2016-09-03
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgTf3 （or） http://www.linkbucks.com/AILb4
+<br>【360密碼】：6a8f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
