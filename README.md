@@ -128,8 +128,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dh510 （or） http://www.linkbucks.com/AIQ6z
+<br>【360密碼】：eee2
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -138,10 +138,10 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dh5CC （or） http://www.linkbucks.com/AIQbn
+<br>【360密碼】：fec5
+<br>【百度雲盤】：http://adf.ly/1dh5Hq （or） http://www.linkbucks.com/AIQbG
+<br>【百度密碼】：1b75
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -150,10 +150,10 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dh5FJ （or） http://www.linkbucks.com/AIQbM
+<br>【360密碼】：003d
+<br>【百度雲盤】：http://adf.ly/1dh5ar （or） http://www.linkbucks.com/AIQLG
+<br>【百度密碼】：fs1j
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
