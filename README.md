@@ -45,8 +45,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Road Co-op.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgiLW （or） http://www.linkbucks.com/AII6o
+<br>【360密碼】：c2b2
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：The Way We Are.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgiPb （or） http://www.linkbucks.com/AII7F
+<br>【360密碼】：c0bd
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -65,8 +65,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgiND （or） http://www.linkbucks.com/AII6w
+<br>【360密碼】：aa37
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
