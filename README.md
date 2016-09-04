@@ -67,9 +67,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dgiND （or） http://www.linkbucks.com/AII6w
 <br>【360密碼】：aa37
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dgmpg （or） http://www.linkbucks.com/AIIzq
+<br>【百度密碼】：hrna
+<br>【MediaFire】：http://adf.ly/1dgmsk （or） http://www.linkbucks.com/AIIzN
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -78,8 +78,8 @@
 <br>【節目時間】：12:30 - 14:00
 <br>【檔案名稱】：Movies.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgoMU （or） http://www.linkbucks.com/AIUAh
+<br>【360密碼】：6f04
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -88,8 +88,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgoLG （or） http://www.linkbucks.com/AIUBF
+<br>【360密碼】：f407
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
