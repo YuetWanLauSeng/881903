@@ -192,10 +192,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dhLZI （or） http://www.linkbucks.com/AG7e9
+<br>【360密碼】：808f
+<br>【百度雲盤】：http://adf.ly/1dhM5e （or） http://www.linkbucks.com/AFK9T
+<br>【百度密碼】：wfa3
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -204,8 +204,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dhLWg （or） http://www.linkbucks.com/AH1tK
+<br>【360密碼】：f4ea
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -214,10 +214,10 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dhLhH （or） http://www.linkbucks.com/AFc1J
+<br>【360密碼】：b0ec
+<br>【百度雲盤】：http://adf.ly/1dhM7Z （or） http://www.linkbucks.com/AFJJ8
+<br>【百度密碼】：p6yx
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
