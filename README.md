@@ -118,8 +118,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-09-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dgvrv （or） http://www.linkbucks.com/AISGm
+<br>【360密碼】：910b
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
