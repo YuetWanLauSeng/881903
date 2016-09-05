@@ -79,8 +79,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-09-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1diTle （or） http://www.linkbucks.com/AIXwP
+<br>【360密碼】：f449
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -91,11 +91,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2016-09-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【情況說明】：因播出『新聞專輯』，本期『十八樓C座』暫停
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -104,8 +100,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-09-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1diTnB （or） http://www.linkbucks.com/AIXu6
+<br>【360密碼】：a9e9
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -116,8 +112,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-09-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1diTjZ （or） http://www.linkbucks.com/AIXxv
+<br>【360密碼】：760e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -128,8 +124,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-09-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1diTpp （or） http://www.linkbucks.com/AIXt8
+<br>【360密碼】：86e5
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
