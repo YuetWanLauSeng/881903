@@ -161,8 +161,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dihFD （or） http://www.linkbucks.com/AIVqX
+<br>【360密碼】：56e8
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
