@@ -45,7 +45,7 @@
 <br>【360密碼】：4fa1
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1diU0Z （or） http://www.linkbucks.com/AIXoG
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -58,7 +58,7 @@
 <br>【360密碼】：6166
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1diWy3 （or） http://www.linkbucks.com/AIW4V
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -136,8 +136,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-09-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1diXyp （or） http://www.linkbucks.com/AIWpq
+<br>【360密碼】：bac6
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1diYBJ （or） http://www.linkbucks.com/AIWn8
+<br>【360密碼】：d4af
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
