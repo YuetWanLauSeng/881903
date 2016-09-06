@@ -201,8 +201,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dkyRL （or） http://www.linkbucks.com/AIWwp
+<br>【360密碼】：2f78
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -213,8 +213,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dkybg （or） http://www.linkbucks.com/AIWwP
+<br>【360密碼】：031a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
