@@ -237,10 +237,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-09-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dl5bN （or） http://www.linkbucks.com/AIVIM
+<br>【360密碼】：65a2
+<br>【百度雲盤】：http://adf.ly/1dl5eE （or） http://www.linkbucks.com/AIVIE
+<br>【百度密碼】：6dbf
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
