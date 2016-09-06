@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dlEpg （or） http://www.linkbucks.com/xH0
+<br>【360密碼】：e816
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -258,10 +258,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：小朋友都熄.2016-09-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dlEso （or） http://www.linkbucks.com/AIqpG
+<br>【360密碼】：ad7c
+<br>【百度雲盤】：http://adf.ly/1dlGDS （or） http://www.linkbucks.com/AIqeR
+<br>【百度密碼】：btk9
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -270,10 +270,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dlFW9 （or） http://www.linkbucks.com/AIqkH
+<br>【360密碼】：4504
+<br>【百度雲盤】：http://adf.ly/1dlGAy （or） http://www.linkbucks.com/AIqe8
+<br>【百度密碼】：h5qp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
