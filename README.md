@@ -227,8 +227,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dlEpg （or） http://www.linkbucks.com/xH0
 <br>【360密碼】：e816
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dlvXq （or） http://www.linkbucks.com/AIfM4
+<br>【百度密碼】：grvg
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -274,7 +274,7 @@
 <br>【360密碼】：4504
 <br>【百度雲盤】：http://adf.ly/1dlGAy （or） http://www.linkbucks.com/AIqe8
 <br>【百度密碼】：h5qp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dlvTA （or） http://www.linkbucks.com/AIfOr
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -320,7 +320,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dlvUX （or） http://www.linkbucks.com/AIfN2
+<br>【360密碼】：d6d3
+<br>【百度雲盤】：http://adf.ly/1dlvVw （or） http://www.linkbucks.com/AIfNL
+<br>【百度密碼】：f4b6
