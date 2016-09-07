@@ -79,8 +79,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dmtwf （or） http://www.linkbucks.com/AIZVJ
+<br>【360密碼】：ee36
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dmth5 （or） http://www.linkbucks.com/AIZVp
+<br>【360密碼】：2e52
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -116,8 +116,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dmtlZ （or） http://www.linkbucks.com/AIZVj
+<br>【360密碼】：db51
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -128,8 +128,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dmtV5 （or） http://www.linkbucks.com/AIZXB
+<br>【360密碼】：3a92
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -177,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dmtQa （or） http://www.linkbucks.com/AIZXR
+<br>【360密碼】：a01b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,8 +198,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dmtdG （or） http://www.linkbucks.com/AIZWV
+<br>【360密碼】：c994
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -219,8 +219,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dmvSZ （or） http://www.linkbucks.com/AIZIb
+<br>【360密碼】：9416
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -249,8 +249,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dmvY1 （or） http://www.linkbucks.com/AIZH8
+<br>【360密碼】：83d3
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
