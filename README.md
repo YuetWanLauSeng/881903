@@ -45,7 +45,7 @@
 <br>【360密碼】：2f87
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dmyVB （or） http://www.linkbucks.com/AIYrh
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -58,7 +58,7 @@
 <br>【360密碼】：66b0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dmyPK （or） http://www.linkbucks.com/AIYsB
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【360密碼】：e303
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dmySx （or） http://www.linkbucks.com/AIYrk
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -156,7 +156,7 @@
 <br>【360密碼】：e73d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dmy6q （or） http://www.linkbucks.com/AIYtn
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -253,7 +253,7 @@
 <br>【360密碼】：83d3
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dmyQy （or） http://www.linkbucks.com/AIYr5
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
