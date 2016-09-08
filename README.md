@@ -45,7 +45,7 @@
 <br>【360密碼】：fb72
 <br>【百度雲盤】：http://adf.ly/1dnljF （or） http://www.linkbucks.com/AId1b
 <br>【百度密碼】：syf4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dnnim （or） http://www.linkbucks.com/AIdiB
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -58,7 +58,7 @@
 <br>【360密碼】：78f9
 <br>【百度雲盤】：http://adf.ly/1dnmMP （or） http://www.linkbucks.com/AIdxt
 <br>【百度密碼】：pdy2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dnnh5 （or） http://www.linkbucks.com/AIdiU
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【360密碼】：b2d3
 <br>【百度雲盤】：http://adf.ly/1dnmvC （or） http://www.linkbucks.com/AIdsn
 <br>【百度密碼】：7ptn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dnnkv （or） http://www.linkbucks.com/AIdhr
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
