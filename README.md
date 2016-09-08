@@ -262,8 +262,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dnUTY （or） http://www.linkbucks.com/AIghT
+<br>【360密碼】：5e1d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -275,8 +275,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dnUSI （or） http://www.linkbucks.com/AIghZ
+<br>【360密碼】：922e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -287,8 +287,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dnUMW （or） http://www.linkbucks.com/AIgh1
+<br>【360密碼】：b4d7
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -299,7 +299,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dnUOO （or） http://www.linkbucks.com/AIghp
+<br>【360密碼】：ddfd
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
