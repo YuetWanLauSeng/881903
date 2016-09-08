@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dns1y （or） http://www.linkbucks.com/AIdFl
 <br>【360密碼】：ae18
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1do0pP （or） http://www.linkbucks.com/AIceS
+<br>【百度密碼】：farv
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -154,9 +154,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dnsPD （or） http://www.linkbucks.com/AIdCw
 <br>【360密碼】：ab11
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1do0n8 （or） http://www.linkbucks.com/AIce1
+<br>【百度密碼】：aqd2
+<br>【MediaFire】：http://adf.ly/1do0uc （or） http://www.linkbucks.com/AIcd3
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
