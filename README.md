@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dnyG4 （or） http://www.linkbucks.com/AIcoC
 <br>【360密碼】：4456
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1do8SY （or） http://www.linkbucks.com/AIoH0
+<br>【百度密碼】：gf7b
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -177,10 +177,10 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1do8ID （or） http://www.linkbucks.com/AIoIP
+<br>【360密碼】：20a8
+<br>【百度雲盤】：http://adf.ly/1do8OJ （or） http://www.linkbucks.com/AIoIB
+<br>【百度密碼】：7kzr
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -189,10 +189,10 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1do8Gf （or） http://www.linkbucks.com/AIoGL
+<br>【360密碼】：4153
+<br>【百度雲盤】：http://adf.ly/1do8QI （or） http://www.linkbucks.com/AIoH8
+<br>【百度密碼】：6qzj
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -201,10 +201,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1do8K6 （or） http://www.linkbucks.com/AIoIJ
+<br>【360密碼】：552f
+<br>【百度雲盤】：http://adf.ly/1do97K （or） http://www.linkbucks.com/AIoF1
+<br>【百度密碼】：3ycn
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -213,10 +213,10 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1do8Lp （or） http://www.linkbucks.com/AIoID
+<br>【360密碼】：2b7d
+<br>【百度雲盤】：http://adf.ly/1do8zb （or） http://www.linkbucks.com/AIoGT
+<br>【百度密碼】：dc26
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
