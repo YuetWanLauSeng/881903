@@ -258,10 +258,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：解困學貫中西.2016-09-09
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dpuD0 （or） http://www.linkbucks.com/AIrbU
+<br>【360密碼】：9bd7
+<br>【百度雲盤】：http://adf.ly/1dpuNZ （or） http://www.linkbucks.com/AIpyS
+<br>【百度密碼】：2tst
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -270,10 +270,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-09
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dpuEN （or） http://www.linkbucks.com/AIrbK
+<br>【360密碼】：f2eb
+<br>【百度雲盤】：http://adf.ly/1dpuZG （or） http://www.linkbucks.com/AIpPQ
+<br>【百度密碼】：dndi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
