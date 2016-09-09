@@ -156,7 +156,7 @@
 <br>【360密碼】：79c7
 <br>【百度雲盤】：http://adf.ly/1dpeZx （or） http://www.linkbucks.com/AItPW
 <br>【百度密碼】：6es2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dplvr （or） http://www.linkbucks.com/AIsn8
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -179,8 +179,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dpePz （or） http://www.linkbucks.com/AItQP
 <br>【360密碼】：d64c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dplyB （or） http://www.linkbucks.com/AIsnw
+<br>【百度密碼】：f1dp
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -191,8 +191,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dpeNf （or） http://www.linkbucks.com/AItQf
 <br>【360密碼】：6827
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dpm2b （or） http://www.linkbucks.com/AIsnh
+<br>【百度密碼】：u3k6
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -203,8 +203,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dpeU0 （or） http://www.linkbucks.com/AItPs
 <br>【360密碼】：920d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dpm08 （or） http://www.linkbucks.com/AIsnq
+<br>【百度密碼】：wwjg
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -215,8 +215,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dpekC （or） http://www.linkbucks.com/AItOw
 <br>【360密碼】：f170
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dpm4i （or） http://www.linkbucks.com/AIsnX
+<br>【百度密碼】：qgir
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -237,10 +237,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-09-09
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dplqu （or） http://www.linkbucks.com/AIsog
+<br>【360密碼】：52b7
+<br>【百度雲盤】：http://adf.ly/1dpmDL （or） http://www.linkbucks.com/AIsmo
+<br>【百度密碼】：8dbx
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
