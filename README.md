@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dpLVF （or） http://www.linkbucks.com/AIvJa
 <br>【360密碼】：1cd3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dpeWc （or） http://www.linkbucks.com/AItPf
+<br>【百度密碼】：7767
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -154,8 +154,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dpLWc （or） http://www.linkbucks.com/AIvJM
 <br>【360密碼】：79c7
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dpeZx （or） http://www.linkbucks.com/AItPW
+<br>【百度密碼】：6es2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dpULO （or） http://www.linkbucks.com/AIuRk
 <br>【360密碼】：d235
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dpecT （or） http://www.linkbucks.com/AItPI
+<br>【百度密碼】：nwye
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -177,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-09
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dpePz （or） http://www.linkbucks.com/AItQP
+<br>【360密碼】：d64c
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -189,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-09
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dpeNf （or） http://www.linkbucks.com/AItQf
+<br>【360密碼】：6827
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -201,8 +201,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-09
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dpeU0 （or） http://www.linkbucks.com/AItPs
+<br>【360密碼】：920d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -213,8 +213,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-09
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dpekC （or） http://www.linkbucks.com/AItOw
+<br>【360密碼】：f170
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -248,6 +248,15 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-09-09
+<br>【檔案音質】：高清
+<br>【節目暫停】：因播出『解困學貫中西』，本期節目暫停
+
+<br>【節目名稱】：解困學貫中西
+<br>【節目頻道】：881
+<br>【節目日期】：2016-09-09
+<br>【節目主持】：黃永
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：解困學貫中西.2016-09-09
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
