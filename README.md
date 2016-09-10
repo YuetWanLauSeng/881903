@@ -105,8 +105,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-09-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dqy3a （or） http://www.linkbucks.com/AI4EX
+<br>【360密碼】：d9ac
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -115,8 +115,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-09-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dqy5R （or） http://www.linkbucks.com/AI4EU
+<br>【360密碼】：f82d
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
