@@ -125,8 +125,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-09-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dr3gd （or） http://www.linkbucks.com/AI2Pv
+<br>【360密碼】：ac0f
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -135,8 +135,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-09-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dr3el （or） http://www.linkbucks.com/AI2RR
+<br>【360密碼】：7d64
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
