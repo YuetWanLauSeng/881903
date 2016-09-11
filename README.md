@@ -185,8 +185,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-09-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ds8Gh （or） http://www.linkbucks.com/AJCUH
+<br>【360密碼】：f686
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
@@ -197,8 +197,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ds6ul （or） http://www.linkbucks.com/AJCpG
 <br>【360密碼】：e1b5
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ds8N4 （or） http://www.linkbucks.com/AJCTI
+<br>【百度密碼】：kcdu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
@@ -208,8 +208,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-09-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ds8Tu （or） http://www.linkbucks.com/AJCSB
+<br>【360密碼】：43b0
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -218,8 +218,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-09-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ds8s9 （or） http://www.linkbucks.com/AJCPL
+<br>【360密碼】：d591
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
