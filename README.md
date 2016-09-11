@@ -115,8 +115,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dsZoT （or） http://www.linkbucks.com/AI3mi
+<br>【360密碼】：796f
 
 <br>【節目名稱】：細眉細眼調查科
 <br>【節目頻道】：881
