@@ -67,9 +67,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dsGu8 （or） http://www.linkbucks.com/AJQ3L
 <br>【360密碼】：0de9
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dsKpA （or） http://www.linkbucks.com/AJOk4
+<br>【百度密碼】：ugjg
+<br>【MediaFire】：http://adf.ly/1dsKqa （or） http://www.linkbucks.com/AJOks
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
