@@ -143,8 +143,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dsfvH （or） http://www.linkbucks.com/AI2aP
+<br>【360密碼】：18ab
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -153,8 +153,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dsg4T （or） http://www.linkbucks.com/AI2ZW
+<br>【360密碼】：19a3
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
