@@ -87,8 +87,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dsRwE （or） http://www.linkbucks.com/AI6P3
+<br>【360密碼】：b6c1
 
 <br>【節目名稱】：貼身科技局
 <br>【節目頻道】：881
