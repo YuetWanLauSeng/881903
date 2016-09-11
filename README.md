@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dsg4T （or） http://www.linkbucks.com/AI2ZW
 <br>【360密碼】：19a3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dt4Q7 （or） http://www.linkbucks.com/aYoj
+<br>【百度密碼】：8fu1
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dsiJn （or） http://www.linkbucks.com/AI15l
 <br>【360密碼】：7ae5
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dt4T7 （or） http://www.linkbucks.com/WgBf
+<br>【百度密碼】：imm6
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -177,8 +177,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dt4LM （or） http://www.linkbucks.com/artb
+<br>【360密碼】：ecb0
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -187,8 +187,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dt4Jk （or） http://www.linkbucks.com/azEu
+<br>【360密碼】：6c3a
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -197,8 +197,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dt4HP （or） http://www.linkbucks.com/a1jX
+<br>【360密碼】：c808
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -207,10 +207,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dt4Ce （or） http://www.linkbucks.com/a1jq
+<br>【360密碼】：2cc0
+<br>【百度雲盤】：http://adf.ly/1dt6Xt （or） http://www.linkbucks.com/AJLbT
+<br>【百度密碼】：upwt
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -219,8 +219,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dt4F8 （or） http://www.linkbucks.com/a1jm
+<br>【360密碼】：73fb
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -229,10 +229,10 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1dt4AQ （or） http://www.linkbucks.com/a5vk
+<br>【360密碼】：d715
+<br>【百度雲盤】：http://adf.ly/1dt4Nj （or） http://www.linkbucks.com/aeTH
+<br>【百度密碼】：caer
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
