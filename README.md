@@ -165,8 +165,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-09-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dsiJn （or） http://www.linkbucks.com/AI15l
+<br>【360密碼】：7ae5
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
