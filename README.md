@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvURu （or） http://www.linkbucks.com/AI4t2
 <br>【360密碼】：7921
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvuB9 （or） http://www.linkbucks.com/AEt3
+<br>【百度密碼】：cimq
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvUW8 （or） http://www.linkbucks.com/AI4tG
 <br>【360密碼】：71e8
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvu94 （or） http://www.linkbucks.com/KqT8
+<br>【百度密碼】：vags
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvUSy （or） http://www.linkbucks.com/AI4tu
 <br>【360密碼】：b44b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvuLX （or） http://www.linkbucks.com/AJHCS
+<br>【百度密碼】：zqkc
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvUV5 （or） http://www.linkbucks.com/AI4tQ
 <br>【360密碼】：2bc6
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvuCu （or） http://www.linkbucks.com/AJHDH
+<br>【百度密碼】：qsha
 <br>【MediaFire】：http://adf.ly/1dvUtk （or） http://www.linkbucks.com/AI4ou
 
 <br>【節目名稱】：鈺成千里目
@@ -56,8 +56,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvUU4 （or） http://www.linkbucks.com/AI4tc
 <br>【360密碼】：76a1
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvuGt （or） http://www.linkbucks.com/AJHCs
+<br>【百度密碼】：tc46
 <br>【MediaFire】：http://adf.ly/1dvUuK （or） http://www.linkbucks.com/AI4on
 
 <br>【節目名稱】：早霸王
@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvUPg （or） http://www.linkbucks.com/AI4uE
 <br>【360密碼】：de41
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvuF6 （or） http://www.linkbucks.com/AJHCy
+<br>【百度密碼】：7ab1
 <br>【MediaFire】：http://adf.ly/1dvUlE （or） http://www.linkbucks.com/AI4pS
 
 <br>【節目名稱】：1圈圈
@@ -82,8 +82,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvUQm （or） http://www.linkbucks.com/AI4t9
 <br>【360密碼】：538f
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvuJE （or） http://www.linkbucks.com/AJHCc
+<br>【百度密碼】：511m
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -106,8 +106,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvUX4 （or） http://www.linkbucks.com/AI4s0
 <br>【360密碼】：50c7
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvu6X （or） http://www.linkbucks.com/Kygl
+<br>【百度密碼】：ms9s
 <br>【MediaFire】：http://adf.ly/1dvUdY （or） http://www.linkbucks.com/AI4rB
 
 <br>【節目名稱】：一點叮一叮
@@ -131,8 +131,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvtW1 （or） http://www.linkbucks.com/UD2g
 <br>【360密碼】：d499
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvu13 （or） http://www.linkbucks.com/Kygr
+<br>【百度密碼】：2rqc
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dviEq （or） http://www.linkbucks.com/AJRL1
 <br>【360密碼】：804d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvtwv （or） http://www.linkbucks.com/UD1K
+<br>【百度密碼】：jpp6
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -180,8 +180,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dvpXO （or） http://www.linkbucks.com/AJMKR
 <br>【360密碼】：bbb8
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dvu3w （or） http://www.linkbucks.com/Kygo
+<br>【百度密碼】：cz3h
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
