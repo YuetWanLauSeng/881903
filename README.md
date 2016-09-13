@@ -190,8 +190,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dvzTl （or） http://www.linkbucks.com/AJGaV
+<br>【360密碼】：610c
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -202,8 +202,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dvykk （or） http://www.linkbucks.com/AJGeW
+<br>【360密碼】：8a74
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -214,8 +214,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dvyir （or） http://www.linkbucks.com/AJGe1
+<br>【360密碼】：e48a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -226,8 +226,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dvzJB （or） http://www.linkbucks.com/AJGbI
+<br>【360密碼】：7b2f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
