@@ -117,8 +117,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-09-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dvtSU （or） http://www.linkbucks.com/UD2k
+<br>【360密碼】：5273
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -129,8 +129,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-09-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dvtW1 （or） http://www.linkbucks.com/UD2g
+<br>【360密碼】：d499
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -141,10 +141,10 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-09-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dvtPF （or） http://www.linkbucks.com/UD2q
+<br>【360密碼】：f27e
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】： 
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
