@@ -45,7 +45,7 @@
 <br>【360密碼】：f4d9
 <br>【百度雲盤】：http://adf.ly/1dx52b （or） http://www.linkbucks.com/AJJnY
 <br>【百度密碼】：xjrh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dDHC0 （or） http://www.linkbucks.com/AJJi8
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -71,7 +71,7 @@
 <br>【360密碼】：2ee3
 <br>【百度雲盤】：http://adf.ly/1dx5LK （or） http://www.linkbucks.com/AJJmj
 <br>【百度密碼】：ssqr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dDHE0 （or） http://www.linkbucks.com/AJJjK
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dx5ji （or） http://www.linkbucks.com/AJJlL
 <br>【360密碼】：8269
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1dx83a （or） http://www.linkbucks.com/AJJbL
+<br>【百度密碼】：3pqk
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -167,9 +167,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1dx64w （or） http://www.linkbucks.com/AJJkZ
 <br>【360密碼】：e9ff
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1dx8N3 （or） http://www.linkbucks.com/AJJaS
+<br>【百度密碼】：gj24
+<br>【MediaFire】：http://adf.ly/1dx8h3 （or） http://www.linkbucks.com/AJJXu
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -178,8 +178,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-14
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dx9Hy （or） http://www.linkbucks.com/AJJN1
+<br>【360密碼】：051b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
