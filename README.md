@@ -54,8 +54,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Jasper’s POV.2016-09-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dyHNS （or） http://www.linkbucks.com/AJb0g
+<br>【360密碼】：d572
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
