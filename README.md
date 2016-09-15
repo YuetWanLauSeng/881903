@@ -262,8 +262,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-09-14
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dy3qL （or） http://www.linkbucks.com/ACfcc
+<br>【360密碼】：e084
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -278,7 +278,7 @@
 <br>【360密碼】：af1c
 <br>【百度雲盤】：http://adf.ly/1dxbVi （or） http://www.linkbucks.com/AJOSp
 <br>【百度密碼】：h9gq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dy3xX （or） http://www.linkbucks.com/AB8YA
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -291,7 +291,7 @@
 <br>【360密碼】：ccac
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dy3wr （or） http://www.linkbucks.com/AB9ad
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -300,8 +300,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-14
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dy3re （or） http://www.linkbucks.com/ACYiX
+<br>【360密碼】：f8ee
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -312,8 +312,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-09-14
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dy3st （or） http://www.linkbucks.com/ACXKg
+<br>【360密碼】：2975
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -324,7 +324,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-14
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1dy3u7 （or） http://www.linkbucks.com/ACSyl
+<br>【360密碼】：d46d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
