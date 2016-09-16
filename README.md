@@ -45,7 +45,7 @@
 <br>【360密碼】：b607
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dzhTp （or） http://www.linkbucks.com/AJd0g
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -58,7 +58,7 @@
 <br>【360密碼】：8354
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dzhUS （or） http://www.linkbucks.com/AJd0U
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -71,7 +71,7 @@
 <br>【360密碼】：6262
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dzhT6 （or） http://www.linkbucks.com/AJd1T
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -108,7 +108,7 @@
 <br>【360密碼】：9d76
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1dzhVo （or） http://www.linkbucks.com/AJd0G
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -326,5 +326,4 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤
