@@ -105,8 +105,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-09-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e1Wa4 （or） http://www.linkbucks.com/AJb5b
+<br>【360密碼】：31b2
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -115,8 +115,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-09-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e1WXm （or） http://www.linkbucks.com/AJb5t
+<br>【360密碼】：9442
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -125,8 +125,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-09-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e1WVk （or） http://www.linkbucks.com/AJcBP
+<br>【360密碼】：fa36
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -135,8 +135,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-09-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e1WTm （or） http://www.linkbucks.com/AJcBZ
+<br>【360密碼】：a9db
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
