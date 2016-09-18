@@ -67,9 +67,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1e2mGu （or） http://www.linkbucks.com/AJxFH
 <br>【360密碼】：7832
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1e2qeo （or） http://www.linkbucks.com/AJvER
+<br>【百度密碼】：vphz
+<br>【MediaFire】：http://adf.ly/1e2qmD （or） http://www.linkbucks.com/AJu6e
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -78,8 +78,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e2qbu （or） http://www.linkbucks.com/AJvEk
+<br>【360密碼】：89d1
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -215,7 +215,7 @@
 <br>【節目主持】：主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-09-18
-<br>【檔案音質】：高清
+<br>【檔案音質】：高清        
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
 
@@ -230,4 +230,3 @@
 <br>【360密碼】：
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-
