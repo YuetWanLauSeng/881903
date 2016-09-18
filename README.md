@@ -88,8 +88,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3Anc （or） http://www.linkbucks.com/AJmaf
+<br>【360密碼】：8b6a
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -98,8 +98,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3Axj （or） http://www.linkbucks.com/AJmY0
+<br>【360密碼】：cef8
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -108,8 +108,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3AqO （or） http://www.linkbucks.com/AJmaC
+<br>【360密碼】：8b23
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -120,8 +120,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3BS7 （or） http://www.linkbucks.com/AJmSA
+<br>【360密碼】：2955
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
