@@ -110,8 +110,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1e3AqO （or） http://www.linkbucks.com/AJmaC
 <br>【360密碼】：8b23
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1e3ViF （or） http://www.linkbucks.com/unTx
+<br>【百度密碼】：92pa
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -122,8 +122,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1e3BS7 （or） http://www.linkbucks.com/AJmSA
 <br>【360密碼】：2955
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1e3Vmo （or） http://www.linkbucks.com/uRbl
+<br>【百度密碼】：6gwp
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -162,8 +162,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3bY3 （or） http://www.linkbucks.com/AJpZU
+<br>【360密碼】：add8
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,8 +174,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3bUD （or） http://www.linkbucks.com/AJpZc
+<br>【360密碼】：cf8e
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -184,8 +184,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3bog （or） http://www.linkbucks.com/AJpfv
+<br>【360密碼】：80cd
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
