@@ -132,8 +132,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3U98 （or） http://www.linkbucks.com/0sKm
+<br>【360密碼】：ff5d
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -142,8 +142,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3Twh （or） http://www.linkbucks.com/3QLD
+<br>【360密碼】：615b
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -152,8 +152,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-09-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1e3U6h （or） http://www.linkbucks.com/0sLK
+<br>【360密碼】：bc72
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
