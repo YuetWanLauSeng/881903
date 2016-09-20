@@ -221,6 +221,7 @@
 <br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e7MkL （or） http://www.linkbucks.com/AKEJP
 <br>【百度密碼】：ybv6
+<br>【MediaFire】：http://adf.ly/1e7SFr （or） http://www.linkbucks.com/AKCTI
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -229,8 +230,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -241,10 +241,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
+<br>【百度雲盤】：http://adf.ly/1e7RqP （or） http://www.linkbucks.com/AKCcG
+<br>【百度密碼】：2uqn
+<br>【MediaFire】：http://adf.ly/1e7SBs （or） http://www.linkbucks.com/AKCTV
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
