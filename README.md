@@ -152,6 +152,7 @@
 <br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e6yKl （or） http://www.linkbucks.com/AKI3P
 <br>【百度密碼】：u62h
+<br>【MediaFire】：http://adf.ly/1e77pe （or） http://www.linkbucks.com/AKHUk
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -175,6 +176,7 @@
 <br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e73Ur （or） http://www.linkbucks.com/AKILK
 <br>【百度密碼】：8uh7
+<br>【MediaFire】：http://adf.ly/1e76gO （or） http://www.linkbucks.com/AKHi0
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -183,10 +185,9 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
+<br>【百度雲盤】：http://adf.ly/1e7DQU （or） http://www.linkbucks.com/AKGJz
+<br>【百度密碼】：sqff
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
