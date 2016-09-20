@@ -92,7 +92,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e6ssc （or） http://www.linkbucks.com/AKJdE
 <br>【百度密碼】：j6i5
 
@@ -116,7 +116,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e6suX （or） http://www.linkbucks.com/AKJbx
 <br>【百度密碼】：g4se
 
@@ -127,7 +127,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e6stg （or） http://www.linkbucks.com/AKJcb
 <br>【百度密碼】：yx2u
 
@@ -138,7 +138,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e6srL （or） http://www.linkbucks.com/AKJdN
 <br>【百度密碼】：e2rp
 
@@ -149,7 +149,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e6yKl （or） http://www.linkbucks.com/AKI3P
 <br>【百度密碼】：u62h
 <br>【MediaFire】：http://adf.ly/1e77pe （or） http://www.linkbucks.com/AKHUk
@@ -161,7 +161,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e6yRA （or） http://www.linkbucks.com/AKI3O
 <br>【百度密碼】：kkxd
 <br>【MediaFire】：http://adf.ly/1e73dw （or） http://www.linkbucks.com/AKIKm
@@ -173,7 +173,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e73Ur （or） http://www.linkbucks.com/AKILK
 <br>【百度密碼】：8uh7
 <br>【MediaFire】：http://adf.ly/1e76gO （or） http://www.linkbucks.com/AKHi0
@@ -185,7 +185,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e7DQU （or） http://www.linkbucks.com/AKGJz
 <br>【百度密碼】：sqff
 
@@ -196,7 +196,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e7MqE （or） http://www.linkbucks.com/AKEIs
 <br>【百度密碼】：m166
 
@@ -207,7 +207,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e7NKj （or） http://www.linkbucks.com/AKECu
 <br>【百度密碼】：5k6w
 
@@ -218,7 +218,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e7MkL （or） http://www.linkbucks.com/AKEJP
 <br>【百度密碼】：ybv6
 <br>【MediaFire】：http://adf.ly/1e7SFr （or） http://www.linkbucks.com/AKCTI
@@ -230,9 +230,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站維護中，朝早更新
+<br>【百度雲盤】：http://adf.ly/1e7c2z （or） http://www.linkbucks.com/AKAKD
+<br>【百度密碼】：vb3k
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -241,7 +241,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站維護中，稍後更新
+<br>【360雲盤】：網站維護中，朝早更新
 <br>【百度雲盤】：http://adf.ly/1e7RqP （or） http://www.linkbucks.com/AKCcG
 <br>【百度密碼】：2uqn
 <br>【MediaFire】：http://adf.ly/1e7SBs （or） http://www.linkbucks.com/AKCTV
@@ -253,10 +253,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站維護中，朝早更新
+<br>【百度雲盤】：http://adf.ly/1e7c5R （or） http://www.linkbucks.com/AKALD
+<br>【百度密碼】：uvy8
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -265,10 +264,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1e7cU2 （or） http://www.linkbucks.com/AKAoY
+<br>【360密碼】：4cbe
+<br>【百度雲盤】：http://adf.ly/1e7cnu （or） http://www.linkbucks.com/AKARP
+<br>【百度密碼】：uqw8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
