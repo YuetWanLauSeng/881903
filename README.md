@@ -92,8 +92,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e6ssc （or） http://www.linkbucks.com/AKJdE
 <br>【百度密碼】：j6i5
 
@@ -117,8 +116,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e6suX （or） http://www.linkbucks.com/AKJbx
 <br>【百度密碼】：g4se
 
@@ -129,8 +127,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e6stg （or） http://www.linkbucks.com/AKJcb
 <br>【百度密碼】：yx2u
 
@@ -141,8 +138,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e6srL （or） http://www.linkbucks.com/AKJdN
 <br>【百度密碼】：e2rp
 
@@ -153,8 +149,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e6yKl （or） http://www.linkbucks.com/AKI3P
 <br>【百度密碼】：u62h
 
@@ -165,11 +160,10 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e6yRA （or） http://www.linkbucks.com/AKI3O
 <br>【百度密碼】：kkxd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1e73dw （or） http://www.linkbucks.com/AKIKm
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -178,10 +172,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站維護中，稍後更新
+<br>【百度雲盤】：http://adf.ly/1e73Ur （or） http://www.linkbucks.com/AKILK
+<br>【百度密碼】：8uh7
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
