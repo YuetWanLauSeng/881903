@@ -8,6 +8,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e8rmG （or） http://www.linkbucks.com/AJxz2
 <br>【百度密碼】：viq3
+<br>【MediaFire】：http://adf.ly/1e8zJc （or） http://www.linkbucks.com/AAa50
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -19,6 +20,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e8rbR （or） http://www.linkbucks.com/AJxl8
 <br>【百度密碼】：8xu6
+<br>【MediaFire】：http://adf.ly/1e8zBa （or） http://www.linkbucks.com/AAuoa
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -41,7 +43,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e8rga （or） http://www.linkbucks.com/AJxz6
 <br>【百度密碼】：v79c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1e8zGC （or） http://www.linkbucks.com/AAhFB
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -53,7 +55,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e8rwo （or） http://www.linkbucks.com/AJxzy
 <br>【百度密碼】：edyd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1e8zKb （or） http://www.linkbucks.com/AAaqM
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -65,7 +67,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e8rs2 （or） http://www.linkbucks.com/AJxzz
 <br>【百度密碼】：rihn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1e8zDi （or） http://www.linkbucks.com/0331
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -77,6 +79,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e8s1c （or） http://www.linkbucks.com/AJxlB
 <br>【百度密碼】：r15m
+<br>【MediaFire】：http://adf.ly/1e8zIQ （or） http://www.linkbucks.com/AGkZb
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -86,8 +89,8 @@
 <br>【檔案名稱】：903 Music.2016-09-21
 <br>【檔案音質】：高清
 <br>【360雲盤】：網站服務器損壞，稍後更新
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1e8zza （or） http://www.linkbucks.com/54O6
+<br>【百度密碼】：jsa6
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -99,7 +102,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1e8rVH （or） http://www.linkbucks.com/AJxmJ
 <br>【百度密碼】：eaz2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1e8zLX （or） http://www.linkbucks.com/AASz7
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -108,10 +111,9 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1e8zop （or） http://www.linkbucks.com/xly9
+<br>【百度密碼】：wih8
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -120,10 +122,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1e8zdn （or） http://www.linkbucks.com/9Szt
+<br>【百度密碼】：cbi7
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -132,10 +133,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1e904D （or） http://www.linkbucks.com/51DI
+<br>【百度密碼】：kvmg
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
