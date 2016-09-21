@@ -268,7 +268,7 @@
 <br>【360密碼】：4cbe
 <br>【百度雲盤】：http://adf.ly/1e7cnu （or） http://www.linkbucks.com/AKARP
 <br>【百度密碼】：uqw8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1e8K3R （or） http://www.linkbucks.com/nUKO
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -286,11 +286,10 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Blow Up.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【360雲盤】：網站維護中，朝早更新
+<br>【百度雲盤】：http://adf.ly/1e8JwG （or） http://www.linkbucks.com/nUKf
+<br>【百度密碼】：zzbk
+<br>【MediaFire】：http://adf.ly/1e8K1u （or） http://www.linkbucks.com/nUKS
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -299,10 +298,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站維護中，朝早更新
+<br>【百度雲盤】：http://adf.ly/1e8Jtu （or） http://www.linkbucks.com/n80n
+<br>【百度密碼】：sf4j
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -311,10 +309,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站維護中，朝早更新
+<br>【百度雲盤】：http://adf.ly/1e8JyP （or） http://www.linkbucks.com/nUKZ
+<br>【百度密碼】：wt2v
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -323,7 +320,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站維護中，朝早更新
+<br>【百度雲盤】：http://adf.ly/1e8Jp7 （or） http://www.linkbucks.com/n80v
+<br>【百度密碼】：dd7i
