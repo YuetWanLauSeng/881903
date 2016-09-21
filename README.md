@@ -200,10 +200,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1e9oC8 （or） http://www.linkbucks.com/AKAfB
+<br>【百度密碼】：4pvs
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -221,10 +220,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1e9o6O （or） http://www.linkbucks.com/AKAdq
+<br>【百度密碼】：7t8n
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -251,10 +249,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1e9p5E （or） http://www.linkbucks.com/AKArJ
+<br>【360密碼】：1d4c
+<br>【百度雲盤】：http://adf.ly/1e9pX4 （or） http://www.linkbucks.com/AKAHw
+<br>【百度密碼】：bdfi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校 
