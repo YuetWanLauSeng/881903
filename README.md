@@ -134,7 +134,8 @@
 <br>【檔案名稱】：You Are The Best.2016-09-22
 <br>【檔案音質】：高清
 <br>【360雲盤】：網站服務器損壞，稍後更新
-<br>【百度雲盤】：節目存在問題，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eBuR2 （or） http://www.linkbucks.com/AJ2r7
+<br>【百度密碼】：rq9i
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -168,7 +169,8 @@
 <br>【檔案名稱】：Dokureioukoku.2016-09-22
 <br>【檔案音質】：高清
 <br>【360雲盤】：網站服務器損壞，稍後更新
-<br>【百度雲盤】：節目存在問題，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eBuEM （or） http://www.linkbucks.com/AJ2sY
+<br>【百度密碼】：5s93
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
