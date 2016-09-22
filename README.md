@@ -29,7 +29,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eAr64 （or） http://www.linkbucks.com/AJzfU
+<br>【360密碼】：1bc7
 <br>【百度雲盤】：http://adf.ly/1e8s5U （or） http://www.linkbucks.com/AJxsd
 <br>【百度密碼】：m1gg
 
@@ -52,7 +53,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Jasper’s POV.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eAr9H （or） http://www.linkbucks.com/AJzfA
+<br>【360密碼】：73de
 <br>【百度雲盤】：http://adf.ly/1e8rwo （or） http://www.linkbucks.com/AJxzy
 <br>【百度密碼】：edyd
 <br>【MediaFire】：http://adf.ly/1e8zKb （or） http://www.linkbucks.com/AAaqM
@@ -64,7 +66,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eArDd （or） http://www.linkbucks.com/AJzds
+<br>【360密碼】：32ce
 <br>【百度雲盤】：http://adf.ly/1e8rs2 （or） http://www.linkbucks.com/AJxzz
 <br>【百度密碼】：rihn
 <br>【MediaFire】：http://adf.ly/1e8zDi （or） http://www.linkbucks.com/0331
@@ -76,7 +79,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eArBX （or） http://www.linkbucks.com/AJzeC
+<br>【360密碼】：0989
 <br>【百度雲盤】：http://adf.ly/1e8s1c （or） http://www.linkbucks.com/AJxlB
 <br>【百度密碼】：r15m
 <br>【MediaFire】：http://adf.ly/1e8zIQ （or） http://www.linkbucks.com/AGkZb
@@ -88,7 +92,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eAqud （or） http://www.linkbucks.com/AJziK
+<br>【360密碼】：96bc
 <br>【百度雲盤】：http://adf.ly/1e8zza （or） http://www.linkbucks.com/54O6
 <br>【百度密碼】：jsa6
 
@@ -99,7 +104,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eAr0w （or） http://www.linkbucks.com/AJzgR
+<br>【360密碼】：9eb5
 <br>【百度雲盤】：http://adf.ly/1e8rVH （or） http://www.linkbucks.com/AJxmJ
 <br>【百度密碼】：eaz2
 <br>【MediaFire】：http://adf.ly/1e8zLX （or） http://www.linkbucks.com/AASz7
@@ -111,7 +117,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eAqx7 （or） http://www.linkbucks.com/AJzh9
+<br>【360密碼】：0213
 <br>【百度雲盤】：http://adf.ly/1e8zop （or） http://www.linkbucks.com/xly9
 <br>【百度密碼】：wih8
 
@@ -122,7 +129,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eAqrK （or） http://www.linkbucks.com/AJzK2
+<br>【360密碼】：fd1d
 <br>【百度雲盤】：http://adf.ly/1e8zdn （or） http://www.linkbucks.com/9Szt
 <br>【百度密碼】：cbi7
 
@@ -168,7 +176,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eAqgS （or） http://www.linkbucks.com/AJzXS
+<br>【360密碼】：eace
 <br>【百度雲盤】：http://adf.ly/1e99Xy （or） http://www.linkbucks.com/Baal
 <br>【百度密碼】：jkd6
 <br>【MediaFire】：http://adf.ly/1e9C6i （or） http://www.linkbucks.com/AKJFM
@@ -253,7 +262,7 @@
 <br>【360密碼】：1d4c
 <br>【百度雲盤】：http://adf.ly/1e9pX4 （or） http://www.linkbucks.com/AKAHw
 <br>【百度密碼】：bdfi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eAqSf （or） http://www.linkbucks.com/AJzKD
 
 <br>【節目名稱】：聖艾粒忌廉夜校 
 <br>【節目頻道】：903 
@@ -271,11 +280,10 @@
 <br>【節目時間】：23:00 - 01:00 
 <br>【檔案名稱】：Blow Up.2016-09-21 
 <br>【檔案音質】：高清 
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eApPq （or） http://www.linkbucks.com/AJz9X
+<br>【百度密碼】：yi1w
+<br>【MediaFire】：http://adf.ly/1eAqO7 （or） http://www.linkbucks.com/AJzXx
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -284,10 +292,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eAqDq （or） http://www.linkbucks.com/AJzJV
+<br>【百度密碼】：79sv
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -296,10 +303,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eApYs （or） http://www.linkbucks.com/AJzwg
+<br>【百度密碼】：9au5
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -308,7 +314,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-21
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eApN5 （or） http://www.linkbucks.com/AJz90
+<br>【百度密碼】：83h5
+<br>【MediaFire】：http://adf.ly/1eAqI0 （or） http://www.linkbucks.com/AJzJg
