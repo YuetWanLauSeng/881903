@@ -171,6 +171,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBuEM （or） http://www.linkbucks.com/AJ2sY
 <br>【百度密碼】：5s93
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -193,6 +194,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBrhw （or） http://www.linkbucks.com/AJ268
 <br>【百度密碼】：9u1y
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -215,6 +217,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBrtu （or） http://www.linkbucks.com/AJ26Q
 <br>【百度密碼】：qrin
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -223,8 +226,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -235,10 +237,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eBwz4 （or） http://www.linkbucks.com/AJ2hr
+<br>【百度密碼】：dpyd
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
