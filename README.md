@@ -147,7 +147,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBcr7 （or） http://www.linkbucks.com/AJ4kM
 <br>【百度密碼】：tpq2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eBe4o （or） http://www.linkbucks.com/AJ4bE
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -159,7 +159,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBcoZ （or） http://www.linkbucks.com/AJ4kU
 <br>【百度密碼】：9wne
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eBeAb （or） http://www.linkbucks.com/AJ4bM
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
