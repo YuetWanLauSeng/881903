@@ -53,8 +53,8 @@
 <br>【檔案名稱】：Jasper’s POV.2016-09-22
 <br>【檔案音質】：高清
 <br>【360雲盤】：網站服務器損壞，稍後更新
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eBScp （or） http://www.linkbucks.com/AKLTu
+<br>【百度密碼】：1k2k
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：早霸王
@@ -65,8 +65,8 @@
 <br>【檔案名稱】：Good Morning King.2016-09-22
 <br>【檔案音質】：高清
 <br>【360雲盤】：網站服務器損壞，稍後更新
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eBRxY （or） http://www.linkbucks.com/AKL8g
+<br>【百度密碼】：17pn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
@@ -77,8 +77,8 @@
 <br>【檔案名稱】：Circles.2016-09-22
 <br>【檔案音質】：高清
 <br>【360雲盤】：網站服務器損壞，稍後更新
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eBRhy （or） http://www.linkbucks.com/AKL9A
+<br>【百度密碼】：7cwg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：叱咤樂壇
@@ -100,8 +100,8 @@
 <br>【檔案名稱】：18F Block C.2016-09-22
 <br>【檔案音質】：高清
 <br>【360雲盤】：網站服務器損壞，稍後更新
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eBSat （or） http://www.linkbucks.com/AKLYq
+<br>【百度密碼】：v3q5
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
