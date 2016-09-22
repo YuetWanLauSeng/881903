@@ -40,7 +40,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eC8Je （or） http://www.linkbucks.com/AJ1rv
+<br>【360密碼】：d3d2
 <br>【百度雲盤】：http://adf.ly/1eBQ1M （or） http://www.linkbucks.com/AKMJW
 <br>【百度密碼】：9iip
 <br>【MediaFire】：http://adf.ly/1eBZif （or） http://www.linkbucks.com/AKJO5
@@ -64,7 +65,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eC8Ef （or） http://www.linkbucks.com/AJ1sB
+<br>【360密碼】：ae70
 <br>【百度雲盤】：http://adf.ly/1eBRxY （or） http://www.linkbucks.com/AKL8g
 <br>【百度密碼】：17pn
 <br>【MediaFire】：http://adf.ly/1eBZhe （or） http://www.linkbucks.com/AKJPx
@@ -99,7 +101,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eC8R9 （or） http://www.linkbucks.com/AJ1rp
+<br>【360密碼】：738f
 <br>【百度雲盤】：http://adf.ly/1eBSat （or） http://www.linkbucks.com/AKLYq
 <br>【百度密碼】：v3q5
 <br>【MediaFire】：http://adf.ly/1eBZmN （or） http://www.linkbucks.com/AKJM0
@@ -156,7 +159,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【360雲盤】：http://adf.ly/1eC8Xf （or） http://www.linkbucks.com/AJ1rA
+<br>【360密碼】：1e7b
 <br>【百度雲盤】：http://adf.ly/1eBcoZ （or） http://www.linkbucks.com/AJ4kU
 <br>【百度密碼】：9wne
 <br>【MediaFire】：http://adf.ly/1eBeAb （or） http://www.linkbucks.com/AJ4bM
@@ -171,7 +175,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBuEM （or） http://www.linkbucks.com/AJ2sY
 <br>【百度密碼】：5s93
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eC6yI （or） http://www.linkbucks.com/AJ1yq
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -194,7 +198,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBrhw （or） http://www.linkbucks.com/AJ268
 <br>【百度密碼】：9u1y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eC77C （or） http://www.linkbucks.com/AJ1yR
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -217,7 +221,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBrtu （or） http://www.linkbucks.com/AJ26Q
 <br>【百度密碼】：qrin
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eC7DV （or） http://www.linkbucks.com/AJ1x7
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -227,8 +231,8 @@
 <br>【檔案名稱】：Vanila Sky.2016-09-22
 <br>【檔案音質】：高清
 <br>【360雲盤】：網站服務器損壞，稍後更新
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eCAmE （or） http://www.linkbucks.com/AJ1fY
+<br>【百度密碼】：b4bg
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -240,7 +244,7 @@
 <br>【360雲盤】：網站服務器損壞，稍後更新
 <br>【百度雲盤】：http://adf.ly/1eBwz4 （or） http://www.linkbucks.com/AJ2hr
 <br>【百度密碼】：dpyd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eC74t （or） http://www.linkbucks.com/AJ1yZ
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -249,8 +253,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eC8cH （or） http://www.linkbucks.com/AJ1pq
+<br>【360密碼】：2a5d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -261,10 +265,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eC8yL （or） http://www.linkbucks.com/AJ1n2
+<br>【360密碼】：3299
+<br>【百度雲盤】：http://adf.ly/1eCAjP （or） http://www.linkbucks.com/AJ1iC
+<br>【百度密碼】：23fz
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校 
