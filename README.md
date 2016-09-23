@@ -67,8 +67,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eD4zT （or） http://www.linkbucks.com/AJ7se
+<br>【360密碼】：7031
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -80,8 +80,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eD4xY （or） http://www.linkbucks.com/AJ7sZ
+<br>【360密碼】：c940
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
