@@ -239,8 +239,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eEJk7 （or） http://www.linkbucks.com/AKBW6
+<br>【360密碼】：544a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -275,8 +275,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：https://yunpan.cn/OckEPiHx63Vxqu （or） http://www.linkbucks.com/AKBTR
+<br>【360密碼】：1946
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
