@@ -95,8 +95,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eDRcb （or） http://www.linkbucks.com/AJ56Z
 <br>【360密碼】：1c5a
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eDTFd （or） http://www.linkbucks.com/AJ6EJ
+<br>【百度密碼】：y763
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -120,8 +120,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eDRV0 （or） http://www.linkbucks.com/AJ6MK
 <br>【360密碼】：5c9a
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eDTI7 （or） http://www.linkbucks.com/AJ6D9
+<br>【百度密碼】：n2ss
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -132,8 +132,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eDRXx （or） http://www.linkbucks.com/AJ6Us
 <br>【360密碼】：7cc7
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eDTJb （or） http://www.linkbucks.com/AJ588
+<br>【百度密碼】：9icm
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -144,8 +144,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eDRSM （or） http://www.linkbucks.com/AJ6Mj
 <br>【360密碼】：b930
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eDTCK （or） http://www.linkbucks.com/AJ6EN
+<br>【百度密碼】：bnmv
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -154,10 +154,10 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eDdRa （or） http://www.linkbucks.com/AJ5po
+<br>【360密碼】：a721
+<br>【百度雲盤】：http://adf.ly/1eDdNM （or） http://www.linkbucks.com/AJ5p1
+<br>【百度密碼】：hi7a
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -166,10 +166,10 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eDdUl （or） http://www.linkbucks.com/AJ5pj
+<br>【360密碼】：f75f
+<br>【百度雲盤】：http://adf.ly/1eDdJb （or） http://www.linkbucks.com/AJ5p6
+<br>【百度密碼】：878p
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -179,8 +179,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eDohW （or） http://www.linkbucks.com/AJ5Nt
+<br>【360密碼】：4aea
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
