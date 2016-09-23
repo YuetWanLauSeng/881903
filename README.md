@@ -45,7 +45,7 @@
 <br>【360密碼】：d79e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eDBaN （or） http://www.linkbucks.com/AJ7Xp
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -58,7 +58,7 @@
 <br>【360密碼】：da90
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eDBc4 （or） http://www.linkbucks.com/AJ7XW
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -71,7 +71,7 @@
 <br>【360密碼】：7031
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eDBYZ （or） http://www.linkbucks.com/AJ7X7
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -104,8 +104,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eDBfF （or） http://www.linkbucks.com/AJ7Wk
+<br>【360密碼】：ca06
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
