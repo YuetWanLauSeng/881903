@@ -191,8 +191,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eDwah （or） http://www.linkbucks.com/AJ4uq
+<br>【360密碼】：08ff
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -203,8 +203,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eDwLc （or） http://www.linkbucks.com/AJ4wA
+<br>【360密碼】：42f1
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
