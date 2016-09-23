@@ -170,7 +170,7 @@
 <br>【360密碼】：f75f
 <br>【百度雲盤】：http://adf.ly/1eDdJb （or） http://www.linkbucks.com/AJ5p6
 <br>【百度密碼】：878p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eDq80 （or） http://www.linkbucks.com/AJ5Hl
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eDohW （or） http://www.linkbucks.com/AJ5Nt
 <br>【360密碼】：4aea
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eDpJC （or） http://www.linkbucks.com/AJ5Pq
+<br>【百度密碼】：boio
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
