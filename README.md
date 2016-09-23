@@ -255,8 +255,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eC8cH （or） http://www.linkbucks.com/AJ1pq
 <br>【360密碼】：2a5d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eCnPJ （or） http://www.linkbucks.com/AJ9g2
+<br>【百度密碼】：1gxf
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -269,7 +269,7 @@
 <br>【360密碼】：3299
 <br>【百度雲盤】：http://adf.ly/1eCAjP （or） http://www.linkbucks.com/AJ1iC
 <br>【百度密碼】：23fz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eCnnN （or） http://www.linkbucks.com/AJ9eY
 
 <br>【節目名稱】：聖艾粒忌廉夜校 
 <br>【節目頻道】：903 
@@ -287,11 +287,10 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Blow Up.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eCnQX （or） http://www.linkbucks.com/AJ9gi
+<br>【百度密碼】：wkzk
+<br>【MediaFire】：http://adf.ly/1eCnmX （or） http://www.linkbucks.com/AJ9ec
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -300,10 +299,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eCnUy （or） http://www.linkbucks.com/AJ9gL
+<br>【百度密碼】：pb9n
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -312,10 +310,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eCnSQ （or） http://www.linkbucks.com/AJ9gZ
+<br>【百度密碼】：k6es
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -324,7 +321,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-22
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：網站服務器損壞，稍後更新
+<br>【百度雲盤】：http://adf.ly/1eCnND （or） http://www.linkbucks.com/AJ9g8
+<br>【百度密碼】：btee
+<br>【MediaFire】：http://adf.ly/1eCnkr （or） http://www.linkbucks.com/AJ9ey
