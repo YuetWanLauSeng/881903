@@ -215,10 +215,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eE3Z0 （or） http://www.linkbucks.com/AKDcA
+<br>【360密碼】：ae69
+<br>【百度雲盤】：http://adf.ly/1eE6Ot （or） http://www.linkbucks.com/AKC9g
+<br>【百度密碼】：i2nf
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -229,8 +229,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eE1E3 （or） http://www.linkbucks.com/AKDmW
 <br>【360密碼】：4df5
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eE6N5 （or） http://www.linkbucks.com/AKC9r
+<br>【百度密碼】：crur
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -251,10 +251,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eE9TL （or） http://www.linkbucks.com/AKCcu
+<br>【360密碼】：0d1d
+<br>【百度雲盤】：http://adf.ly/1eE9OE （or） http://www.linkbucks.com/AKCfe
+<br>【百度密碼】：8e63
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
