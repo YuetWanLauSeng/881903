@@ -21,6 +21,7 @@
 <br>【360密碼】：2beb
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1eDCN0 （or） http://www.linkbucks.com/AJ7Rw
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -108,7 +109,7 @@
 <br>【360密碼】：ca06
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eDD0z （or） http://www.linkbucks.com/AJ7QZ
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
