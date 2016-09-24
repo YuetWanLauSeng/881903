@@ -105,8 +105,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-09-24
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFnKQ （or） http://www.linkbucks.com/AKNFZ
+<br>【360密碼】：8196
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -115,8 +115,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-09-24
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFnN6 （or） http://www.linkbucks.com/AKNFJ
+<br>【360密碼】：3026
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -125,8 +125,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-09-24
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFncs （or） http://www.linkbucks.com/AKNEQ
+<br>【360密碼】：a217
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
