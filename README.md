@@ -7,6 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFQCr （or） http://www.linkbucks.com/8eM1
 <br>【360密碼】：0577
+<br>【百度雲盤】：http://adf.ly/1eFuRy （or） http://www.linkbucks.com/AKMhw
+<br>【百度密碼】：szh2
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -17,6 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFRQU （or） http://www.linkbucks.com/AKQFt
 <br>【360密碼】：6a3e
+<br>【百度雲盤】：http://adf.ly/1eFty2 （or） http://www.linkbucks.com/AKMkr
+<br>【百度密碼】：pzv6
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -27,6 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFQBp （or） http://www.linkbucks.com/ABlB9
 <br>【360密碼】：edaa
+<br>【百度雲盤】：http://adf.ly/1eFuTu （or） http://www.linkbucks.com/AKMhp
+<br>【百度密碼】：w3e1
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -37,6 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFQEa （or） http://www.linkbucks.com/8eWY
 <br>【360密碼】：22b9
+<br>【百度雲盤】：http://adf.ly/1eFuPn （or） http://www.linkbucks.com/AKMhz
+<br>【百度密碼】：v4vx
 
 <br>【節目名稱】：大開選舉世界
 <br>【節目頻道】：881
@@ -47,6 +55,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFS1t （or） http://www.linkbucks.com/AKPpI
 <br>【360密碼】：1d6c
+<br>【百度雲盤】：http://adf.ly/1eFtvt （or） http://www.linkbucks.com/AKMqh
+<br>【百度密碼】：9jsv
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -57,6 +67,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFRma （or） http://www.linkbucks.com/AKPqx
 <br>【360密碼】：134b
+<br>【百度雲盤】：http://adf.ly/1eFu4U （or） http://www.linkbucks.com/AKMj2
+<br>【百度密碼】：cquk
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -67,6 +79,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFY0S （or） http://www.linkbucks.com/AKOn4
 <br>【360密碼】：6e54
+<br>【百度雲盤】：http://adf.ly/1eFuIV （or） http://www.linkbucks.com/AKMi2
+<br>【百度密碼】：9a5t
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -77,6 +91,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFXyt （or） http://www.linkbucks.com/AKOoC
 <br>【360密碼】：4b39
+<br>【百度雲盤】：http://adf.ly/1eFuCB （or） http://www.linkbucks.com/AKMjB
+<br>【百度密碼】：cc3y
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -87,6 +103,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFXxw （or） http://www.linkbucks.com/AKOoN
 <br>【360密碼】：769a
+<br>【百度雲盤】：http://adf.ly/1eFu9J （or） http://www.linkbucks.com/AKMjb
+<br>【百度密碼】：vvpt
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -97,6 +115,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFZ7b （or） http://www.linkbucks.com/AKOG6
 <br>【360密碼】：9984
+<br>【百度雲盤】：http://adf.ly/1eFuMA （or） http://www.linkbucks.com/AKMiQ
+<br>【百度密碼】：dmjb
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -107,6 +127,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFnKQ （or） http://www.linkbucks.com/AKNFZ
 <br>【360密碼】：8196
+<br>【百度雲盤】：http://adf.ly/1eFu7W （or） http://www.linkbucks.com/AKMji
+<br>【百度密碼】：ad5h
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -117,6 +139,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFnN6 （or） http://www.linkbucks.com/AKNFJ
 <br>【360密碼】：3026
+<br>【百度雲盤】：http://adf.ly/1eFt6f （or） http://www.linkbucks.com/AKMqz
+<br>【百度密碼】：w5zh
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -127,6 +151,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eFncs （or） http://www.linkbucks.com/AKNEQ
 <br>【360密碼】：a217
+<br>【百度雲盤】：http://adf.ly/1eFtAv （or） http://www.linkbucks.com/AKMqr
+<br>【百度密碼】：9guh
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -135,8 +161,10 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-09-24
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFuZs （or） http://www.linkbucks.com/AKMhF
+<br>【360密碼】：6536
+<br>【百度雲盤】：http://adf.ly/1eFuyU （or） http://www.linkbucks.com/AKMfm
+<br>【百度密碼】：aziu
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -147,6 +175,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -157,6 +187,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -167,6 +199,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：Chi Chung's Class
 <br>【節目頻道】：903
@@ -177,6 +211,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -187,6 +223,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
@@ -210,6 +248,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -220,6 +260,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
