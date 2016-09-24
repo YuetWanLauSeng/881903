@@ -263,8 +263,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFLra （or） http://www.linkbucks.com/AKEge
+<br>【360密碼】：a56f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -275,7 +275,7 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】：https://yunpan.cn/OckEPiHx63Vxqu （or） http://www.linkbucks.com/AKBTR
+<br>【360雲盤】：http://adf.ly/1eFJ1n （or） http://www.linkbucks.com/AKBTR
 <br>【360密碼】：1946
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
@@ -297,8 +297,8 @@
 <br>【節目時間】：23:00 - 01:00 
 <br>【檔案名稱】：Blow Up.2016-09-23 
 <br>【檔案音質】：高清 
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFLTD （or） http://www.linkbucks.com/AKEji
+<br>【360密碼】：541d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -310,8 +310,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFLnu （or） http://www.linkbucks.com/AKEgi
+<br>【360密碼】：14a0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -322,8 +322,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFLQT （or） http://www.linkbucks.com/AKEkJ
+<br>【360密碼】：4028
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -334,7 +334,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-23
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eFLpl （or） http://www.linkbucks.com/AKEgh
+<br>【360密碼】：c569
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
