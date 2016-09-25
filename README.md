@@ -184,8 +184,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eHpUQ （or） http://www.linkbucks.com/eaz
 <br>【360密碼】：0820
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eHugK （or） http://www.linkbucks.com/cT4
+<br>【百度密碼】：eqhg
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -194,10 +194,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eHuby （or） http://www.linkbucks.com/cH5
+<br>【360密碼】：f7a7
+<br>【百度雲盤】：http://adf.ly/1eHun0 （or） http://www.linkbucks.com/cMK
+<br>【百度密碼】：w5sc
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -206,8 +206,10 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eHueS （or） http://www.linkbucks.com/cF0
+<br>【360密碼】：e99b
+<br>【百度雲盤】：http://adf.ly/1eHuk2 （or） http://www.linkbucks.com/cNq
+<br>【百度密碼】：bua4
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
