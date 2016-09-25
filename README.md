@@ -101,10 +101,10 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eHKmq （or） http://www.linkbucks.com/FG8
+<br>【360密碼】：9c26
+<br>【百度雲盤】：http://adf.ly/1eHLOZ （or） http://www.linkbucks.com/FL6
+<br>【百度密碼】：xm3p
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
