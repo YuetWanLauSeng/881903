@@ -158,8 +158,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eHjJI （or） http://www.linkbucks.com/gH5
+<br>【360密碼】：1b2f
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -168,8 +168,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eHjHC （or） http://www.linkbucks.com/gIu
+<br>【360密碼】：1d87
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
