@@ -160,6 +160,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eHjJI （or） http://www.linkbucks.com/gH5
 <br>【360密碼】：1b2f
+<br>【百度雲盤】：http://adf.ly/1eHpM4 （or） http://www.linkbucks.com/ebj
+<br>【百度密碼】：2evp
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -170,6 +172,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eHjHC （or） http://www.linkbucks.com/gIu
 <br>【360密碼】：1d87
+<br>【百度雲盤】：http://adf.ly/1eHjHC （or） http://www.linkbucks.com/eop
+<br>【百度密碼】：1d87
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -178,8 +182,10 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eHpUQ （or） http://www.linkbucks.com/eaz
+<br>【360密碼】：0820
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
