@@ -113,10 +113,19 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【節目暫停】：因麻利放假，改為播出『扭扭擰擰扭扭擰』
+
+<br>【節目名稱】：扭扭擰擰扭扭擰
+<br>【節目頻道】：903
+<br>【節目日期】：2016-09-25
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Twisty Risky Story.2016-09-25
+<br>【檔案音質】：高清
+<br>【360雲盤】：http://adf.ly/1eHZw9 （or） http://www.linkbucks.com/AKTDv
+<br>【360密碼】：ed80
+<br>【百度雲盤】：http://adf.ly/1eHbYv （or） http://www.linkbucks.com/AKS9X
+<br>【百度密碼】：4wun
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -125,10 +134,10 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eHY35 （or） http://www.linkbucks.com/EV
+<br>【360密碼】：6a67
+<br>【百度雲盤】：http://adf.ly/1eHYL0 （or） http://www.linkbucks.com/AKTZR
+<br>【百度密碼】：ixiv
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -137,10 +146,10 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-09-25
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eHakf （or） http://www.linkbucks.com/AKTDB
+<br>【360密碼】：cf53
+<br>【百度雲盤】：http://adf.ly/1eHbQL （or） http://www.linkbucks.com/AKS5D
+<br>【百度密碼】：s5et
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
