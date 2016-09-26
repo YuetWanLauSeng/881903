@@ -94,8 +94,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eJ8nl （or） http://www.linkbucks.com/AKTNU
 <br>【360密碼】：5c10
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eJFZl （or） http://www.linkbucks.com/AKS17
+<br>【百度密碼】：frat
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -119,8 +119,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eJ8q3 （or） http://www.linkbucks.com/AKTM9
 <br>【360密碼】：a6ad
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eJFxo （or） http://www.linkbucks.com/AKS1v
+<br>【百度密碼】：655c
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -131,8 +131,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eJ8pA （or） http://www.linkbucks.com/AKTNN
 <br>【360密碼】：de3c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eJFvt （or） http://www.linkbucks.com/AKS14
+<br>【百度密碼】：a8j4
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -143,8 +143,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eJ8qu （or） http://www.linkbucks.com/AKTM2
 <br>【360密碼】：255e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eJFVT （or） http://www.linkbucks.com/AKS2o
+<br>【百度密碼】：8dbm
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eJF5t （or） http://www.linkbucks.com/AKS4n
 <br>【360密碼】：7f60
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eJGy6 （or） http://www.linkbucks.com/AKSjE
+<br>【百度密碼】：qcjy
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eJEtZ （or） http://www.linkbucks.com/AKS5B
 <br>【360密碼】：b4b8
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eJH09 （or） http://www.linkbucks.com/AKSi8
+<br>【百度密碼】：8pmz
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -178,10 +178,10 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-26
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eJH4G （or） http://www.linkbucks.com/AKSiq
+<br>【360密碼】：aef1
+<br>【百度雲盤】：http://adf.ly/1eJH1T （or） http://www.linkbucks.com/AKSiy
+<br>【百度密碼】：6r4v
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
