@@ -153,8 +153,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-09-26
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eJF5t （or） http://www.linkbucks.com/AKS4n
+<br>【360密碼】：7f60
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -165,8 +165,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-26
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eJEtZ （or） http://www.linkbucks.com/AKS5B
+<br>【360密碼】：b4b8
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
