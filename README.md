@@ -169,7 +169,7 @@
 <br>【360密碼】：b4b8
 <br>【百度雲盤】：http://adf.ly/1eJH09 （or） http://www.linkbucks.com/AKSi8
 <br>【百度密碼】：8pmz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eJaZF （or） http://www.linkbucks.com/v0vW
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eJUxz （or） http://www.linkbucks.com/ACeUc
 <br>【360密碼】：cd06
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eJajz （or） http://www.linkbucks.com/vsse
+<br>【百度密碼】：qwtd
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -204,8 +204,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eJUwX （or） http://www.linkbucks.com/AIeJj
 <br>【360密碼】：b6c0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eJahb （or） http://www.linkbucks.com/vwFk
+<br>【百度密碼】：xuxi
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -214,10 +214,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-26
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eJbHy （or） http://www.linkbucks.com/w3Im
+<br>【360密碼】：0424
+<br>【百度雲盤】：http://adf.ly/1eJacB （or） http://www.linkbucks.com/vx09
+<br>【百度密碼】：2ywh
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -226,10 +226,10 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-26
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eJbNQ （or） http://www.linkbucks.com/wxPH
+<br>【360密碼】：12da
+<br>【百度雲盤】：http://adf.ly/1eJaf6 （or） http://www.linkbucks.com/yWG8
+<br>【百度密碼】：85tv
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
