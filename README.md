@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eKjfo （or） http://www.linkbucks.com/qXQ
 <br>【360密碼】：6373
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eKrlT （or） http://www.linkbucks.com/iU5
+<br>【百度密碼】：y6g4
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eKjdc （or） http://www.linkbucks.com/qjD
 <br>【360密碼】：256a
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eKrXI （or） http://www.linkbucks.com/hRi
+<br>【百度密碼】：2mjx
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eKjeY （or） http://www.linkbucks.com/qeZ
 <br>【360密碼】：5832
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eKras （or） http://www.linkbucks.com/hKt
+<br>【百度密碼】：s9ur
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：鈺成千里目
@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eKi2M （or） http://www.linkbucks.com/sDY
 <br>【360密碼】：2935
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eKs26 （or） http://www.linkbucks.com/huY
+<br>【百度密碼】：2fim
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
@@ -92,8 +92,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eKs8Z （or） http://www.linkbucks.com/g9b
+<br>【360密碼】：2988
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -117,8 +117,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eKs3s （or） http://www.linkbucks.com/hpY
+<br>【360密碼】：25bd
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -129,8 +129,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eKs5s （or） http://www.linkbucks.com/hCv
+<br>【360密碼】：f419
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -141,8 +141,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eKsfj （or） http://www.linkbucks.com/gW5
+<br>【360密碼】：6f98
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
