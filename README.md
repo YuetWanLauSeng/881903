@@ -178,10 +178,10 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eL0pl （or） http://www.linkbucks.com/b5z
+<br>【360密碼】：2ad9
+<br>【百度雲盤】：http://adf.ly/1eL0rX （or） http://www.linkbucks.com/cnR
+<br>【百度密碼】：yqx5
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
