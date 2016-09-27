@@ -190,10 +190,10 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eLAgP （or） http://www.linkbucks.com/XnU
+<br>【360密碼】：e4d3
+<br>【百度雲盤】：http://adf.ly/1eLAnu （or） http://www.linkbucks.com/MwG
+<br>【百度密碼】：1i67
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -202,10 +202,10 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eLAjp （or） http://www.linkbucks.com/zR80
+<br>【360密碼】：6bf5
+<br>【百度雲盤】：http://adf.ly/1eLAmW （or） http://www.linkbucks.com/MwK
+<br>【百度密碼】：dkze
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -226,10 +226,10 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eLAzp （or） http://www.linkbucks.com/Mu0
+<br>【360密碼】：f16c
+<br>【百度雲盤】：http://adf.ly/1eLBLl （or） http://www.linkbucks.com/Mta
+<br>【百度密碼】：sa5q
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
