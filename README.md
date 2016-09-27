@@ -216,8 +216,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eLQFa （or） http://www.linkbucks.com/Lgl
 <br>【360密碼】：3302
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eLXdT （or） http://www.linkbucks.com/Kq5
+<br>【百度密碼】：xn8n
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -238,10 +238,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eLXNB （or） http://www.linkbucks.com/Kr5
+<br>【360密碼】：f8b7
+<br>【百度雲盤】：http://adf.ly/1eLXY7 （or） http://www.linkbucks.com/KrR
+<br>【百度密碼】：d35g
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -252,8 +252,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eLQAE （or） http://www.linkbucks.com/Lic
 <br>【360密碼】：8a7f
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eLXgF （or） http://www.linkbucks.com/Kqu
+<br>【百度密碼】：4vqg
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -262,10 +262,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eLXUz （or） http://www.linkbucks.com/Krg
+<br>【360密碼】：34b6
+<br>【百度雲盤】：http://adf.ly/1eLXaW （or） http://www.linkbucks.com/KrN
+<br>【百度密碼】：8hfd
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -274,8 +274,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-27
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eLXtY （or） http://www.linkbucks.com/Kpr
+<br>【360密碼】：aecf
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
