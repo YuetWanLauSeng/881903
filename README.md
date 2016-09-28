@@ -157,7 +157,7 @@
 <br>【360密碼】：a986
 <br>【百度雲盤】：http://adf.ly/1eMYyO （or） http://www.linkbucks.com/P21
 <br>【百度密碼】：nysz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eMl9q （or） http://www.linkbucks.com/OsN
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -170,7 +170,7 @@
 <br>【360密碼】：c560
 <br>【百度雲盤】：http://adf.ly/1eMYvz （or） http://www.linkbucks.com/P3P
 <br>【百度密碼】：8xcb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eMl7A （or） http://www.linkbucks.com/OlY
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -179,10 +179,10 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eMl4l （or） http://www.linkbucks.com/Olc
+<br>【360密碼】：1991
+<br>【百度雲盤】：http://adf.ly/1eMlDe （or） http://www.linkbucks.com/OyX
+<br>【百度密碼】：hdpu
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
