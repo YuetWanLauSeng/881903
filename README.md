@@ -233,10 +233,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eN8r2 （or） http://www.linkbucks.com/XiE
+<br>【360密碼】：d793
+<br>【百度雲盤】：http://adf.ly/1eN8uC （or） http://www.linkbucks.com/XYy
+<br>【百度密碼】：gzya
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -263,10 +263,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eN8sU （or） http://www.linkbucks.com/Xr8
+<br>【360密碼】：7153
+<br>【百度雲盤】：http://adf.ly/1eN99A （or） http://www.linkbucks.com/Xca
+<br>【百度密碼】：dsvq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
