@@ -191,10 +191,10 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eMxPS （or） http://www.linkbucks.com/NNl
+<br>【360密碼】：76a0
+<br>【百度雲盤】：http://adf.ly/1eMxVW （or） http://www.linkbucks.com/NND
+<br>【百度密碼】：7kp8
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -212,10 +212,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-28
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eMxMK （or） http://www.linkbucks.com/NQG
+<br>【360密碼】：4ee4
+<br>【百度雲盤】：http://adf.ly/1eMxSZ （or） http://www.linkbucks.com/NNU
+<br>【百度密碼】：xyr1
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
