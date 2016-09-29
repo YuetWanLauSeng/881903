@@ -94,8 +94,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eODnn （or） http://www.linkbucks.com/AKSz2
 <br>【360密碼】：9c90
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOIIV （or） http://www.linkbucks.com/AB973
+<br>【百度密碼】：kjfy
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -119,8 +119,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eODiq （or） http://www.linkbucks.com/AHPuS
 <br>【360密碼】：d029
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOIPX （or） http://www.linkbucks.com/ABePp
+<br>【百度密碼】：44ck
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -131,8 +131,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eODkh （or） http://www.linkbucks.com/AKSpW
 <br>【360密碼】：89e9
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOIMu （or） http://www.linkbucks.com/7Jd7
+<br>【百度密碼】：2yxn
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -143,8 +143,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eODgK （or） http://www.linkbucks.com/AHXSn
 <br>【360密碼】：e999
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOIKR （or） http://www.linkbucks.com/ABur6
+<br>【百度密碼】：8gxg
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -153,8 +153,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eOO06 （or） http://www.linkbucks.com/q0q
+<br>【360密碼】：a9d5
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -166,8 +166,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eONFG （or） http://www.linkbucks.com/q3k
+<br>【360密碼】：906d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
