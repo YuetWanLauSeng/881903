@@ -288,7 +288,7 @@
 <br>【360密碼】：e245
 <br>【百度雲盤】：http://adf.ly/1eOnob （or） http://www.linkbucks.com/kdY
 <br>【百度密碼】：w9j8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ePRhj （or） http://www.linkbucks.com/APKY6
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -299,17 +299,17 @@
 <br>【檔案音質】：高清
 <br>【節目暫停】：因準備『Yo！聖艾粒battle五行欠』，節目暫停兩星期
 
-<br>【節目名稱】：聖艾粒忌廉夜校
+<br>【節目名稱】：吹摯友
 <br>【節目頻道】：903
 <br>【節目日期】：2016-09-29
-<br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
+<br>【節目主持】：鄒凱光
 <br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-09-29
+<br>【檔案名稱】：Blow Up.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ePRcZ （or） http://www.linkbucks.com/APKiU
+<br>【360密碼】：afc1
+<br>【百度雲盤】：http://adf.ly/1ePRgD （or） http://www.linkbucks.com/APKbJ
+<br>【百度密碼】：s5ug
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
