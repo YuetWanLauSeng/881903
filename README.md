@@ -191,10 +191,10 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eOcBL （or） http://www.linkbucks.com/oFE
+<br>【360密碼】：7c6d
+<br>【百度雲盤】：http://adf.ly/1eOcHf （or） http://www.linkbucks.com/oD8
+<br>【百度密碼】：9xxx
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -203,10 +203,10 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eOcDn （or） http://www.linkbucks.com/oEq
+<br>【360密碼】：ea90
+<br>【百度雲盤】：http://adf.ly/1eOcFZ （or） http://www.linkbucks.com/nwA
+<br>【百度密碼】：xncb
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
