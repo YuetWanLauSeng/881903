@@ -157,7 +157,7 @@
 <br>【360密碼】：a9d5
 <br>【百度雲盤】：http://adf.ly/1eOPao （or） http://www.linkbucks.com/qhl
 <br>【百度密碼】：tcqh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eOd1g （or） http://www.linkbucks.com/nyV
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -170,7 +170,7 @@
 <br>【360密碼】：906d
 <br>【百度雲盤】：http://adf.ly/1eOPfT （or） http://www.linkbucks.com/qhh
 <br>【百度密碼】：53fp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eOd0R （or） http://www.linkbucks.com/nyj
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -215,8 +215,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eOhuT （or） http://www.linkbucks.com/mC1
+<br>【360密碼】：79d6
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -227,8 +227,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eOi6M （or） http://www.linkbucks.com/l9o
+<br>【360密碼】：af9c
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -251,8 +251,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eOhrg （or） http://www.linkbucks.com/mXn
+<br>【360密碼】：41ec
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
