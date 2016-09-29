@@ -217,8 +217,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eOhuT （or） http://www.linkbucks.com/mC1
 <br>【360密碼】：79d6
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOn5m （or） http://www.linkbucks.com/kjM
+<br>【百度密碼】：fyrh
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -229,8 +229,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eOi6M （or） http://www.linkbucks.com/l9o
 <br>【360密碼】：af9c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOn9v （or） http://www.linkbucks.com/kC8
+<br>【百度密碼】：ekt9
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -239,10 +239,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eOkvb （or） http://www.linkbucks.com/kGM
+<br>【360密碼】：ba3e
+<br>【百度雲盤】：http://adf.ly/1eOn1i （or） http://www.linkbucks.com/kFM
+<br>【百度密碼】：caq4
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -253,8 +253,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eOhrg （or） http://www.linkbucks.com/mXn
 <br>【360密碼】：41ec
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOn7q （or） http://www.linkbucks.com/kjE
+<br>【百度密碼】：i8mk
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -272,10 +272,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：One in Seventeenth’s Pink Myths.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eOkvb （or） http://www.linkbucks.com/lOs
+<br>【360密碼】：ba3e
+<br>【百度雲盤】：http://adf.ly/1eOn3h （or） http://www.linkbucks.com/kD3
+<br>【百度密碼】：mmbb
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -284,10 +284,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eOnTW （or） http://www.linkbucks.com/kNi
+<br>【360密碼】：e245
+<br>【百度雲盤】：http://adf.ly/1eOnob （or） http://www.linkbucks.com/kdY
+<br>【百度密碼】：w9j8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
