@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eOO06 （or） http://www.linkbucks.com/q0q
 <br>【360密碼】：a9d5
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOPao （or） http://www.linkbucks.com/qhl
+<br>【百度密碼】：tcqh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -168,8 +168,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eONFG （or） http://www.linkbucks.com/q3k
 <br>【360密碼】：906d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eOPfT （or） http://www.linkbucks.com/qhh
+<br>【百度密碼】：53fp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -179,10 +179,10 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-09-29
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eOPmt （or） http://www.linkbucks.com/qhM
+<br>【360密碼】：8267
+<br>【百度雲盤】：http://adf.ly/1eOPkL （or） http://www.linkbucks.com/qhX
+<br>【百度密碼】：jjju
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
