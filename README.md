@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eQ14k （or） http://www.linkbucks.com/AxUPG
 <br>【360密碼】：6bd2
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eQ2Vq （or） http://www.linkbucks.com/AxPl6
+<br>【百度密碼】：gkcp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -168,8 +168,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eQ1Hf （or） http://www.linkbucks.com/AxT4I
 <br>【360密碼】：c6eb
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eQ2Yr （or） http://www.linkbucks.com/AxOtJ
+<br>【百度密碼】：rb4g
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
