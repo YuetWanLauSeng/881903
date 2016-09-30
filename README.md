@@ -1,323 +1,314 @@
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：Wasabi | 嘉賓主持
 <br>【節目時間】：06:00 - 07:00 
-<br>【檔案名稱】：Share My Song.2016-09-29
+<br>【檔案名稱】：Share My Song.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eO6Xu （or） http://www.linkbucks.com/av4
-<br>【360密碼】：fa8c
-<br>【百度雲盤】：http://adf.ly/1eODtb （or） http://www.linkbucks.com/AD2bi
-<br>【百度密碼】：a23b
+<br>【360雲盤】：http://adf.ly/1ePoX3 （or） http://www.linkbucks.com/ANgWo
+<br>【360密碼】：dfda
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 李兆綸 | 符靜琳
 <br>【節目時間】：06:30 - 10:00
-<br>【檔案名稱】：On a Clear Day（881）.2016-09-29
+<br>【檔案名稱】：On a Clear Day（881）.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eO6bs （or） http://www.linkbucks.com/ahD
-<br>【360密碼】：9476
-<br>【百度雲盤】：http://adf.ly/1eODqO （or） http://www.linkbucks.com/AKSpY
-<br>【百度密碼】：337a
+<br>【360雲盤】：http://adf.ly/1ePpXw （or） http://www.linkbucks.com/ANfu0
+<br>【360密碼】：7b18
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
-<br>【檔案名稱】：Hey, Learners!.2016-09-29
+<br>【檔案名稱】：Hey, Learners!.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eO6fH （or） http://www.linkbucks.com/agJ
-<br>【360密碼】：2013
-<br>【百度雲盤】：http://adf.ly/1eODze （or） http://www.linkbucks.com/AKStH
-<br>【百度密碼】：j66e
+<br>【360雲盤】：http://adf.ly/1ePpPB （or） http://www.linkbucks.com/ANf3G
+<br>【360密碼】：090a
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：On a Clear Day（903）.2016-09-29
+<br>【檔案名稱】：On a Clear Day（903）.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eO6au （or） http://www.linkbucks.com/avl
-<br>【360密碼】：16ad
-<br>【百度雲盤】：http://adf.ly/1eODs7 （or） http://www.linkbucks.com/AKSpT
-<br>【百度密碼】：7a3w
-<br>【MediaFire】：http://adf.ly/1eO6sF （or） http://www.linkbucks.com/aN0
+<br>【360雲盤】：http://adf.ly/1ePpZa （or） http://www.linkbucks.com/ANfrW
+<br>【360密碼】：cd64
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：曾鈺成
 <br>【節目時間】：10:00 - 10:30
-<br>【檔案名稱】：Jasper’s POV.2016-09-29
+<br>【檔案名稱】：Jasper’s POV.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eO6dd （or） http://www.linkbucks.com/agy
-<br>【360密碼】：1a7c
-<br>【百度雲盤】：http://adf.ly/1eODxd （or） http://www.linkbucks.com/AEgQN
-<br>【百度密碼】：vvr2
-<br>【MediaFire】：http://adf.ly/1eO6si （or） http://www.linkbucks.com/aZv
+<br>【360雲盤】：http://adf.ly/1ePpR6 （or） http://www.linkbucks.com/ANfwK
+<br>【360密碼】：de9f
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
-<br>【檔案名稱】：Good Morning King.2016-09-29
+<br>【檔案名稱】：Good Morning King.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eO6g6 （or） http://www.linkbucks.com/agA
-<br>【360密碼】：b758
-<br>【百度雲盤】：http://adf.ly/1eODvl （or） http://www.linkbucks.com/AEnU3
-<br>【百度密碼】：6hr4
-<br>【MediaFire】：http://adf.ly/1eO6rV （or） http://www.linkbucks.com/aN2
+<br>【360雲盤】：http://adf.ly/1ePpLJ （or） http://www.linkbucks.com/ANf5B
+<br>【360密碼】：6e9c
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：10:30 - 12:00
-<br>【檔案名稱】：Circles.2016-09-29
+<br>【檔案名稱】：Circles.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eO6hH （or） http://www.linkbucks.com/afh
-<br>【360密碼】：2edd
-<br>【百度雲盤】：http://adf.ly/1eOE1S （or） http://www.linkbucks.com/AEdDC
-<br>【百度密碼】：2g68
+<br>【360雲盤】：http://adf.ly/1ePoc4 （or） http://www.linkbucks.com/ANf8Y
+<br>【360密碼】：3bee
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
-<br>【檔案名稱】：903 Music.2016-09-29
+<br>【檔案名稱】：903 Music.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eODnn （or） http://www.linkbucks.com/AKSz2
-<br>【360密碼】：9c90
-<br>【百度雲盤】：http://adf.ly/1eOIIV （or） http://www.linkbucks.com/AB973
-<br>【百度密碼】：kjfy
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
-<br>【檔案名稱】：18F Block C.2016-09-29
+<br>【檔案名稱】：18F Block C.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eO6ik （or） http://www.linkbucks.com/afX
-<br>【360密碼】：2b1d
-<br>【百度雲盤】：http://adf.ly/1eOE3U （or） http://www.linkbucks.com/AKStF
-<br>【百度密碼】：mn3c
-<br>【MediaFire】：http://adf.ly/1eODdd （or） http://www.linkbucks.com/AHaXx
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Lunch Special.2016-09-29
+<br>【檔案名稱】：Lunch Special.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eODiq （or） http://www.linkbucks.com/AHPuS
-<br>【360密碼】：d029
-<br>【百度雲盤】：http://adf.ly/1eOIPX （or） http://www.linkbucks.com/ABePp
-<br>【百度密碼】：44ck
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：Crosstrade.2016-09-29
+<br>【檔案名稱】：Crosstrade.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eODkh （or） http://www.linkbucks.com/AKSpW
-<br>【360密碼】：89e9
-<br>【百度雲盤】：http://adf.ly/1eOIMu （or） http://www.linkbucks.com/7Jd7
-<br>【百度密碼】：2yxn
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：You Are The Best.2016-09-29
+<br>【檔案名稱】：You Are The Best.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eODgK （or） http://www.linkbucks.com/AHXSn
-<br>【360密碼】：e999
-<br>【百度雲盤】：http://adf.ly/1eOIKR （or） http://www.linkbucks.com/ABur6
-<br>【百度密碼】：8gxg
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：The Fun Box.2016-09-29
+<br>【檔案名稱】：The Fun Box.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOO06 （or） http://www.linkbucks.com/q0q
-<br>【360密碼】：a9d5
-<br>【百度雲盤】：http://adf.ly/1eOPao （or） http://www.linkbucks.com/qhl
-<br>【百度密碼】：tcqh
-<br>【MediaFire】：http://adf.ly/1eOd1g （or） http://www.linkbucks.com/nyV
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-29
+<br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eONFG （or） http://www.linkbucks.com/q3k
-<br>【360密碼】：906d
-<br>【百度雲盤】：http://adf.ly/1eOPfT （or） http://www.linkbucks.com/qhh
-<br>【百度密碼】：53fp
-<br>【MediaFire】：http://adf.ly/1eOd0R （or） http://www.linkbucks.com/nyj
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
-<br>【檔案名稱】：Dokureioukoku.2016-09-29
+<br>【檔案名稱】：Dokureioukoku.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOPmt （or） http://www.linkbucks.com/qhM
-<br>【360密碼】：8267
-<br>【百度雲盤】：http://adf.ly/1eOPkL （or） http://www.linkbucks.com/qhX
-<br>【百度密碼】：jjju
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
-<br>【檔案名稱】：Zine.2016-09-29
+<br>【檔案名稱】：Zine.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOcBL （or） http://www.linkbucks.com/oFE
-<br>【360密碼】：7c6d
-<br>【百度雲盤】：http://adf.ly/1eOcHf （or） http://www.linkbucks.com/oD8
-<br>【百度密碼】：9xxx
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Our Way Out.2016-09-29
+<br>【檔案名稱】：Our Way Out.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOcDn （or） http://www.linkbucks.com/oEq
-<br>【360密碼】：ea90
-<br>【百度雲盤】：http://adf.ly/1eOcFZ （or） http://www.linkbucks.com/nwA
-<br>【百度密碼】：xncb
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：My Daily Life.2016-09-29
+<br>【檔案名稱】：My Daily Life.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOhuT （or） http://www.linkbucks.com/mC1
-<br>【360密碼】：79d6
-<br>【百度雲盤】：http://adf.ly/1eOn5m （or） http://www.linkbucks.com/kjM
-<br>【百度密碼】：fyrh
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Tea For You.2016-09-29
+<br>【檔案名稱】：Tea For You.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOi6M （or） http://www.linkbucks.com/l9o
-<br>【360密碼】：af9c
-<br>【百度雲盤】：http://adf.ly/1eOn9v （or） http://www.linkbucks.com/kC8
-<br>【百度密碼】：ekt9
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Vanila Sky.2016-09-29
+<br>【檔案名稱】：Vanila Sky.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOkvb （or） http://www.linkbucks.com/kGM
-<br>【360密碼】：ba3e
-<br>【百度雲盤】：http://adf.ly/1eOn1i （or） http://www.linkbucks.com/kFM
-<br>【百度密碼】：caq4
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
-<br>【檔案名稱】：Sino Stream.2016-09-29
+<br>【檔案名稱】：Sino Stream.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOhrg （or） http://www.linkbucks.com/mXn
-<br>【360密碼】：41ec
-<br>【百度雲盤】：http://adf.ly/1eOn7q （or） http://www.linkbucks.com/kjE
-<br>【百度密碼】：i8mk
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time.2016-09-29
+<br>【檔案名稱】：Reading Time.2016-09-30
 <br>【檔案音質】：高清
-<br>【節目暫停】：因播出『十七分之一的粉紅迷思』，本期節目暫停
-
-<br>【節目名稱】：十七分之一的粉紅迷思
-<br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
-<br>【節目主持】：阮子健
-<br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：One in Seventeenth’s Pink Myths.2016-09-29
-<br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOkvb （or） http://www.linkbucks.com/lOs
-<br>【360密碼】：ba3e
-<br>【百度雲盤】：http://adf.ly/1eOn3h （or） http://www.linkbucks.com/kD3
-<br>【百度密碼】：mmbb
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
-<br>【檔案名稱】：Summit.2016-09-29
+<br>【檔案名稱】：Summit.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1eOnTW （or） http://www.linkbucks.com/kNi
-<br>【360密碼】：e245
-<br>【百度雲盤】：http://adf.ly/1eOnob （or） http://www.linkbucks.com/kdY
-<br>【百度密碼】：w9j8
-<br>【MediaFire】：http://adf.ly/1ePRhj （or） http://www.linkbucks.com/APKY6
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-09-29
+<br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-09-30
 <br>【檔案音質】：高清
 <br>【節目暫停】：因準備『Yo！聖艾粒battle五行欠』，節目暫停兩星期
 
 <br>【節目名稱】：吹摯友
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：鄒凱光
 <br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：Blow Up.2016-09-29
+<br>【檔案名稱】：Blow Up.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1ePRcZ （or） http://www.linkbucks.com/APKiU
-<br>【360密碼】：afc1
-<br>【百度雲盤】：http://adf.ly/1ePRgD （or） http://www.linkbucks.com/APKbJ
-<br>【百度密碼】：s5ug
+<br>【360雲盤】： （or） 
+<br>【360密碼】：
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
-<br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-29
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-30
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
@@ -326,10 +317,10 @@
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Canto Pop.2016-09-29
+<br>【檔案名稱】：Canto Pop.2016-09-30
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
@@ -338,10 +329,10 @@
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
-<br>【節目日期】：2016-09-29
+<br>【節目日期】：2016-09-30
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
-<br>【檔案名稱】：Begin with Music.2016-09-29
+<br>【檔案名稱】：Begin with Music.2016-09-30
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
