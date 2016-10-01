@@ -297,8 +297,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Blow Up.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eRMns （or） http://www.linkbucks.com/ALbYB
+<br>【360密碼】：fde6
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -310,8 +310,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eRMl0 （or） http://www.linkbucks.com/ALbYQ
+<br>【360密碼】：e4c3
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -322,8 +322,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eRMme （or） http://www.linkbucks.com/ALbYJ
+<br>【360密碼】：2320
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -334,7 +334,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-09-30
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eRMps （or） http://www.linkbucks.com/ALbXx
+<br>【360密碼】：ec02
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
