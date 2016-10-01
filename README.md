@@ -93,8 +93,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2016-10-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eRXrd （or） http://www.linkbucks.com/AMDkR
+<br>【360密碼】：bf3f
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
