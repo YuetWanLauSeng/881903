@@ -121,6 +121,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eS505 （or） http://www.linkbucks.com/AMjus
 <br>【360密碼】：06ee
+<br>【百度雲盤】：http://adf.ly/1eSIf4 （or） http://www.linkbucks.com/AMtBq
+<br>【百度密碼】：1xcb
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -140,6 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eS4vz （or） http://www.linkbucks.com/AMj0T
 <br>【360密碼】：a172
+<br>【百度雲盤】：http://adf.ly/1eSIZC （or） http://www.linkbucks.com/AMtCC
+<br>【百度密碼】：5tc1
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -159,6 +163,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eS5fM （or） http://www.linkbucks.com/AMicH
 <br>【360密碼】：eb53
+<br>【百度雲盤】：http://adf.ly/1eSISF （or） http://www.linkbucks.com/AMtCT
+<br>【百度密碼】：myzq
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -169,6 +175,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eS5BM （or） http://www.linkbucks.com/AMjSP
 <br>【360密碼】：8f51
+<br>【百度雲盤】：http://adf.ly/1eSILJ （or） http://www.linkbucks.com/AMtCs
+<br>【百度密碼】：wvvc
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -177,17 +185,19 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-10-01
 <br>【檔案音質】：高清
-<br>【節目暫停】：改播『叱咤樂壇』
+<br>【節目暫停】：西瓜放假，改播『叱咤樂壇』
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
 <br>【節目日期】：2016-10-01
-<br>【節目主持】：梁文禮 | 謝茜嘉
+<br>【節目主持】：謝茜嘉
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：903 Music.2016-10-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eSHfR （or） http://www.linkbucks.com/AMtEK
+<br>【360密碼】：359e
+<br>【百度雲盤】：http://adf.ly/1eSIcN （or） http://www.linkbucks.com/AMtB5
+<br>【百度密碼】：8ept
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
