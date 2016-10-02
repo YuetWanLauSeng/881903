@@ -138,17 +138,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-10-02
 <br>【檔案音質】：高清
-<br>【節目暫停】：重播『Urban Touch』
-
-<br>【節目名稱】：Urban Touch
-<br>【節目頻道】：903
-<br>【節目日期】：2016-10-02
-<br>【節目主持】：急急子
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：Urban Touch.2016-10-02
-<br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eTbhp （or） http://www.linkbucks.com/ASLSA
+<br>【360密碼】：189b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -159,8 +150,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eTbfB （or） http://www.linkbucks.com/ASLUz
+<br>【360密碼】：048b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -171,8 +162,17 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【節目暫停】：麻利放假，改播『Urban Touch』
+
+<br>【節目名稱】：Urban Touch
+<br>【節目頻道】：903
+<br>【節目日期】：2016-10-02
+<br>【節目主持】：急急子
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：Urban Touch.2016-10-02.B
+<br>【檔案音質】：高清
+<br>【360雲盤】：http://adf.ly/1eTcBE （or） http://www.linkbucks.com/ASKKS
+<br>【360密碼】：2834
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -183,8 +183,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eTbb7 （or） http://www.linkbucks.com/ASLXh
+<br>【360密碼】：7ea1
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
