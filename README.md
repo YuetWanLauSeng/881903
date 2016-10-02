@@ -114,10 +114,10 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eTKRS （or） http://www.linkbucks.com/ARLoK
+<br>【360密碼】：28ff
+<br>【百度雲盤】：http://adf.ly/1eTKyl （or） http://www.linkbucks.com/ARJgp
+<br>【百度密碼】：jynm
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
