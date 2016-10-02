@@ -206,8 +206,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-10-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eT3fQ （or） http://www.linkbucks.com/AP5uW
+<br>【360密碼】：d6a5
 
 <br>【節目名稱】：Chi Chung's Class
 <br>【節目頻道】：903
@@ -216,8 +216,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-10-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eT3cY （or） http://www.linkbucks.com/AP57U
+<br>【360密碼】：d9fb
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -226,8 +226,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-10-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eT3bo （or） http://www.linkbucks.com/AP6B8
+<br>【360密碼】：1ad4
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
@@ -240,7 +240,7 @@
 <br>【360密碼】：5126
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1eT2WO （or） http://www.linkbucks.com/AQDvk
 
 <br>【節目名稱】：發式生活
 <br>【節目頻道】：881
@@ -249,8 +249,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-10-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eT3aW （or） http://www.linkbucks.com/AP6IJ
+<br>【360密碼】：3bc2
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -259,8 +259,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-10-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eT3ZH （or） http://www.linkbucks.com/AP6JV
+<br>【360密碼】：56c9
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -269,7 +269,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-01
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eT3eC （or） http://www.linkbucks.com/AP5xX
+<br>【360密碼】：9e4a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
