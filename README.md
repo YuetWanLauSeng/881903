@@ -126,10 +126,10 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eTVXa （or） http://www.linkbucks.com/ARv2W
+<br>【360密碼】：8a69
+<br>【百度雲盤】：http://adf.ly/1eTVcJ （or） http://www.linkbucks.com/ARvhV
+<br>【百度密碼】：uv7g
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -138,7 +138,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-10-02
 <br>【檔案音質】：高清
-<br>【節目暫停】：改播『Urban Touch』
+<br>【節目暫停】：重播『Urban Touch』
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
