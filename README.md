@@ -140,8 +140,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eTbhp （or） http://www.linkbucks.com/ASLSA
 <br>【360密碼】：189b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eTggX （or） http://www.linkbucks.com/Au6XE
+<br>【百度密碼】：bjmw
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -152,8 +152,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eTbfB （or） http://www.linkbucks.com/ASLUz
 <br>【360密碼】：048b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eThhZ （or） http://www.linkbucks.com/Au4PT
+<br>【百度密碼】：2ht3
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -173,8 +173,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eTcBE （or） http://www.linkbucks.com/ASKKS
 <br>【360密碼】：2834
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eThe6 （or） http://www.linkbucks.com/Au4bT
+<br>【百度密碼】：g7zg
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -185,8 +185,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eTbb7 （or） http://www.linkbucks.com/ASLXh
 <br>【360密碼】：7ea1
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eThjy （or） http://www.linkbucks.com/Au4F8
+<br>【百度密碼】：zkh5
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -195,10 +195,10 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eThID （or） http://www.linkbucks.com/Au5Vd
+<br>【360密碼】：439a
+<br>【百度雲盤】：http://adf.ly/1eTi2q （or） http://www.linkbucks.com/Au3Sy
+<br>【百度密碼】：te7p
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
