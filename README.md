@@ -209,8 +209,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eTtId （or） http://www.linkbucks.com/ASZI8
 <br>【360密碼】：764c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eU8bN （or） http://www.linkbucks.com/AwIEG
+<br>【百度密碼】：r563
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -221,8 +221,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eTtCg （or） http://www.linkbucks.com/ASZO5
 <br>【360密碼】：233b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eU8Zj （or） http://www.linkbucks.com/AwIEe
+<br>【百度密碼】：jsym
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -231,10 +231,10 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eU76d （or） http://www.linkbucks.com/BDxM5
+<br>【360密碼】：c9fa
+<br>【百度雲盤】：http://adf.ly/1eU8Vt （or） http://www.linkbucks.com/AwIFJ
+<br>【百度密碼】：dwy9
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -243,12 +243,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eU71E （or） http://www.linkbucks.com/BDxfm
+<br>【360密碼】：6402
+<br>【百度雲盤】：http://adf.ly/1eU8UV （or） http://www.linkbucks.com/AwIFa
+<br>【百度密碼】：ne6m
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -257,10 +255,10 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eU73N （or） http://www.linkbucks.com/BDxZ8
+<br>【360密碼】：8faf
+<br>【百度雲盤】：http://adf.ly/1eU8YB （or） http://www.linkbucks.com/AwIE0
+<br>【百度密碼】：dmif
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -269,10 +267,10 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eU6yp （or） http://www.linkbucks.com/BDxnq
+<br>【360密碼】：64e0
+<br>【百度雲盤】：http://adf.ly/1eU8XI （or） http://www.linkbucks.com/AwIE9
+<br>【百度密碼】：3uv7
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
