@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eT9lW （or） http://www.linkbucks.com/AQUzR
 <br>【360密碼】：f979
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eTG9E （or） http://www.linkbucks.com/AwuYb
+<br>【百度密碼】：y7v1
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eT9jC （or） http://www.linkbucks.com/AQU6S
 <br>【360密碼】：dcff
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eTG3J （or） http://www.linkbucks.com/AwusY
+<br>【百度密碼】：vvnb
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eT9mq （or） http://www.linkbucks.com/AQUxr
 <br>【360密碼】：cdba
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eTG44 （or） http://www.linkbucks.com/Awun0
+<br>【百度密碼】：etsa
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eT9nz （or） http://www.linkbucks.com/AQUxJ
 <br>【360密碼】：bfca
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eTFvh （or） http://www.linkbucks.com/AwyG6
+<br>【百度密碼】：tri5
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eT9kg （or） http://www.linkbucks.com/AQU1g
 <br>【360密碼】：aecc
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eTGCk （or） http://www.linkbucks.com/AwuNC
+<br>【百度密碼】：eeud
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eT9yG （or） http://www.linkbucks.com/AQUfg
 <br>【360密碼】：6fc0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eTG00 （or） http://www.linkbucks.com/AwyAg
+<br>【百度密碼】：a3kn
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -79,9 +79,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eTBul （or） http://www.linkbucks.com/AQLKY
 <br>【360密碼】：74dc
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1eTG2F （or） http://www.linkbucks.com/AwuuV
+<br>【百度密碼】：pipu
+<br>【MediaFire】：http://adf.ly/1eTHnI （or） http://www.linkbucks.com/ASWEf
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -90,10 +90,10 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eTGEt （or） http://www.linkbucks.com/AwtxH
+<br>【360密碼】：e8f9
+<br>【百度雲盤】：http://adf.ly/1eTGwj （or） http://www.linkbucks.com/AtNz8
+<br>【百度密碼】：vwqd
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -102,10 +102,10 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eTGGi （or） http://www.linkbucks.com/Awtrb
+<br>【360密碼】：9e8a
+<br>【百度雲盤】：http://adf.ly/1eTGsI （or） http://www.linkbucks.com/AtN83
+<br>【百度密碼】：an95
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
