@@ -207,8 +207,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eTtId （or） http://www.linkbucks.com/ASZI8
+<br>【360密碼】：764c
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -219,8 +219,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eTtCg （or） http://www.linkbucks.com/ASZO5
+<br>【360密碼】：233b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
