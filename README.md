@@ -279,8 +279,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eUjc9 （or） http://www.linkbucks.com/AUpjo
+<br>【360密碼】：6382
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -291,8 +291,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Sound of Silence.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eUjZI （or） http://www.linkbucks.com/AUpoi
+<br>【360密碼】：79de
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -303,8 +303,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eUjgU （or） http://www.linkbucks.com/AUpUK
+<br>【360密碼】：80e9
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -315,7 +315,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-02
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eUjeL （or） http://www.linkbucks.com/AUpf4
+<br>【360密碼】：6b5d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
