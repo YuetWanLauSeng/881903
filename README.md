@@ -239,10 +239,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eVtpO （or） http://www.linkbucks.com/AXaEK
+<br>【360密碼】：496b
+<br>【百度雲盤】：http://adf.ly/1eVtxO （or） http://www.linkbucks.com/AXaAj
+<br>【百度密碼】：tnjf
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -263,10 +263,19 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【節目暫停】：縫星期一改播『絕不放棄』
+
+<br>【節目名稱】：絕不放棄
+<br>【節目頻道】：881
+<br>【節目日期】：2016-10-03
+<br>【節目主持】：阮子健
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Never say Never.2016-10-03
+<br>【檔案音質】：高清
+<br>【360雲盤】：http://adf.ly/1eVtsx （or） http://www.linkbucks.com/AXaCi
+<br>【360密碼】：229e
+<br>【百度雲盤】：http://adf.ly/1eVu1o （or） http://www.linkbucks.com/AXZWB
+<br>【百度密碼】：4zqj
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -275,10 +284,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eVtn6 （or） http://www.linkbucks.com/AXaEi
+<br>【360密碼】：8fce
+<br>【百度雲盤】：http://adf.ly/1eVuVg （or） http://www.linkbucks.com/AXVlK
+<br>【百度密碼】：n2wb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
