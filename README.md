@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eVFgJ （or） http://www.linkbucks.com/AVipb
 <br>【360密碼】：5e03
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eVJ0u （or） http://www.linkbucks.com/AV3Cu
+<br>【百度密碼】：qzxn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -168,8 +168,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eVFt8 （or） http://www.linkbucks.com/AViW6
 <br>【360密碼】：94de
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eVJ2l （or） http://www.linkbucks.com/AV3CS
+<br>【百度密碼】：94i2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -179,8 +179,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-10-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eVKMQ （or） http://www.linkbucks.com/AVv8T
+<br>【360密碼】：b0b9
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
