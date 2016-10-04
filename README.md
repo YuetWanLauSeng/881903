@@ -217,8 +217,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eXe3g （or） http://www.linkbucks.com/AaSuu
 <br>【360密碼】：6027
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eXkgR （or） http://www.linkbucks.com/AaidV
+<br>【百度密碼】：3gae
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -229,8 +229,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eXe16 （or） http://www.linkbucks.com/AaTAm
 <br>【360密碼】：773e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eXkhl （or） http://www.linkbucks.com/Aaicz
+<br>【百度密碼】：918f
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -251,10 +251,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-10-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eXkdY （or） http://www.linkbucks.com/Aaij6
+<br>【360密碼】：d49b
+<br>【百度雲盤】：http://adf.ly/1eXkno （or） http://www.linkbucks.com/AaiYl
+<br>【百度密碼】：8q4m
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
