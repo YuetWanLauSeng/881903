@@ -310,8 +310,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eWcqY （or） http://www.linkbucks.com/AYpY0
+<br>【360密碼】：c766
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -322,8 +322,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eWchs （or） http://www.linkbucks.com/AYpde
+<br>【360密碼】：a56d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -334,7 +334,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-03
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eWclK （or） http://www.linkbucks.com/AYpaG
+<br>【360密碼】：e2d8
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
