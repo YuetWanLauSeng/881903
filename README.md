@@ -155,9 +155,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eXKaF （or） http://www.linkbucks.com/AZc2G
 <br>【360密碼】：a940
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1eXdGC （or） http://www.linkbucks.com/AaWKw
+<br>【百度密碼】：2kaj
+<br>【MediaFire】：http://adf.ly/1eXd9X （or） http://www.linkbucks.com/AaXKC
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -168,9 +168,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eXKYg （or） http://www.linkbucks.com/AZc6U
 <br>【360密碼】：d789
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1eXdBS （or） http://www.linkbucks.com/AaWdp
+<br>【百度密碼】：v2u9
+<br>【MediaFire】：http://adf.ly/1eXd79 （or） http://www.linkbucks.com/AaXQF
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eXLa3 （or） http://www.linkbucks.com/AZaoU
 <br>【360密碼】：75dd
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eXdIy （or） http://www.linkbucks.com/AaWE2
+<br>【百度密碼】：jahr
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -191,10 +191,10 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-10-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eXYAG （or） http://www.linkbucks.com/AaEQZ
+<br>【360密碼】：fc08
+<br>【百度雲盤】：http://adf.ly/1eXdDk （or） http://www.linkbucks.com/AaWXA
+<br>【百度密碼】：r5ve
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -203,10 +203,10 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-10-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eXY5h （or） http://www.linkbucks.com/AaEdm
+<br>【360密碼】：d51d
+<br>【百度雲盤】：http://adf.ly/1eXdOE （or） http://www.linkbucks.com/AaVqJ
+<br>【百度密碼】：5jde
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -215,8 +215,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eXe3g （or） http://www.linkbucks.com/AaSuu
+<br>【360密碼】：6027
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -227,8 +227,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eXe16 （or） http://www.linkbucks.com/AaTAm
+<br>【360密碼】：773e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
