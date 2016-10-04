@@ -239,10 +239,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eXrDY （or） http://www.linkbucks.com/AaqtX
+<br>【360密碼】：b97f
+<br>【百度雲盤】：http://adf.ly/1eXrGu （or） http://www.linkbucks.com/AaqYN
+<br>【百度密碼】：4gvn
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -263,10 +263,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eXrF5 （or） http://www.linkbucks.com/Aaqfv
+<br>【360密碼】：d8b5
+<br>【百度雲盤】：http://adf.ly/1eXrIK （or） http://www.linkbucks.com/AaqXW
+<br>【百度密碼】：mfjk
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -275,10 +275,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-04
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eXrAg （or） http://www.linkbucks.com/Aaqzl
+<br>【360密碼】：b047
+<br>【百度雲盤】：http://adf.ly/1eXrQ5 （or） http://www.linkbucks.com/AaqOU
+<br>【百度密碼】：bhyq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
