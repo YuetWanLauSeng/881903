@@ -1,4 +1,3 @@
-
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2016-10-05
@@ -8,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eYyZC （or） http://www.linkbucks.com/AbvBC
 <br>【360密碼】：ea23
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eZEDM （or） http://www.linkbucks.com/AcSFb
+<br>【百度密碼】：4ktj
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -20,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eYyfu （or） http://www.linkbucks.com/Abu9p
 <br>【360密碼】：6414
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eZEBL （or） http://www.linkbucks.com/AcSJ3
+<br>【百度密碼】：g1y5
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -32,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eYylD （or） http://www.linkbucks.com/Abu4A
 <br>【360密碼】：3964
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eZEFc （or） http://www.linkbucks.com/AcR82
+<br>【百度密碼】：hvjm
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -44,9 +43,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eYybF （or） http://www.linkbucks.com/AbvAl
 <br>【360密碼】：c565
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1eZECR （or） http://www.linkbucks.com/AcSIK
+<br>【百度密碼】：zb86
+<br>【MediaFire】：http://adf.ly/1eZ9fJ （or） http://www.linkbucks.com/AcANK
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -57,9 +56,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eYyj8 （or） http://www.linkbucks.com/Abu7L
 <br>【360密碼】：0114
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1eZEGk （or） http://www.linkbucks.com/AcRzb
+<br>【百度密碼】：wzhq
+<br>【MediaFire】：http://adf.ly/1eZ9gb （or） http://www.linkbucks.com/AcAH1
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -70,9 +69,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eYynd （or） http://www.linkbucks.com/Abu28
 <br>【360密碼】：06c4
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1eZEEl （or） http://www.linkbucks.com/AcR9U
+<br>【百度密碼】：q9vt
+<br>【MediaFire】：http://adf.ly/1eZ9EL （or） http://www.linkbucks.com/AcBLp
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -83,8 +82,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eYypl （or） http://www.linkbucks.com/Abu1m
 <br>【360密碼】：78a3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eZEJG （or） http://www.linkbucks.com/AcRuG
+<br>【百度密碼】：maxf
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -93,10 +92,10 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-10-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eZE8H （or） http://www.linkbucks.com/AcSV1
+<br>【360密碼】：4e87
+<br>【百度雲盤】：http://adf.ly/1eZEKd （or） http://www.linkbucks.com/AcRoW
+<br>【百度密碼】：kjnx
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -107,9 +106,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eYytb （or） http://www.linkbucks.com/AbuyJ
 <br>【360密碼】：9116
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1eZEIG （or） http://www.linkbucks.com/AcRwi
+<br>【百度密碼】：4wyz
+<br>【MediaFire】：http://adf.ly/1eZ9iE （or） http://www.linkbucks.com/AcAHQ
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -118,10 +117,10 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-10-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eZE4q （or） http://www.linkbucks.com/AcSjb
+<br>【360密碼】：d839
+<br>【百度雲盤】：http://adf.ly/1eZE9S （or） http://www.linkbucks.com/AcSPH
+<br>【百度密碼】：vcvr
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -130,10 +129,10 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-10-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eZE6g （or） http://www.linkbucks.com/AcSXo
+<br>【360密碼】：e9c4
+<br>【百度雲盤】：http://adf.ly/1eZEAH （or） http://www.linkbucks.com/AcSL9
+<br>【百度密碼】：2su5
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -142,10 +141,10 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-10-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eZDBw （or） http://www.linkbucks.com/Ab5rW
+<br>【360密碼】：d81d
+<br>【百度雲盤】：http://adf.ly/1eZEMN （or） http://www.linkbucks.com/AcRjx
+<br>【百度密碼】：8uyx
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
