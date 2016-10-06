@@ -233,8 +233,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1easAO （or） http://www.linkbucks.com/AijF3
+<br>【360密碼】：3a62
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -289,8 +289,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eas1W （or） http://www.linkbucks.com/Aijp3
+<br>【360密碼】：dc7c
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -301,8 +301,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eas3J （or） http://www.linkbucks.com/Aijb1
+<br>【360密碼】：d8c7
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -313,7 +313,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-05
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eas4W （or） http://www.linkbucks.com/AijTq
+<br>【360密碼】：ddc4
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
