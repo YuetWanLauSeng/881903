@@ -45,7 +45,7 @@
 <br>【360密碼】：2521
 <br>【百度雲盤】：http://adf.ly/1ebC1u （or） http://www.linkbucks.com/Ajfrp
 <br>【百度密碼】：a2a7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ebLTx （or） http://www.linkbucks.com/BFzWH
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -58,7 +58,7 @@
 <br>【360密碼】：c116
 <br>【百度雲盤】：http://adf.ly/1ebC6O （or） http://www.linkbucks.com/Ajfpy
 <br>【百度密碼】：dxag
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ebLVz （or） http://www.linkbucks.com/BFyy9
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -108,7 +108,7 @@
 <br>【360密碼】：4e56
 <br>【百度雲盤】：http://adf.ly/1ebC8B （or） http://www.linkbucks.com/Ajfpd
 <br>【百度密碼】：d3u6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ebLY0 （or） http://www.linkbucks.com/BFyqX
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -157,7 +157,7 @@
 <br>【360密碼】：d5de
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ebLRn （or） http://www.linkbucks.com/BFzct
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -179,8 +179,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-10-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ebLJe （or） http://www.linkbucks.com/BF0Sd
+<br>【360密碼】：82d5
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
