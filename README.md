@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ebHW0 （or） http://www.linkbucks.com/Ajp5U
 <br>【360密碼】：d5de
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ebj7q （or） http://www.linkbucks.com/AknS9
+<br>【百度密碼】：fj9b
 <br>【MediaFire】：http://adf.ly/1ebLRn （or） http://www.linkbucks.com/BFzct
 
 <br>【節目名稱】：口水多過浪花
@@ -168,8 +168,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ebHV5 （or） http://www.linkbucks.com/Ajp5Y
 <br>【360密碼】：1caa
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ebin5 （or） http://www.linkbucks.com/AkoUO
+<br>【百度密碼】：4jbm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -181,8 +181,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ebLJe （or） http://www.linkbucks.com/BF0Sd
 <br>【360密碼】：82d5
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ebjBc （or） http://www.linkbucks.com/AknMB
+<br>【百度密碼】：54na
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -193,8 +193,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ebSya （or） http://www.linkbucks.com/Aj8Qh
 <br>【360密碼】：902e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ebiGb （or） http://www.linkbucks.com/AkogI
+<br>【百度密碼】：3hg5
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -205,8 +205,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ebT08 （or） http://www.linkbucks.com/Aj8MH
 <br>【360密碼】：b884
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ebj4v （or） http://www.linkbucks.com/AknXD
+<br>【百度密碼】：9tgu
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -217,8 +217,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ebWl2 （or） http://www.linkbucks.com/AkVXB
 <br>【360密碼】：dcf0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ebi9W （or） http://www.linkbucks.com/AkpXU
+<br>【百度密碼】：t2cq
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -229,8 +229,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ebX0x （or） http://www.linkbucks.com/AkU0u
 <br>【360密碼】：d3b3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ebivx （or） http://www.linkbucks.com/AknxN
+<br>【百度密碼】：hxvy
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -251,10 +251,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-10-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ebjEX （or） http://www.linkbucks.com/Akm3x
+<br>【360密碼】：799c
+<br>【百度雲盤】：http://adf.ly/1ebjHr （or） http://www.linkbucks.com/AkmmT
+<br>【百度密碼】：67u3
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
