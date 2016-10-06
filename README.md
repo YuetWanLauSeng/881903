@@ -239,10 +239,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ebrox （or） http://www.linkbucks.com/Ak5HP
+<br>【360密碼】：437d
+<br>【百度雲盤】：http://adf.ly/1ebrfM （or） http://www.linkbucks.com/Ak5Ww
+<br>【百度密碼】：m6qe
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -272,10 +272,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：One in Seventeenth’s Pink Myths.2016-10-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ebrqv （or） http://www.linkbucks.com/Ak5HJ
+<br>【360密碼】：ecfc
+<br>【百度雲盤】：http://adf.ly/1ebrj8 （or） http://www.linkbucks.com/Ak5UD
+<br>【百度密碼】：9gsg
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -284,10 +284,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-06
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ebrn5 （or） http://www.linkbucks.com/Ak5SA
+<br>【360密碼】：0ed5
+<br>【百度雲盤】：http://adf.ly/1ebrdV （or） http://www.linkbucks.com/Ak5iA
+<br>【百度密碼】：896b
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
