@@ -71,7 +71,7 @@
 <br>【360密碼】：1aa7
 <br>【百度雲盤】：http://adf.ly/1ecxJs （or） http://www.linkbucks.com/Aoorf
 <br>【百度密碼】：dekh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1edB7K （or） http://www.linkbucks.com/ApqkF
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -153,8 +153,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1edBAp （or） http://www.linkbucks.com/ApqjW
+<br>【360密碼】：c714
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -166,8 +166,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1edBGY （or） http://www.linkbucks.com/ApqHU
+<br>【360密碼】：6fef
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -179,8 +179,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1edBCi （or） http://www.linkbucks.com/ApqeS
+<br>【360密碼】：3c43
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
