@@ -94,8 +94,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ecyFq （or） http://www.linkbucks.com/AomH6
 <br>【360密碼】：37cb
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ed07c （or） http://www.linkbucks.com/ApHQ4
+<br>【百度密碼】：xpsx
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -119,8 +119,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ecyDj （or） http://www.linkbucks.com/AomLX
 <br>【360密碼】：a323
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eczwA （or） http://www.linkbucks.com/ApJFD
+<br>【百度密碼】：i8rb
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -131,8 +131,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ecyEp （or） http://www.linkbucks.com/AomJj
 <br>【360密碼】：7172
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ed0Bf （or） http://www.linkbucks.com/ApHMT
+<br>【百度密碼】：s4cr
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -143,8 +143,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ecyJQ （or） http://www.linkbucks.com/AomCR
 <br>【360密碼】：a953
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ed02O （or） http://www.linkbucks.com/ApI8m
+<br>【百度密碼】：vqxj
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
