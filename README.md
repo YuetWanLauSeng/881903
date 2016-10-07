@@ -193,8 +193,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1edEGz （or） http://www.linkbucks.com/BOF5L
 <br>【360密碼】：ba8e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1edlwp （or） http://www.linkbucks.com/ArIpH
+<br>【百度密碼】：ki2t
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -205,8 +205,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1edE48 （or） http://www.linkbucks.com/BOHTk
 <br>【360密碼】：7ef9
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1edlvm （or） http://www.linkbucks.com/ArIrB
+<br>【百度密碼】：25pu
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -217,8 +217,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1edfJw （or） http://www.linkbucks.com/AqMqY
 <br>【360密碼】：361e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1edlnT （or） http://www.linkbucks.com/ArJ78
+<br>【百度密碼】：yitn
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -229,8 +229,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1edejt （or） http://www.linkbucks.com/AqMsW
 <br>【360密碼】：5052
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1edlpk （or） http://www.linkbucks.com/ArJ47
+<br>【百度密碼】：pick
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -239,8 +239,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1edl5T （or） http://www.linkbucks.com/ArNGA
+<br>【360密碼】：73e1
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -253,8 +253,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1edddR （or） http://www.linkbucks.com/AqM94
 <br>【360密碼】：a2f6
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1edlto （or） http://www.linkbucks.com/ArJEs
+<br>【百度密碼】：1id9
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -263,10 +263,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1edlDW （or） http://www.linkbucks.com/ArL34
+<br>【360密碼】：3333
+<br>【百度雲盤】：http://adf.ly/1edlzH （or） http://www.linkbucks.com/ArIcA
+<br>【百度密碼】：hfst
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -275,10 +275,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1edl3n （or） http://www.linkbucks.com/ArOFZ
+<br>【360密碼】：2fa3
+<br>【百度雲盤】：http://adf.ly/1edlRd （or） http://www.linkbucks.com/ArLZm
+<br>【百度密碼】：mmna
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
