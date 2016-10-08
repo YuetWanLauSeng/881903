@@ -133,8 +133,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1efFyB （or） http://www.linkbucks.com/BPWyG
 <br>【360密碼】：8cb7
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1efMt6 （or） http://www.linkbucks.com/AztTm
+<br>【百度密碼】：qx8r
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -154,8 +154,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1efIUU （or） http://www.linkbucks.com/AzBZ8
 <br>【360密碼】：a551
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1efNHJ （or） http://www.linkbucks.com/AztC5
+<br>【百度密碼】：dse8
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
