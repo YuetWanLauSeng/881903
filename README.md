@@ -77,8 +77,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eekyf （or） http://www.linkbucks.com/A0teY
+<br>【360密碼】：a3f8
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -98,8 +98,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eel1D （or） http://www.linkbucks.com/A0tUs
+<br>【360密碼】：406a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
