@@ -164,10 +164,10 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1efSwL （or） http://www.linkbucks.com/A0KTg
+<br>【360密碼】：22a6
+<br>【百度雲盤】：http://adf.ly/1efSyw （or） http://www.linkbucks.com/A0KId
+<br>【百度密碼】：vexk
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -176,10 +176,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1efSuv （or） http://www.linkbucks.com/A0KT8
+<br>【360密碼】：bec1
+<br>【百度雲盤】：http://adf.ly/1efT9h （or） http://www.linkbucks.com/A0JtP
+<br>【百度密碼】：ahf4
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
