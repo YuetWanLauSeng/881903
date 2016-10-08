@@ -241,8 +241,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1edl5T （or） http://www.linkbucks.com/ArNGA
 <br>【360密碼】：73e1
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eeMsb （or） http://www.linkbucks.com/AuFXu
+<br>【百度密碼】：ng8v
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -288,10 +288,10 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eeMh1 （or） http://www.linkbucks.com/AuFYz
+<br>【360密碼】：6f09
+<br>【百度雲盤】：http://adf.ly/1eeMmK （or） http://www.linkbucks.com/AuFYK
+<br>【百度密碼】：cyx2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -301,10 +301,10 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eeMiz （or） http://www.linkbucks.com/AuFYx
+<br>【360密碼】：3d53
+<br>【百度雲盤】：http://adf.ly/1eeMpP （or） http://www.linkbucks.com/AuFYA
+<br>【百度密碼】：qiuu
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -313,10 +313,10 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eeMes （or） http://www.linkbucks.com/AuFgB
+<br>【360密碼】：9236
+<br>【百度雲盤】：http://adf.ly/1eeMqV （or） http://www.linkbucks.com/AuFX4
+<br>【百度密碼】：m3fe
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -325,7 +325,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-07
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1eeMkX （or） http://www.linkbucks.com/AuFYe
+<br>【360密碼】：8ec2
+<br>【百度雲盤】：http://adf.ly/1eeMno （or） http://www.linkbucks.com/AuFYE
+<br>【百度密碼】：y435
