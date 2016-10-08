@@ -131,8 +131,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1efFyB （or） http://www.linkbucks.com/BPWyG
+<br>【360密碼】：8cb7
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
