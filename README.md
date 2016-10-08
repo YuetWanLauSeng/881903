@@ -53,8 +53,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Weekend Lucky Star.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eehY2 （or） http://www.linkbucks.com/A02hf
+<br>【360密碼】：2c05
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -65,8 +65,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：Stockaeologist.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eehPY （or） http://www.linkbucks.com/A03hG
+<br>【360密碼】：d1f9
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
