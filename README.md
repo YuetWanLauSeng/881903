@@ -212,8 +212,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1egMaW （or） http://www.linkbucks.com/A3ENL
+<br>【360密碼】：0760
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -224,8 +224,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1egMcB （or） http://www.linkbucks.com/A3EI4
+<br>【360密碼】：b583
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -237,8 +237,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1egMZS （or） http://www.linkbucks.com/A3ES9
+<br>【360密碼】：cd47
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -249,8 +249,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1egMdj （or） http://www.linkbucks.com/A3EEg
+<br>【360密碼】：7889
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -261,7 +261,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-08
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1egMY8 （or） http://www.linkbucks.com/A3Ei2
+<br>【360密碼】：1dcc
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
