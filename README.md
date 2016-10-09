@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvHZJJRTUDLme
 <br>【360密碼】：3a58
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1kV2jwV1
+<br>【百度密碼】：2nzv
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -172,8 +172,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvHJ4AKm3IWd4
 <br>【360密碼】：4d98
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1i5EyKpn
+<br>【百度密碼】：civ7
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -182,10 +182,10 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvHLPFkqQUSfe
+<br>【360密碼】：1b16
+<br>【百度雲盤】：http://pan.baidu.com/s/1mhKOavQ
+<br>【百度密碼】：i7p4
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -194,10 +194,10 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvHLq2EDDzyQh
+<br>【360密碼】：3ce3
+<br>【百度雲盤】：http://pan.baidu.com/s/1slvlCuh
+<br>【百度密碼】：avsn
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
