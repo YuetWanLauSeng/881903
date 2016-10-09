@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvmvZHfQ62Umz
 <br>【360密碼】：29e7
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1i43Zfgx
+<br>【百度密碼】：b79t
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvmvVMtmXWTQD
 <br>【360密碼】：73bb
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1bpbvt6n
+<br>【百度密碼】：k7xr
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvmvKJFYLMHUY
 <br>【360密碼】：29a1
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1nvpoedN
+<br>【百度密碼】：jfgv
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvmWp6IQjmc34
 <br>【360密碼】：917b
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1hsFgIGk
+<br>【百度密碼】：zj3a
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvmvwLa9XmPeF
 <br>【360密碼】：60f7
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1kUQVCX5
+<br>【百度密碼】：5t6c
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvmWIJhv2buL9
 <br>【360密碼】：2f3c
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1qYxp23M
+<br>【百度密碼】：dq3x
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -79,9 +79,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/Ocvmv9jQxkZB9j
 <br>【360密碼】：c0e4
-<br>【百度雲盤】：
-<br>【百度密碼】：
-<br>【MediaFire】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1dEMylsl
+<br>【百度密碼】：he9u
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：903
@@ -92,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvmUjasiw6Iry
 <br>【360密碼】：d480
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1gfJS4s7
+<br>【百度密碼】：6up7
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -104,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/OcvmUVjGYjvbNv
 <br>【360密碼】：ca57
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1nvGYzRN
+<br>【百度密碼】：nn6h
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -116,8 +115,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：https://yunpan.cn/Ocvm9HGj3cg8ae
 <br>【360密碼】：41ca
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1c2eHgh6
+<br>【百度密碼】：rn9a
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
