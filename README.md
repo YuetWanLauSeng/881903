@@ -206,8 +206,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvHScu3XZhwfW
+<br>【360密碼】：07a1
 <br>【百度雲盤】：
 <br>【百度密碼】：
 
@@ -218,8 +218,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvHSd3EshWsXR
+<br>【360密碼】：980a
 <br>【百度雲盤】：
 <br>【百度密碼】：
 
@@ -230,8 +230,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvHSMLZRrEyYJ
+<br>【360密碼】：2dab
 <br>【百度雲盤】：
 <br>【百度密碼】：
 
