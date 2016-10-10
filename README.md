@@ -181,9 +181,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eip04 （or） http://www.linkbucks.com/A9TU1
 <br>【360密碼】：b8ab
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1eizr8 （or） http://www.linkbucks.com/A9pgS
+<br>【百度密碼】：339g
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -194,8 +193,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eioxB （or） http://www.linkbucks.com/A9U0r
 <br>【360密碼】：97b4
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eizuG （or） http://www.linkbucks.com/A9pdu
+<br>【百度密碼】：qvx4
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -228,8 +227,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ej0ur （or） http://www.linkbucks.com/A9n03
+<br>【360密碼】：6a7e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -240,8 +239,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ej0xK （or） http://www.linkbucks.com/A9nvY
+<br>【360密碼】：53bf
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
