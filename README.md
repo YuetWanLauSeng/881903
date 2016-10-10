@@ -1,3 +1,5 @@
+ [align=center][b][size=5][color=#ff0000]重陽節快樂[/color][/size][/b][/align]
+
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
 <br>【節目日期】：2016-10-09
@@ -278,8 +280,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvFYyw3D5v5qr
+<br>【360密碼】：d933
 <br>【百度雲盤】：
 <br>【百度密碼】：
 
@@ -290,8 +292,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Sound of Silence.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvFYKXF8dhtgs
+<br>【360密碼】：63a0
 <br>【百度雲盤】：
 <br>【百度密碼】：
 
@@ -302,8 +304,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvFYfKhifKFYL
+<br>【360密碼】：f98c
 <br>【百度雲盤】：
 <br>【百度密碼】：
 
@@ -314,7 +316,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-09
 <br>【檔案音質】：高清
-<br>【360雲盤】：
-<br>【360密碼】：
+<br>【360雲盤】：https://yunpan.cn/OcvFYshSqeiSZS
+<br>【360密碼】：916d
 <br>【百度雲盤】：
 <br>【百度密碼】：
