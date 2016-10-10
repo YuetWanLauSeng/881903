@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiWwC （or） http://www.linkbucks.com/A8C0c
 <br>【360密碼】：1808
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eihKg （or） http://www.linkbucks.com/A8i1e
+<br>【百度密碼】：8mth
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiX7g （or） http://www.linkbucks.com/A8Cq5
 <br>【360密碼】：146d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eihM7 （or） http://www.linkbucks.com/A8iyX
+<br>【百度密碼】：eq8i
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiWkO （or） http://www.linkbucks.com/A8C2c
 <br>【360密碼】：9177
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eihMy （or） http://www.linkbucks.com/A8ixA
+<br>【百度密碼】：rrrq
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiX4T （or） http://www.linkbucks.com/A8Cyg
 <br>【360密碼】：8346
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eihJO （or） http://www.linkbucks.com/A8i8m
+<br>【百度密碼】：nug6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：鈺成千里目
@@ -56,8 +56,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiWmr （or） http://www.linkbucks.com/A8C1t
 <br>【360密碼】：08ac
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eihO2 （or） http://www.linkbucks.com/A8iwM
+<br>【百度密碼】：2a9i
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：早霸王
@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiWlr （or） http://www.linkbucks.com/A8C15
 <br>【360密碼】：9730
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eihPc （or） http://www.linkbucks.com/A8ic2
+<br>【百度密碼】：hhxp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
@@ -82,8 +82,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiWnP （or） http://www.linkbucks.com/A8C1b
 <br>【360密碼】：cbd6
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eihUK （or） http://www.linkbucks.com/A8iB2
+<br>【百度密碼】：x8i9
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -92,8 +92,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eihfi （or） http://www.linkbucks.com/A8g5C
+<br>【360密碼】：6135
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -106,8 +106,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiX9P （or） http://www.linkbucks.com/A8Cg4
 <br>【360密碼】：38e9
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eihRP （or） http://www.linkbucks.com/A8iZK
+<br>【百度密碼】：d4hy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -117,8 +117,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eii2c （or） http://www.linkbucks.com/A8dRP
+<br>【360密碼】：3b82
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -129,8 +129,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eihel （or） http://www.linkbucks.com/A8hfv
+<br>【360密碼】：cef6
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -141,8 +141,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eihjP （or） http://www.linkbucks.com/A8dUb
+<br>【360密碼】：e420
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
