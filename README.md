@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eiklu （or） http://www.linkbucks.com/A85Np
 <br>【360密碼】：fba8
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eioa5 （or） http://www.linkbucks.com/A88Jd
+<br>【百度密碼】：ec58
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -168,8 +168,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eikoL （or） http://www.linkbucks.com/A85LK
 <br>【360密碼】：1e6e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eioYV （or） http://www.linkbucks.com/A88TX
+<br>【百度密碼】：5q2j
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：都是我的流行曲
@@ -179,8 +179,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eip04 （or） http://www.linkbucks.com/A9TU1
+<br>【360密碼】：b8ab
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -192,8 +192,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eioxB （or） http://www.linkbucks.com/A9U0r
+<br>【360密碼】：97b4
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -204,8 +204,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eiy9s （or） http://www.linkbucks.com/A9XXI
+<br>【360密碼】：86ba
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -216,8 +216,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eiy4n （or） http://www.linkbucks.com/A9Xgh
+<br>【360密碼】：f8b8
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
