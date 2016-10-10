@@ -251,10 +251,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ejEYL （or） http://www.linkbucks.com/A97P1
+<br>【360密碼】：4c30
+<br>【百度雲盤】：http://adf.ly/1ejEeW （or） http://www.linkbucks.com/A960l
+<br>【百度密碼】：5y2b
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -284,10 +284,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Never say Never.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ejEaU （or） http://www.linkbucks.com/A97C6
+<br>【360密碼】：f8f4
+<br>【百度雲盤】：http://adf.ly/1ejEfw （or） http://www.linkbucks.com/A96Vg
+<br>【百度密碼】：an7m
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -296,10 +296,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-10
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ejEDc （or） http://www.linkbucks.com/A98Mk
+<br>【360密碼】：be2a
+<br>【百度雲盤】：http://adf.ly/1ejEch （or） http://www.linkbucks.com/A964l
+<br>【百度密碼】：frj8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
