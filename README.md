@@ -157,7 +157,7 @@
 <br>【360密碼】：378d
 <br>【百度雲盤】：http://adf.ly/1ekKrF （or） http://www.linkbucks.com/BDaqu
 <br>【百度密碼】：uq9n
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ekQHx （or） http://www.linkbucks.com/BDmgY
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -170,7 +170,7 @@
 <br>【360密碼】：bea7
 <br>【百度雲盤】：http://adf.ly/1ekKoy （or） http://www.linkbucks.com/BDarL
 <br>【百度密碼】：xszw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ekQDR （or） http://www.linkbucks.com/BDmiw
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ekKur （or） http://www.linkbucks.com/BDams
 <br>【360密碼】：78bf
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ekQ7n （or） http://www.linkbucks.com/BDn1Q
+<br>【百度密碼】：tra8
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -191,8 +191,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ekQqX （or） http://www.linkbucks.com/BDl5Z
+<br>【360密碼】：e6c6
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -203,8 +203,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ekQYU （or） http://www.linkbucks.com/BDmdd
+<br>【360密碼】：9eaf
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
