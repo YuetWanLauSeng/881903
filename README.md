@@ -193,8 +193,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ekQqX （or） http://www.linkbucks.com/BDl5Z
 <br>【360密碼】：e6c6
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ekTNh （or） http://www.linkbucks.com/BJVdF
+<br>【百度密碼】：nai9
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -205,8 +205,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ekQYU （or） http://www.linkbucks.com/BDmdd
 <br>【360密碼】：9eaf
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ekTMJ （or） http://www.linkbucks.com/BJVdM
+<br>【百度密碼】：s7dv
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -215,8 +215,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ekTHP （or） http://www.linkbucks.com/BJVeR
+<br>【360密碼】：f484
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -227,8 +227,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ekTPj （or） http://www.linkbucks.com/BJVc1
+<br>【360密碼】：cb26
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
