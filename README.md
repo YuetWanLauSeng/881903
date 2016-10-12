@@ -239,10 +239,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ekgm6 （or） http://www.linkbucks.com/BLws3
+<br>【360密碼】：6314
+<br>【百度雲盤】：http://adf.ly/1ekgf8 （or） http://www.linkbucks.com/BLxai
+<br>【百度密碼】：hpgi
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -263,10 +263,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ekgqY （or） http://www.linkbucks.com/BLwS2
+<br>【360密碼】：64a7
+<br>【百度雲盤】：http://adf.ly/1ekgi0 （or） http://www.linkbucks.com/BLxKk
+<br>【百度密碼】：eve2
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -275,10 +275,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1ekgVu （or） http://www.linkbucks.com/BLxyn
+<br>【360密碼】：b936
+<br>【百度雲盤】：http://adf.ly/1ekgcd （or） http://www.linkbucks.com/BLxiC
+<br>【百度密碼】：tfi6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -288,10 +288,10 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1elFQZ （or） http://www.linkbucks.com/BW5rF
+<br>【360密碼】：f910
+<br>【百度雲盤】：http://adf.ly/1elEtt （or） http://www.linkbucks.com/BW7B7
+<br>【百度密碼】：5ei8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -301,10 +301,10 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1elEoi （or） http://www.linkbucks.com/BW7jU
+<br>【360密碼】：39a0
+<br>【百度雲盤】：http://adf.ly/1elEwK （or） http://www.linkbucks.com/BW7Bc
+<br>【百度密碼】：6kp6
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -313,10 +313,10 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1elEXU （or） http://www.linkbucks.com/BW9bb
+<br>【360密碼】：be36
+<br>【百度雲盤】：http://adf.ly/1elExN （or） http://www.linkbucks.com/BW67e
+<br>【百度密碼】：kd6i
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -325,7 +325,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-11
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1elEdZ （or） http://www.linkbucks.com/BW8EE
+<br>【360密碼】：c256
+<br>【百度雲盤】：http://adf.ly/1elEsD （or） http://www.linkbucks.com/BW7F5
+<br>【百度密碼】：dsku
