@@ -212,10 +212,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-12
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1emJho （or） http://www.linkbucks.com/BUJhD
+<br>【360密碼】：e95e
+<br>【百度雲盤】：http://adf.ly/1emJVe （or） http://www.linkbucks.com/BUKBT
+<br>【百度密碼】：7aez
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -263,10 +263,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-12
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1emJHb （or） http://www.linkbucks.com/BUO6I
+<br>【360密碼】：7976
+<br>【百度雲盤】：http://adf.ly/1emJut （or） http://www.linkbucks.com/BUJWx
+<br>【百度密碼】：jnkr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
