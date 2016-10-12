@@ -155,9 +155,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eljuU （or） http://www.linkbucks.com/BSyJS
 <br>【360密碼】：c4fe
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1elzCl （or） http://www.linkbucks.com/BTIRI
+<br>【百度密碼】：d6d8
+<br>【MediaFire】：http://adf.ly/1elz0S （or） http://www.linkbucks.com/BTKoo
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -168,9 +168,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1elkB2 （or） http://www.linkbucks.com/BSwmQ
 <br>【360密碼】：df76
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1elzRz （or） http://www.linkbucks.com/BTG12
+<br>【百度密碼】：ivrq
+<br>【MediaFire】：http://adf.ly/1elyyq （or） http://www.linkbucks.com/BTLhT
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -179,10 +179,10 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-10-12
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1elxjW （or） http://www.linkbucks.com/BTmDS
+<br>【360密碼】：d97d
+<br>【百度雲盤】：http://adf.ly/1elzAs （or） http://www.linkbucks.com/BTInL
+<br>【百度密碼】：gthd
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -191,10 +191,10 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-10-12
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1elyOq （or） http://www.linkbucks.com/BTkV7
+<br>【360密碼】：5333
+<br>【百度雲盤】：http://adf.ly/1elz8a （or） http://www.linkbucks.com/BTI71
+<br>【百度密碼】：b886
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
