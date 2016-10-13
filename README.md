@@ -157,7 +157,7 @@
 <br>【360密碼】：c24a
 <br>【百度雲盤】：http://adf.ly/1enPPA （or） http://www.linkbucks.com/Bac9H
 <br>【百度密碼】：9ve2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ennGs （or） http://www.linkbucks.com/BehZA
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -170,7 +170,7 @@
 <br>【360密碼】：a1ad
 <br>【百度雲盤】：http://adf.ly/1enPQ3 （or） http://www.linkbucks.com/Bac7N
 <br>【百度密碼】：9q35
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ennFZ （or） http://www.linkbucks.com/BehZb
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -193,8 +193,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enfs8 （or） http://www.linkbucks.com/BbKtA
 <br>【360密碼】：1063
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ennOS （or） http://www.linkbucks.com/BegZw
+<br>【百度密碼】：764j
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -205,8 +205,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enftZ （or） http://www.linkbucks.com/BbKoj
 <br>【360密碼】：9d6a
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ennMp （or） http://www.linkbucks.com/BegaH
+<br>【百度密碼】：p32v
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -217,8 +217,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enm2w （or） http://www.linkbucks.com/Bppt8
 <br>【360密碼】：9f42
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ennIH （or） http://www.linkbucks.com/Begss
+<br>【百度密碼】：8ss8
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -229,8 +229,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enltN （or） http://www.linkbucks.com/BpqTE
 <br>【360密碼】：bba3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ennJc （or） http://www.linkbucks.com/Begdd
+<br>【百度密碼】：pj5h
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -253,8 +253,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enm52 （or） http://www.linkbucks.com/BpptA
 <br>【360密碼】：6d31
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ennL6 （or） http://www.linkbucks.com/Begal
+<br>【百度密碼】：v4fk
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
