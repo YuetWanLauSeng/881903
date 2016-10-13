@@ -45,7 +45,7 @@
 <br>【360密碼】：b6a3
 <br>【百度雲盤】：http://adf.ly/1enHLt （or） http://www.linkbucks.com/BaLfp
 <br>【百度密碼】：vece
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1enNKs （or） http://www.linkbucks.com/Boseu
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -71,7 +71,7 @@
 <br>【360密碼】：f3ca
 <br>【百度雲盤】：http://adf.ly/1enHRR （or） http://www.linkbucks.com/BaLLr
 <br>【百度密碼】：uc9x
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1enNJc （or） http://www.linkbucks.com/Bose4
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -94,8 +94,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enHgj （or） http://www.linkbucks.com/BaKbn
 <br>【360密碼】：15d2
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1enNFo （or） http://www.linkbucks.com/Bosfg
+<br>【百度密碼】：ejsr
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -119,8 +119,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enHcA （or） http://www.linkbucks.com/BaKk8
 <br>【360密碼】：eef2
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1enNIF （or） http://www.linkbucks.com/BosfD
+<br>【百度密碼】：8mrc
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -131,8 +131,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enHf9 （or） http://www.linkbucks.com/BaKeH
 <br>【360密碼】：9d00
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1enNH8 （or） http://www.linkbucks.com/Bosfb
+<br>【百度密碼】：f4dv
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -143,8 +143,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1enHad （or） http://www.linkbucks.com/BaKnT
 <br>【360密碼】：5a96
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1enNEj （or） http://www.linkbucks.com/Bosfz
+<br>【百度密碼】：75gb
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -153,8 +153,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-10-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1enNNJ （or） http://www.linkbucks.com/Bosej
+<br>【360密碼】：c24a
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -166,8 +166,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-10-13
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1enNyV （or） http://www.linkbucks.com/BosUh
+<br>【360密碼】：a1ad
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
