@@ -141,8 +141,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-10-14
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1epGi2 （or） http://www.linkbucks.com/BfvGC
-<br>【360密碼】：1933
+<br>【360雲盤】：http://adf.ly/1epQmr （or） http://www.linkbucks.com/Bf2Ff
+<br>【360密碼】：ca26
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -166,8 +166,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-10-14
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1epGjv （or） http://www.linkbucks.com/BfvFj
-<br>【360密碼】：9dd2
+<br>【360雲盤】：http://adf.ly/1epQrj （or） http://www.linkbucks.com/Bf13g
+<br>【360密碼】：f207
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -191,8 +191,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-10-14
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1epQCv （or） http://www.linkbucks.com/Bf3YK
+<br>【360密碼】：b45d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -227,8 +227,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-14
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1epQcW （or） http://www.linkbucks.com/Bf2NA
+<br>【360密碼】：d2a0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
