@@ -77,8 +77,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eqqSt （or） http://www.linkbucks.com/BmFXf
+<br>【360密碼】：c017
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -89,8 +89,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eqqJy （or） http://www.linkbucks.com/BmF1s
+<br>【360密碼】：d797
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -101,8 +101,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eqqS0 （or） http://www.linkbucks.com/BmFea
+<br>【360密碼】：a760
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -113,8 +113,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eqqOy （or） http://www.linkbucks.com/BmFjW
+<br>【360密碼】：e717
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
