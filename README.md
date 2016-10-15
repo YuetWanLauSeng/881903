@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqiJC （or） http://www.linkbucks.com/BkMxg
 <br>【360密碼】：26f1
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqrEW （or） http://www.linkbucks.com/BmupY
+<br>【百度密碼】：xd6q
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqiL9 （or） http://www.linkbucks.com/BkMdG
 <br>【360密碼】：c5c8
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqrB3 （or） http://www.linkbucks.com/Bmuy3
+<br>【百度密碼】：dvjs
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqiK7 （or） http://www.linkbucks.com/BkMhF
 <br>【360密碼】：0a44
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqrFT （or） http://www.linkbucks.com/Bmukc
+<br>【百度密碼】：v19e
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqiI0 （or） http://www.linkbucks.com/BkNTr
 <br>【360密碼】：be6c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqrCR （or） http://www.linkbucks.com/Bmutg
+<br>【百度密碼】：i3ba
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqiER （or） http://www.linkbucks.com/Bkqa8
 <br>【360密碼】：b82d
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqr9z （or） http://www.linkbucks.com/BmvNv
+<br>【百度密碼】：q1ua
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqiFx （or） http://www.linkbucks.com/BknmB
 <br>【360密碼】：8325
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqrD5 （or） http://www.linkbucks.com/Bmuqs
+<br>【百度密碼】：cx94
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqqSt （or） http://www.linkbucks.com/BmFXf
 <br>【360密碼】：c017
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqr3x （or） http://www.linkbucks.com/BmvmN
+<br>【百度密碼】：ci9f
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqqJy （or） http://www.linkbucks.com/BmF1s
 <br>【360密碼】：d797
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqr6a （or） http://www.linkbucks.com/BmvRl
+<br>【百度密碼】：a2gy
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -103,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqqS0 （or） http://www.linkbucks.com/BmFea
 <br>【360密碼】：a760
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqr8f （or） http://www.linkbucks.com/BmvOy
+<br>【百度密碼】：3fdd
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -115,8 +115,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eqqOy （or） http://www.linkbucks.com/BmFjW
 <br>【360密碼】：e717
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1eqr7i （or） http://www.linkbucks.com/BmvO9
+<br>【百度密碼】：u5t3
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -125,8 +125,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erSk0 （or） http://www.linkbucks.com/Bpeny
+<br>【360密碼】：d621
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
