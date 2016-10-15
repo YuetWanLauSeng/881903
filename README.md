@@ -185,8 +185,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erZbM （or） http://www.linkbucks.com/BqPVT
+<br>【360密碼】：842f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -197,8 +197,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erZXA （or） http://www.linkbucks.com/BqPem
+<br>【360密碼】：585d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
