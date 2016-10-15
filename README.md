@@ -209,8 +209,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erdHk （or） http://www.linkbucks.com/BraD4
+<br>【360密碼】：9c33
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -221,8 +221,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erdDb （or） http://www.linkbucks.com/BraTT
+<br>【360密碼】：b7fc
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
