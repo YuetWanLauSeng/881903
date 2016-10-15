@@ -137,8 +137,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erWPa （or） http://www.linkbucks.com/BqZVs
+<br>【360密碼】：e58c
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -149,8 +149,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erWN9 （or） http://www.linkbucks.com/BqZe9
+<br>【360密碼】：36d9
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -161,8 +161,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erWzD （or） http://www.linkbucks.com/BqYrk
+<br>【360密碼】：b903
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,8 +173,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1erWWM （or） http://www.linkbucks.com/BqZFb
+<br>【360密碼】：d3ca
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
