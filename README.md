@@ -104,8 +104,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1esmtC （or） http://www.linkbucks.com/AKbkv
 <br>【360密碼】：a89e
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1esqfO （or） http://www.linkbucks.com/AKa04
+<br>【百度密碼】：1xat
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -114,8 +114,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1et0Ju （or） http://www.linkbucks.com/AKXct
+<br>【360密碼】：be93
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,8 +126,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1et0ST （or） http://www.linkbucks.com/AKXb5
+<br>【360密碼】：01d1
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,8 +138,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1et0OU （or） http://www.linkbucks.com/AKXcV
+<br>【360密碼】：47e3
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
