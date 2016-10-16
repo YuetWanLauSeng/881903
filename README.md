@@ -233,8 +233,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1esPte （or） http://www.linkbucks.com/BxB3b
+<br>【360密碼】：08f4
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -258,8 +258,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1esPvA （or） http://www.linkbucks.com/BxBpq
+<br>【360密碼】：da27
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -270,8 +270,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1esPzN （or） http://www.linkbucks.com/BxBXw
+<br>【360密碼】：5515
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -282,7 +282,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-15
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1esPsR （or） http://www.linkbucks.com/BxDUT
+<br>【360密碼】：21c2
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
