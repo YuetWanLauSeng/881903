@@ -174,10 +174,10 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1etHlO （or） http://www.linkbucks.com/AKTtj
+<br>【360密碼】：2d5f
+<br>【百度雲盤】：http://adf.ly/1etHgO （or） http://www.linkbucks.com/AKTuq
+<br>【百度密碼】：r93j
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -186,8 +186,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1etId8 （or） http://www.linkbucks.com/AKTgW
+<br>【360密碼】：ba44
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,8 +198,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1etHrc （or） http://www.linkbucks.com/AKTre
+<br>【360密碼】：2f6d
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -210,8 +210,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1etHpO （or） http://www.linkbucks.com/AKTsa
+<br>【360密碼】：bd5e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
