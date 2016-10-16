@@ -116,8 +116,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1et0Ju （or） http://www.linkbucks.com/AKXct
 <br>【360密碼】：be93
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1et4w5 （or） http://www.linkbucks.com/AKWrf
+<br>【百度密碼】：fach
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -128,8 +128,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1et0ST （or） http://www.linkbucks.com/AKXb5
 <br>【360密碼】：01d1
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1et4zy （or） http://www.linkbucks.com/AKWq4
+<br>【百度密碼】：5nk2
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -140,8 +140,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1et0OU （or） http://www.linkbucks.com/AKXcV
 <br>【360密碼】：47e3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1et4xV （or） http://www.linkbucks.com/AKWrO
+<br>【百度密碼】：gdn8
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -150,10 +150,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1et4mY （or） http://www.linkbucks.com/AKWsp
+<br>【360密碼】：8fe8
+<br>【百度雲盤】：http://adf.ly/1et4uJ （or） http://www.linkbucks.com/AKWrl
+<br>【百度密碼】：pjng
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -162,10 +162,10 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1et4qS （or） http://www.linkbucks.com/AKWsE
+<br>【360密碼】：54e1
+<br>【百度雲盤】：http://adf.ly/1et4sX （or） http://www.linkbucks.com/AKWr4
+<br>【百度密碼】：6a3v
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
