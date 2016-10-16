@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1esbOb （or） http://www.linkbucks.com/By2Y8
 <br>【360密碼】：e4e7
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1esjj4 （or） http://www.linkbucks.com/AKcJM
+<br>【百度密碼】：qetk
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1esawN （or） http://www.linkbucks.com/By2fQ
 <br>【360密碼】：63a0
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1esjXb （or） http://www.linkbucks.com/AKcLS
+<br>【百度密碼】：bv6f
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1esbQs （or） http://www.linkbucks.com/By2Nz
 <br>【360密碼】：61d9
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1esjk7 （or） http://www.linkbucks.com/AKcI7
+<br>【百度密碼】：vt3a
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1esa9V （or） http://www.linkbucks.com/BxtOm
 <br>【360密碼】：35f4
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1esjTK （or） http://www.linkbucks.com/AKcTo
+<br>【百度密碼】：y9uk
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1esbMM （or） http://www.linkbucks.com/By2c3
 <br>【360密碼】：92dd
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1esjl5 （or） http://www.linkbucks.com/AKcIS
+<br>【百度密碼】：uaih
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1esaBB （or） http://www.linkbucks.com/By4VC
 <br>【360密碼】：9e16
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1esjhe （or） http://www.linkbucks.com/AKcJZ
+<br>【百度密碼】：rgki
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1esbSa （or） http://www.linkbucks.com/By2Jc
 <br>【360密碼】：0208
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1esjgF （or） http://www.linkbucks.com/AKcJz
+<br>【百度密碼】：b2ji
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：無定向喪煲病狂
@@ -90,10 +90,10 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1esl2f （or） http://www.linkbucks.com/AKb8V
+<br>【360密碼】：025c
+<br>【百度雲盤】：http://adf.ly/1esmPU （or） http://www.linkbucks.com/AKb0P
+<br>【百度密碼】：sn7a
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -102,8 +102,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-10-16
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1esmtC （or） http://www.linkbucks.com/AKbkv
+<br>【360密碼】：a89e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
