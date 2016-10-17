@@ -156,7 +156,7 @@
 <br>【360密碼】：1365
 <br>【百度雲盤】：http://adf.ly/1euOiB （or） http://www.linkbucks.com/AKqq8
 <br>【百度密碼】：4bgh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1euaaL （or） http://www.linkbucks.com/su8
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -169,7 +169,7 @@
 <br>【360密碼】：304a
 <br>【百度雲盤】：http://adf.ly/1euOhC （or） http://www.linkbucks.com/AKqra
 <br>【百度密碼】：netu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1euabq （or） http://www.linkbucks.com/su0
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -238,8 +238,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eujxE （or） http://www.linkbucks.com/AHtlX
+<br>【360密碼】：5a69
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -250,8 +250,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-10-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eud1g （or） http://www.linkbucks.com/sT1
+<br>【360密碼】：b700
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -262,8 +262,17 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：縫星期一播出『絕不放棄』 
+
+<br>【節目名稱】：絕不放棄
+<br>【節目頻道】：881
+<br>【節目日期】：2016-10-17
+<br>【節目主持】：阮子健
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Never Say Never.2016-10-17
+<br>【檔案音質】：高清
+<br>【360雲盤】：http://adf.ly/1eujtm （or） http://www.linkbucks.com/AH08e
+<br>【360密碼】：ba86
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -274,8 +283,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1eukQU （or） http://www.linkbucks.com/AHLPe
+<br>【360密碼】：bbcb
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
