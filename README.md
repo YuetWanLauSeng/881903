@@ -82,7 +82,7 @@
 <br>【360雲盤】：http://adf.ly/1eva8x （or） http://www.linkbucks.com/AKUvI
 <br>【360密碼】：472b
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】： 
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -91,8 +91,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ew6Dv （or） http://www.linkbucks.com/AKcqw
+<br>【360密碼】：b47e
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -116,8 +116,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ew65R （or） http://www.linkbucks.com/AKcuH
+<br>【360密碼】：1609
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -128,8 +128,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ew6C7 （or） http://www.linkbucks.com/AKcqy
+<br>【360密碼】：a52b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -140,8 +140,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ew63P （or） http://www.linkbucks.com/AKcus
+<br>【360密碼】：2f59
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
