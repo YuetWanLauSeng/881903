@@ -45,7 +45,7 @@
 <br>【360密碼】：9284
 <br>【百度雲盤】：http://adf.ly/1ew79K （or） http://www.linkbucks.com/AKcnY
 <br>【百度密碼】：gywt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ew7X1 （or） http://www.linkbucks.com/AKclt
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -70,7 +70,7 @@
 <br>【360密碼】：5ffa
 <br>【百度雲盤】：http://adf.ly/1ew7DS （or） http://www.linkbucks.com/AKcnM
 <br>【百度密碼】：xhhq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ew7Vt （or） http://www.linkbucks.com/AKcly
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -107,7 +107,7 @@
 <br>【360密碼】：b575
 <br>【百度雲盤】：http://adf.ly/1ew7HU （or） http://www.linkbucks.com/AKcm5
 <br>【百度密碼】：jea4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ew7Z1 （or） http://www.linkbucks.com/AKclq
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -178,8 +178,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ew7dk （or） http://www.linkbucks.com/AKckw
+<br>【360密碼】：caaf
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
