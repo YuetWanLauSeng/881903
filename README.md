@@ -1,3 +1,4 @@
+
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2016-10-17
@@ -287,7 +288,7 @@
 <br>【360密碼】：bbcb
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1evFrQ （or） http://www.linkbucks.com/AKXSN
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -296,11 +297,11 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-10-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1evFkL （or） http://www.linkbucks.com/AKXTA
+<br>【360密碼】：46a0
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1evFqr （or） http://www.linkbucks.com/AKXSV
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -309,8 +310,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1evFm1 （or） http://www.linkbucks.com/AKXSu
+<br>【360密碼】：238b
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -321,8 +322,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1evFit （or） http://www.linkbucks.com/AKXTO
+<br>【360密碼】：e745
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -333,7 +334,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-17
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1evFhi （or） http://www.linkbucks.com/AKXTV
+<br>【360密碼】：b0dd
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
