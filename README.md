@@ -45,7 +45,7 @@
 <br>【360密碼】：4bc2
 <br>【百度雲盤】：http://adf.ly/1exCnr （or） http://www.linkbucks.com/AKhLP
 <br>【百度密碼】：qqdp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1exnwe （or） http://www.linkbucks.com/AKc8W
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -70,7 +70,7 @@
 <br>【360密碼】：09b6
 <br>【百度雲盤】：http://adf.ly/1exCov （or） http://www.linkbucks.com/AKhLF
 <br>【百度密碼】：87hx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1exnzC （or） http://www.linkbucks.com/AKc8G
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -107,7 +107,7 @@
 <br>【360密碼】：501c
 <br>【百度雲盤】：http://adf.ly/1exCtD （or） http://www.linkbucks.com/AKhKm
 <br>【百度密碼】：d51a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1exo7l （or） http://www.linkbucks.com/AKc7H
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -154,9 +154,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1exLvf （or） http://www.linkbucks.com/AJwRl
 <br>【360密碼】：8f58
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1exoYA （or） http://www.linkbucks.com/AKc5Q
+<br>【百度密碼】：4t3p
+<br>【MediaFire】：http://adf.ly/1exo3N （or） http://www.linkbucks.com/AKc7s
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -167,9 +167,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1exLtt （or） http://www.linkbucks.com/AKf6w
 <br>【360密碼】：4ff4
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1exoVS （or） http://www.linkbucks.com/AKc5W
+<br>【百度密碼】：svtd
+<br>【MediaFire】：http://adf.ly/1exo1G （or） http://www.linkbucks.com/AKc74
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -180,8 +180,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1exQEx （or） http://www.linkbucks.com/AKfZN
 <br>【360密碼】：7715
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1exoa1 （or） http://www.linkbucks.com/AKc5I
+<br>【百度密碼】：b5z7
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1exUl5 （or） http://www.linkbucks.com/AKe4D
 <br>【360密碼】：51e3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1exoUT （or） http://www.linkbucks.com/AKc5b
+<br>【百度密碼】：qqey
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -211,10 +211,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1exoMy （or） http://www.linkbucks.com/AKc6J
+<br>【360密碼】：b36c
+<br>【百度雲盤】：http://adf.ly/1exoSo （or） http://www.linkbucks.com/AKc5p
+<br>【百度密碼】：ngq3
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -232,10 +232,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1exoKv （or） http://www.linkbucks.com/AKc6X
+<br>【360密碼】：4db2
+<br>【百度雲盤】：http://adf.ly/1exoPl （or） http://www.linkbucks.com/AKc56
+<br>【百度密碼】：q59e
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -262,10 +262,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-19
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【360雲盤】：http://adf.ly/1exoAm （or） http://www.linkbucks.com/AKc65
+<br>【360密碼】：2ee0
+<br>【百度雲盤】：http://adf.ly/1exocv （or） http://www.linkbucks.com/AKc4L
+<br>【百度密碼】：58ub
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
