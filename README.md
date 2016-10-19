@@ -238,8 +238,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ewsMp （or） http://www.linkbucks.com/AKsFU
+<br>【360密碼】：b076
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -262,8 +262,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ewsLE （or） http://www.linkbucks.com/AKsGm
+<br>【360密碼】：46f2
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -274,8 +274,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ewsOg （or） http://www.linkbucks.com/AKsEk
+<br>【360密碼】：2371
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -287,8 +287,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ewsPt （or） http://www.linkbucks.com/AKsCw
+<br>【360密碼】：a138
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -300,8 +300,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ewsH8 （or） http://www.linkbucks.com/AKsJE
+<br>【360密碼】：7530
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -312,8 +312,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ewsJj （or） http://www.linkbucks.com/AKsHN
+<br>【360密碼】：1f7f
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -324,7 +324,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-18
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ewsIM （or） http://www.linkbucks.com/AKsID
+<br>【360密碼】：9670
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
