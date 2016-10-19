@@ -118,8 +118,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ew65R （or） http://www.linkbucks.com/AKcuH
 <br>【360密碼】：1609
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvbl （or） http://www.linkbucks.com/AKqDA
+<br>【百度密碼】：ka3r
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -142,8 +142,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ew63P （or） http://www.linkbucks.com/AKcus
 <br>【360密碼】：2f59
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvUY （or） http://www.linkbucks.com/AKqKK
+<br>【百度密碼】：q8fg
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -154,9 +154,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ew7Ld （or） http://www.linkbucks.com/AKcmY
 <br>【360密碼】：0a5b
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1ewvaG （or） http://www.linkbucks.com/AKqDu
+<br>【百度密碼】：d2ut
+<br>【MediaFire】：http://adf.ly/1ewvFM （or） http://www.linkbucks.com/AKqZs
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -167,9 +167,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ew7P0 （or） http://www.linkbucks.com/AKcmM
 <br>【360密碼】：269c
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1ewvTd （or） http://www.linkbucks.com/AKqLF
+<br>【百度密碼】：fseu
+<br>【MediaFire】：http://adf.ly/1ewv6z （or） http://www.linkbucks.com/AKqln
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewCCt （or） http://www.linkbucks.com/AKcLP
 <br>【360密碼】：86a4
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvRx （or） http://www.linkbucks.com/AKqLW
+<br>【百度密碼】：dvmc
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -204,8 +204,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewC1Z （or） http://www.linkbucks.com/AKcN9
 <br>【360密碼】：6bcb
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvYu （or） http://www.linkbucks.com/AKqEV
+<br>【百度密碼】：yuym
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -216,8 +216,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewIJE （or） http://www.linkbucks.com/AKbYg
 <br>【360密碼】：aa39
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvWn （or） http://www.linkbucks.com/AKqG0
+<br>【百度密碼】：m9cx
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -228,8 +228,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewILG （or） http://www.linkbucks.com/AKbYb
 <br>【360密碼】：fb31
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvVR （or） http://www.linkbucks.com/AKqJA
+<br>【百度密碼】：t3jm
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -252,8 +252,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewJ7o （or） http://www.linkbucks.com/AKbUp
 <br>【360密碼】：0435
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvY1 （or） http://www.linkbucks.com/AKqFK
+<br>【百度密碼】：qp32
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -264,8 +264,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewsLE （or） http://www.linkbucks.com/AKsGm
 <br>【360密碼】：46f2
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvN2 （or） http://www.linkbucks.com/AKqRn
+<br>【百度密碼】：nvat
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -276,9 +276,9 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewsOg （or） http://www.linkbucks.com/AKsEk
 <br>【360密碼】：2371
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1ewvLq （or） http://www.linkbucks.com/AKqSR
+<br>【百度密碼】：iufv
+<br>【MediaFire】：http://adf.ly/1ewvH8 （or） http://www.linkbucks.com/AKqXo
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -291,7 +291,7 @@
 <br>【360密碼】：a138
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ewvEC （or） http://www.linkbucks.com/AKqc4
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -302,8 +302,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewsH8 （or） http://www.linkbucks.com/AKsJE
 <br>【360密碼】：7530
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvQ8 （or） http://www.linkbucks.com/AKqNY
+<br>【百度密碼】：p9h8
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -314,8 +314,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1ewsJj （or） http://www.linkbucks.com/AKsHN
 <br>【360密碼】：1f7f
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ewvOl （or） http://www.linkbucks.com/AKqQk
+<br>【百度密碼】：f49s
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
