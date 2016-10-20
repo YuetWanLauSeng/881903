@@ -194,6 +194,7 @@
 <br>【360密碼】：78e9
 <br>【百度雲盤】：http://adf.ly/1ez2iy （or） http://www.linkbucks.com/AKuh0
 <br>【百度密碼】：r4ag
+<br>【MediaFire】：http://adf.ly/1ezBng （or） http://www.linkbucks.com/AKtHu
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -206,6 +207,7 @@
 <br>【360密碼】：edc3
 <br>【百度雲盤】：http://adf.ly/1ez2mP （or） http://www.linkbucks.com/AKugR
 <br>【百度密碼】：r1zs
+<br>【MediaFire】：http://adf.ly/1ezBmH （or） http://www.linkbucks.com/AKtID
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -214,8 +216,6 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
 <br>【百度雲盤】：http://adf.ly/1ez2ke （or） http://www.linkbucks.com/AKuhq
 <br>【百度密碼】：ixwm
 
@@ -226,10 +226,9 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】：http://adf.ly/1ez2wR （or） http://www.linkbucks.com/AKugE
-<br>【360密碼】：aima
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ez2wR （or） http://www.linkbucks.com/AKugE
+<br>【百度密碼】：aima
+<br>【MediaFire】：http://adf.ly/1ezBp6 （or） http://www.linkbucks.com/AKtHq
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -238,10 +237,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ezBaB （or） http://www.linkbucks.com/23m7
+<br>【百度密碼】：wfyb
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -250,10 +247,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
 <br>【百度雲盤】：http://adf.ly/1ez5Yg （or） http://www.linkbucks.com/AKt7q
 <br>【百度密碼】：5dbk
+<br>【MediaFire】：http://adf.ly/1ezBl7 （or） http://www.linkbucks.com/AKtIS
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -271,10 +267,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：One in Seventeenth’s Pink Myths.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ezBc8 （or） http://www.linkbucks.com/ABvkb
+<br>【百度密碼】：nt2s
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -283,10 +277,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ezBYd （or） http://www.linkbucks.com/AENlp
+<br>【百度密碼】：f9w1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -296,8 +288,6 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
@@ -309,8 +299,6 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -321,8 +309,6 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -333,7 +319,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
