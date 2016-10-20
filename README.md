@@ -192,8 +192,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eyyfc （or） http://www.linkbucks.com/cfM
 <br>【360密碼】：78e9
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ez2iy （or） http://www.linkbucks.com/AKuh0
+<br>【百度密碼】：r4ag
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -204,8 +204,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】：http://adf.ly/1eyyhv （or） http://www.linkbucks.com/bUy
 <br>【360密碼】：edc3
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ez2mP （or） http://www.linkbucks.com/AKugR
+<br>【百度密碼】：r1zs
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -216,8 +216,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ez2ke （or） http://www.linkbucks.com/AKuhq
+<br>【百度密碼】：ixwm
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -226,8 +226,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-20
 <br>【檔案音質】：高清
-<br>【360雲盤】： （or） 
-<br>【360密碼】：
+<br>【360雲盤】：http://adf.ly/1ez2wR （or） http://www.linkbucks.com/AKugE
+<br>【360密碼】：aima
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 
@@ -252,8 +252,8 @@
 <br>【檔案音質】：高清
 <br>【360雲盤】： （or） 
 <br>【360密碼】：
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ez5Yg （or） http://www.linkbucks.com/AKt7q
+<br>【百度密碼】：5dbk
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
