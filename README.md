@@ -173,8 +173,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0K04 （or） http://www.linkbucks.com/BfZDH
+<br>【百度密碼】：batn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -184,8 +184,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0JxC （or） http://www.linkbucks.com/BfZH1
+<br>【百度密碼】：5uih
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -195,8 +195,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0Jw8 （or） http://www.linkbucks.com/BfaE8
+<br>【百度密碼】：a1yp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -206,8 +206,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0JyR （or） http://www.linkbucks.com/BfZEq
+<br>【百度密碼】：p2hi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -216,6 +216,15 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-21
+<br>【檔案音質】：高清
+<br>【節目暫停】：雲妮放假，改播『集雜志』
+
+<br>【節目名稱】：集雜志
+<br>【節目頻道】：903
+<br>【節目日期】：2016-10-21
+<br>【節目主持】：急急子
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Zine.2016-10-21
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
@@ -228,8 +237,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0K5K （or） http://www.linkbucks.com/BfZBt
+<br>【百度密碼】：2x6r
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
