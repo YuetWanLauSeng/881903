@@ -10,7 +10,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ezr86 （or） http://www.linkbucks.com/Bej7X
 <br>【百度密碼】：bizp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f0A8e （or） http://www.linkbucks.com/BfM7p
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -21,7 +21,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ezqzG （or） http://www.linkbucks.com/Bekns
 <br>【百度密碼】：byx6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f0A1O （or） http://www.linkbucks.com/BfNAx
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -43,7 +43,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ezr0P （or） http://www.linkbucks.com/Bekl0
 <br>【百度密碼】：ca3v
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f0A3m （or） http://www.linkbucks.com/BfNAE
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -54,7 +54,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ezr2M （or） http://www.linkbucks.com/BekiX
 <br>【百度密碼】：uanz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f0A52 （or） http://www.linkbucks.com/BfM9X
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -65,7 +65,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ezr5j （or） http://www.linkbucks.com/BekHr
 <br>【百度密碼】：inb5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f0A2h （or） http://www.linkbucks.com/BfNAk
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -98,7 +98,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ezr9T （or） http://www.linkbucks.com/Bej1r
 <br>【百度密碼】：hqce
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f0AA8 （or） http://www.linkbucks.com/BfL75
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -142,7 +142,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f09kv （or） http://www.linkbucks.com/BfNIz
 <br>【百度密碼】：e9i2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f09yO （or） http://www.linkbucks.com/BfNCV
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -162,9 +162,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：1f09wB （or） 
+<br>【百度密碼】：dufn
+<br>【MediaFire】：http://adf.ly/1f09wB （or） http://www.linkbucks.com/BfL7f
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
