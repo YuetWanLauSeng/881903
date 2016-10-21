@@ -1,3 +1,7 @@
+因『360雲盤』宣布停運
+即日起以『百度雲盤』及『MediaFire』為主
+直到找到新的雲存儲空間
+
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2016-10-20
@@ -279,7 +283,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ezBYd （or） http://www.linkbucks.com/AENlp
 <br>【百度密碼】：f9w1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ezbhE （or） http://www.linkbucks.com/ADs0O
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -288,9 +292,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-10-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1ezbXZ （or） http://www.linkbucks.com/AEsET
+<br>【百度密碼】：tm7k
+<br>【MediaFire】：http://adf.ly/1ezbeU （or） http://www.linkbucks.com/AERV9
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -299,8 +303,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ezba7 （or） http://www.linkbucks.com/AEqUO
+<br>【百度密碼】：vj2p
+<br>【MediaFire】：http://adf.ly/1ezbgZ （or） http://www.linkbucks.com/ADwFS
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -309,8 +314,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ezbbQ （or） http://www.linkbucks.com/AEYuN
+<br>【百度密碼】：89wc
+<br>【MediaFire】：http://adf.ly/1ezbft （or） http://www.linkbucks.com/AD3n2
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -319,5 +325,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ezbZJ （or） http://www.linkbucks.com/AEr3K
+<br>【百度密碼】：paaw
