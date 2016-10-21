@@ -109,7 +109,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f09bj （or） http://www.linkbucks.com/BfNQb
 <br>【百度密碼】：7sm9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f0NBc （or） http://www.linkbucks.com/BfjN8
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -120,7 +120,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f09aI （or） http://www.linkbucks.com/BfNQ4
 <br>【百度密碼】：zptg
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f0NAK （or） http://www.linkbucks.com/BfjO4
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -224,10 +224,10 @@
 <br>【節目日期】：2016-10-21
 <br>【節目主持】：急急子
 <br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Zine.2016-10-21
+<br>【檔案名稱】：Zine2.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0NWD （or） http://www.linkbucks.com/Bfiun
+<br>【百度密碼】：p1je
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -248,8 +248,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0NTK （or） http://www.linkbucks.com/Bfixy
+<br>【百度密碼】：5jw4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -259,8 +259,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0NS2 （or） http://www.linkbucks.com/Bfiy4
+<br>【百度密碼】：wfkv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
