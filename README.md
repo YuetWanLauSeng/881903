@@ -303,6 +303,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0s4y （or） http://www.linkbucks.com/BgMDX
+<br>【百度密碼】：2d1n
 <br>【MediaFire】： （or）
