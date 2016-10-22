@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f1K0B （or） http://www.linkbucks.com/Bgsr0
 <br>【百度密碼】：xhkx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f1XRA （or） http://www.linkbucks.com/Bg1ZG
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f1XVH （or） http://www.linkbucks.com/Bg1Sk
+<br>【百度密碼】：8bw8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -181,8 +181,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f1XTL （or） http://www.linkbucks.com/Bg1VY
+<br>【百度密碼】：x755
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
