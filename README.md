@@ -270,8 +270,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0qSV （or） http://www.linkbucks.com/BgHLg
+<br>【百度密碼】：zai6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -281,8 +281,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0qU7 （or） http://www.linkbucks.com/BgHKV
+<br>【百度密碼】：sgpj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -292,8 +292,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-10-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f0qWP （or） http://www.linkbucks.com/BgHH2
+<br>【百度密碼】：xwqa
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
