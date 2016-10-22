@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f10FX （or） http://www.linkbucks.com/BgZMv
 <br>【百度密碼】：witb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f15sa （or） http://www.linkbucks.com/Bgd7P
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f10EK （or） http://www.linkbucks.com/BgZN4
 <br>【百度密碼】：nbx7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f15rR （or） http://www.linkbucks.com/Bgd7e
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f10BD （or） http://www.linkbucks.com/BgZQG
 <br>【百度密碼】：9k2v
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f15vy （or） http://www.linkbucks.com/Bgd5J
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f10CY （or） http://www.linkbucks.com/BgZO9
 <br>【百度密碼】：w4p2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f15xC （or） http://www.linkbucks.com/Bgd4v
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f12wy （or） http://www.linkbucks.com/BgbGI
 <br>【百度密碼】：ibf8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f15qG （or） http://www.linkbucks.com/BgeBs
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f12y2 （or） http://www.linkbucks.com/BgbEW
 <br>【百度密碼】：nfr4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f15vA （or） http://www.linkbucks.com/Bgd6Z
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f12vc （or） http://www.linkbucks.com/BgbG5
 <br>【百度密碼】：pbjp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f15uO （or） http://www.linkbucks.com/Bgd6z
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f12uV （or） http://www.linkbucks.com/BgbHC
 <br>【百度密碼】：qigw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f15tL （or） http://www.linkbucks.com/Bgd7I
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f15yV （or） http://www.linkbucks.com/Bgd4P
+<br>【百度密碼】：jiwp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
