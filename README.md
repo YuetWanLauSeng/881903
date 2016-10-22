@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f1EF4 （or） http://www.linkbucks.com/BgjwT
+<br>【百度密碼】：x5yv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：豁達推介
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f1EE8 （or） http://www.linkbucks.com/BgjxJ
+<br>【百度密碼】：j42h
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
