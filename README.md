@@ -115,8 +115,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-10-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f2bQr （or） http://www.linkbucks.com/Bh3Sx
+<br>【百度密碼】：vr38
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
