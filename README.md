@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f2JeH （or） http://www.linkbucks.com/Bhgzr
 <br>【百度密碼】：3ttn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f2XCW （or） http://www.linkbucks.com/BiQAT
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f2Jst （or） http://www.linkbucks.com/BhmQx
 <br>【百度密碼】：fvgq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f2XEW （or） http://www.linkbucks.com/BiPvI
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f2R2t （or） http://www.linkbucks.com/BhvGU
 <br>【百度密碼】：7cuf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f2XDr （or） http://www.linkbucks.com/BiP2f
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -93,8 +93,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-10-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f2XU8 （or） http://www.linkbucks.com/BiNbC
+<br>【百度密碼】：uv8k
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
