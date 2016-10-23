@@ -192,8 +192,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f2B9W （or） http://www.linkbucks.com/BhVPh
+<br>【百度密碼】：cbik
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -203,8 +203,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f2B8r （or） http://www.linkbucks.com/BhVQE
+<br>【百度密碼】：43uy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
@@ -214,8 +214,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f2B7l （or） http://www.linkbucks.com/BhVQG
+<br>【百度密碼】：ybwc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -225,8 +225,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f2BIO （or） http://www.linkbucks.com/BhVLw
+<br>【百度密碼】：tqrv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
