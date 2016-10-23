@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f2JgD （or） http://www.linkbucks.com/BhgzL
 <br>【百度密碼】：3er9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f2QYs （or） http://www.linkbucks.com/Bhv9w
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f2JrE （or） http://www.linkbucks.com/BhmRj
 <br>【百度密碼】：3p42
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f2QX4 （or） http://www.linkbucks.com/BhwB8
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f2Jfc （or） http://www.linkbucks.com/BhgzV
 <br>【百度密碼】：irsb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f2QcK （or） http://www.linkbucks.com/BhvY0
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f2JdA （or） http://www.linkbucks.com/Bhg0y
 <br>【百度密碼】：eix2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f2QdU （or） http://www.linkbucks.com/BhvXh
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f2Jtn （or） http://www.linkbucks.com/BhmOW
 <br>【百度密碼】：sxp2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f2QY7 （or） http://www.linkbucks.com/BhwAN
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -82,8 +82,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-10-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f2R2t （or） http://www.linkbucks.com/BhvGU
+<br>【百度密碼】：7cuf
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：兒童適宜
