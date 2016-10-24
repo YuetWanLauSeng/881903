@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f3xGt （or） http://www.linkbucks.com/Bj8UQ
 <br>【百度密碼】：3xwn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f49dG （or） http://www.linkbucks.com/BkJyx
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f3xFW （or） http://www.linkbucks.com/Bj8Uq
 <br>【百度密碼】：hgrx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f49cQ （or） http://www.linkbucks.com/BkJy2
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f45Vy （or） http://www.linkbucks.com/BkAJu
+<br>【百度密碼】：d5bx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f49ef （or） http://www.linkbucks.com/BkJwu
+<br>【百度密碼】：3aby
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -214,8 +214,17 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：雲妮放假，『集雜志』頂替
+
+<br>【節目名稱】：集雜志
+<br>【節目頻道】：903
+<br>【節目日期】：2016-10-24
+<br>【節目主持】：急急子
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Zine2.2016-10-24
+<br>【檔案音質】：高清
+<br>【百度雲盤】：http://adf.ly/1f49g5 （or） http://www.linkbucks.com/BkJvU
+<br>【百度密碼】：c2bd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -225,8 +234,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-10-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f45QI （or） http://www.linkbucks.com/BkAXB
+<br>【百度密碼】：qhjm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -236,8 +245,17 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【節目暫停】：逢星期一播出『絕不放棄』
+
+<br>【節目名稱】：絕不放棄
+<br>【節目頻道】：881
+<br>【節目日期】：2016-10-24
+<br>【節目主持】：阮子健
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Never Say Never.2016-10-24
+<br>【檔案音質】：高清
+<br>【百度雲盤】：http://adf.ly/1f49hG （or） http://www.linkbucks.com/BkJsR
+<br>【百度密碼】：yunu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -247,8 +265,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f49m3 （or） http://www.linkbucks.com/BkJmx
+<br>【百度密碼】：5gye
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
