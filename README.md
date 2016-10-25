@@ -224,8 +224,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Zine2.2016-10-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f5cJj （or） http://www.linkbucks.com/Bl4QI
+<br>【百度密碼】：du8y
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -237,7 +237,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f5US8 （or） http://www.linkbucks.com/Blu1N
 <br>【百度密碼】：rymb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5cMV （or） http://www.linkbucks.com/Bl4PK
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -246,8 +246,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f5cIH （or） http://www.linkbucks.com/Bl4Qw
+<br>【百度密碼】：9x47
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -257,8 +257,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f5cGc （or） http://www.linkbucks.com/Bl4Tt
+<br>【百度密碼】：4ri5
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
