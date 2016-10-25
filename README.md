@@ -287,8 +287,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-10-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f4bkJ （or） http://www.linkbucks.com/BkyQx
+<br>【百度密碼】：pdbr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -309,6 +309,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-10-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f4blR （or） http://www.linkbucks.com/BkyNb
+<br>【百度密碼】：a4c4
 <br>【MediaFire】： （or）
