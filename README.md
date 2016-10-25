@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f4pvO （or） http://www.linkbucks.com/BlNxS
 <br>【百度密碼】：39ay
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5NCf （or） http://www.linkbucks.com/BlrES
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f4pmt （or） http://www.linkbucks.com/BlOVI
 <br>【百度密碼】：vys5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5NNT （or） http://www.linkbucks.com/Blq6W
 
 
 <br>【節目名稱】：在晴朗的一天出發
@@ -52,7 +52,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f4pi4 （or） http://www.linkbucks.com/BlOaa
 <br>【百度密碼】：hsxr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5NQ1 （or） http://www.linkbucks.com/Blq4z
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -74,7 +74,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f4prh （or） http://www.linkbucks.com/BlOR1
 <br>【百度密碼】：75k8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5MMD （or） http://www.linkbucks.com/BlrJw
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -107,7 +107,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f51jZ （or） http://www.linkbucks.com/BlPI5
 <br>【百度密碼】：sqqs
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5NJQ （or） http://www.linkbucks.com/Blq8b
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -118,7 +118,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f51iN （or） http://www.linkbucks.com/BlPJs
 <br>【百度密碼】：ewj5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5NLJ （or） http://www.linkbucks.com/Blq7U
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -129,7 +129,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f521M （or） http://www.linkbucks.com/BlPAl
 <br>【百度密碼】：tdgq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5NFB （or） http://www.linkbucks.com/BlrCQ
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -162,7 +162,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f58nJ （or） http://www.linkbucks.com/Bla13
 <br>【百度密碼】：xrxj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5NHo （or） http://www.linkbucks.com/BlrBe
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
