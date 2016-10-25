@@ -140,7 +140,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f57VM （or） http://www.linkbucks.com/BlbrL
 <br>【百度密碼】：yj9m
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5S0a （or） http://www.linkbucks.com/BloRP
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -173,7 +173,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f5Miz （or） http://www.linkbucks.com/BlrXk
 <br>【百度密碼】：f2yu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5S48 （or） http://www.linkbucks.com/BloMa
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -184,7 +184,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f5MHk （or） http://www.linkbucks.com/Blrqu
 <br>【百度密碼】：fsep
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f5S2L （or） http://www.linkbucks.com/BloPv
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -193,8 +193,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f5Rts （or） http://www.linkbucks.com/Blocm
+<br>【百度密碼】：rwhx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -204,8 +204,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-10-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f5RsN （or） http://www.linkbucks.com/BloeI
+<br>【百度密碼】：waf4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -214,6 +214,15 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-25
+<br>【檔案音質】：高清
+<br>【節目暫停】：雲妮放假，『集雜志』頂替
+
+<br>【節目名稱】：集雜志
+<br>【節目頻道】：903
+<br>【節目日期】：2016-10-25
+<br>【節目主持】：急急子
+<br>【節目時間】：21:00 - 23:00
+<br>【檔案名稱】：Zine2.2016-10-25
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
