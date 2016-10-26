@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f6kEg （or） http://www.linkbucks.com/BnABy
 <br>【百度密碼】：cdut
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f6qkW （or） http://www.linkbucks.com/BnGbY
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,9 +190,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-10-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1f6qeD （or） http://www.linkbucks.com/BnGjR
+<br>【百度密碼】：i5ak
+<br>【MediaFire】：http://adf.ly/1f6qhy （or） http://www.linkbucks.com/BnGiq
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
