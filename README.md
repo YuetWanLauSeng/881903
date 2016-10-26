@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f6gOE （or） http://www.linkbucks.com/Bm56I
 <br>【百度密碼】：9e5f
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f6kL3 （or） http://www.linkbucks.com/Bm98Y
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-10-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f6kEg （or） http://www.linkbucks.com/BnABy
+<br>【百度密碼】：cdut
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
