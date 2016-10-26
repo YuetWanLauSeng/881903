@@ -210,8 +210,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-10-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f75t9 （or） http://www.linkbucks.com/BnIpf
+<br>【百度密碼】：ns7i
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -239,9 +239,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1f75pC （or） http://www.linkbucks.com/BnIqS
+<br>【百度密碼】：6ums
+<br>【MediaFire】：http://adf.ly/1f76wD （or） http://www.linkbucks.com/BnIYv
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
