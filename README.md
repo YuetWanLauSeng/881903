@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f4pgf （or） http://www.linkbucks.com/BlObc
 <br>【百度密碼】：a86x
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f6F1E （or） http://www.linkbucks.com/BmcHX
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -303,4 +303,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f679r （or） http://www.linkbucks.com/BmSfF
 <br>【百度密碼】：x7df
-<br>【MediaFire】： （or）
+<br>【MediaFire】：http://adf.ly/1f6F0X （or）http://www.linkbucks.com/BmcH
