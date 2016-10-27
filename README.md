@@ -8,7 +8,6 @@
 <br>【百度雲盤】：http://adf.ly/1f87pa （or） http://www.linkbucks.com/BoOyy
 <br>【百度密碼】：p945
 <br>【MediaFire】：http://adf.ly/1f8G4f （or） http://www.linkbucks.com/BoWM5
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -20,7 +19,6 @@
 <br>【百度雲盤】：http://adf.ly/1f86IQ （or） http://www.linkbucks.com/BoRwZ
 <br>【百度密碼】：gtce
 <br>【MediaFire】：http://adf.ly/1f8FFj （or） http://www.linkbucks.com/BoWzu
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -32,7 +30,6 @@
 <br>【百度雲盤】：http://adf.ly/1f85xa （or） http://www.linkbucks.com/BoKfZ
 <br>【百度密碼】：rwu8
 <br>【MediaFire】：http://adf.ly/1f8FEC （or） http://www.linkbucks.com/BoW2J
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -44,7 +41,6 @@
 <br>【百度雲盤】：http://adf.ly/1f87rA （or） http://www.linkbucks.com/BoOx4
 <br>【百度密碼】：pi5q
 <br>【MediaFire】：http://adf.ly/1f8FKL （or） http://www.linkbucks.com/BoWwU
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -56,7 +52,6 @@
 <br>【百度雲盤】：http://adf.ly/1f85vt （or） http://www.linkbucks.com/BoKhJ
 <br>【百度密碼】：e6rg
 <br>【MediaFire】：http://adf.ly/1f8FHA （or） http://www.linkbucks.com/BoWzG
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -68,7 +63,6 @@
 <br>【百度雲盤】：http://adf.ly/1f85z1 （or） http://www.linkbucks.com/BoJW8
 <br>【百度密碼】：ensg
 <br>【MediaFire】：http://adf.ly/1f8FJ9 （or） http://www.linkbucks.com/BoWyG
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -80,7 +74,6 @@
 <br>【百度雲盤】：http://adf.ly/1f860R （or） http://www.linkbucks.com/BoJUL
 <br>【百度密碼】：2286
 <br>【MediaFire】：http://adf.ly/1f8G6E （or） http://www.linkbucks.com/BoWMt
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -92,7 +85,6 @@
 <br>【百度雲盤】：http://adf.ly/1f8G1f （or） http://www.linkbucks.com/BoWNv
 <br>【百度密碼】：sxin
 <br>【MediaFire】：http://adf.ly/1f8NHs （or） http://www.linkbucks.com/BoiAH
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -104,7 +96,6 @@
 <br>【百度雲盤】：http://adf.ly/1f878o （or） http://www.linkbucks.com/BoP8S
 <br>【百度密碼】：vgsb
 <br>【MediaFire】：http://adf.ly/1f8FLE （or） http://www.linkbucks.com/BoWt0
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -116,7 +107,6 @@
 <br>【百度雲盤】：http://adf.ly/1f8F8t （or） http://www.linkbucks.com/BoW50
 <br>【百度密碼】：rzfj
 <br>【MediaFire】：http://adf.ly/1f8Ltm （or） http://www.linkbucks.com/BoawD
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -128,7 +118,6 @@
 <br>【百度雲盤】：http://adf.ly/1f8Fzo （or） http://www.linkbucks.com/BoWP6
 <br>【百度密碼】：kf34
 <br>【MediaFire】：http://adf.ly/1f8LsX （or） http://www.linkbucks.com/Boaw6
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -140,7 +129,6 @@
 <br>【百度雲盤】：http://adf.ly/1f8FAa （or） http://www.linkbucks.com/BoW5J
 <br>【百度密碼】：cjm1
 <br>【MediaFire】：http://adf.ly/1f8LrY （or） http://www.linkbucks.com/Boayi
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -152,7 +140,6 @@
 <br>【百度雲盤】：http://adf.ly/1f8NGR （or） http://www.linkbucks.com/BoiBP
 <br>【百度密碼】：nnbp
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -164,7 +151,6 @@
 <br>【百度雲盤】：http://adf.ly/1f8NEH （or） http://www.linkbucks.com/BoiEb
 <br>【百度密碼】：6cjt
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -173,10 +159,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-10-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f8OSe （or） http://www.linkbucks.com/BohJp
+<br>【百度密碼】：t8wm
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -188,7 +173,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -200,7 +184,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -212,7 +195,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -224,7 +206,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -236,7 +217,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -248,7 +228,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -260,7 +239,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -272,7 +250,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -284,7 +261,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -296,7 +272,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -308,7 +283,6 @@
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -319,5 +293,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
+<br>【MediaFire】： （or）
