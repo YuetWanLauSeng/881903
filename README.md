@@ -91,7 +91,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f8G1f （or） http://www.linkbucks.com/BoWNv
 <br>【百度密碼】：sxin
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f8NHs （or） http://www.linkbucks.com/BoiAH
 <br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：十八樓C座
@@ -115,7 +115,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f8F8t （or） http://www.linkbucks.com/BoW50
 <br>【百度密碼】：rzfj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f8Ltm （or） http://www.linkbucks.com/BoawD
 <br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：人生交叉盤
@@ -127,7 +127,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f8Fzo （or） http://www.linkbucks.com/BoWP6
 <br>【百度密碼】：kf34
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f8LsX （or） http://www.linkbucks.com/Boaw6
 <br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：你好嘢
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f8FAa （or） http://www.linkbucks.com/BoW5J
 <br>【百度密碼】：cjm1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f8LrY （or） http://www.linkbucks.com/Boayi
 <br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：大玩派
@@ -149,8 +149,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-10-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f8NGR （or） http://www.linkbucks.com/BoiBP
+<br>【百度密碼】：nnbp
 <br>【MediaFire】： （or） 
 <br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
@@ -161,8 +161,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-10-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f8NEH （or） http://www.linkbucks.com/BoiEb
+<br>【百度密碼】：6cjt
 <br>【MediaFire】： （or） 
 <br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
 
