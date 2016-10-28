@@ -38,8 +38,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2016-10-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1fA1bQ （or） http://www.linkbucks.com/Bpts8
-<br>【百度密碼】：d598
+<br>【百度雲盤】：http://adf.ly/1fAN3l （or） http://www.linkbucks.com/BqZVE
+<br>【百度密碼】：uxmr
 <br>【MediaFire】：http://adf.ly/1fA8m0 （or） http://www.linkbucks.com/BqDp3
 
 <br>【節目名稱】：鈺成千里目
