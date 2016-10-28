@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAAdq （or） http://www.linkbucks.com/Bp98e
 <br>【百度密碼】：r6u5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fALsR （or） http://www.linkbucks.com/BqS8O
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAAQk （or） http://www.linkbucks.com/BqAO5
 <br>【百度密碼】：9fu6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fALwS （or） http://www.linkbucks.com/BqS2Z
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAAOz （or） http://www.linkbucks.com/BqAVQ
 <br>【百度密碼】：trr4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fALu3 （or） http://www.linkbucks.com/BqS6N
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAAnS （or） http://www.linkbucks.com/Bp9se
 <br>【百度密碼】：makq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fALzB （or） http://www.linkbucks.com/BqS18
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-10-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fAMqz （or） http://www.linkbucks.com/BqZg4
+<br>【百度密碼】：w4gd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-10-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fAMyI （or） http://www.linkbucks.com/BqZZP
+<br>【百度密碼】：jb5x
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
