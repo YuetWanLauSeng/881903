@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAFFA （or） http://www.linkbucks.com/BqRpZ
 <br>【百度密碼】：etpv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fALu3 （or） http://www.linkbucks.com/BqqJN
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAHbc （or） http://www.linkbucks.com/BqOHd
 <br>【百度密碼】：5nat
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fAehu （or） http://www.linkbucks.com/BqqJj
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAMqz （or） http://www.linkbucks.com/BqZg4
 <br>【百度密碼】：w4gd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fAejC （or） http://www.linkbucks.com/BqqJX
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAQm5 （or） http://www.linkbucks.com/Bqiem
 <br>【百度密碼】：2x1k
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fAefZ （or） http://www.linkbucks.com/BqqKq
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAQeM （or） http://www.linkbucks.com/Bqa0e
 <br>【百度密碼】：fue4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fAdqX （or） http://www.linkbucks.com/Bqqkj
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fAQgP （or） http://www.linkbucks.com/Bqazd
 <br>【百度密碼】：cj9e
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fAegn （or） http://www.linkbucks.com/BqqKX
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-10-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fAed4 （or） http://www.linkbucks.com/BqqOf
+<br>【百度密碼】：4uua
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -236,8 +236,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-10-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fAeaQ （or） http://www.linkbucks.com/BqqRp
+<br>【百度密碼】：ihxq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -247,8 +247,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-10-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fAeYd （or） http://www.linkbucks.com/BqqU0
+<br>【百度密碼】：ndh1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
