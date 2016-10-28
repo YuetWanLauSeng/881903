@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-10-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1fAMyI （or） http://www.linkbucks.com/BqZZP
-<br>【百度密碼】：jb5x
+<br>【百度雲盤】：http://adf.ly/1fAQm5 （or） http://www.linkbucks.com/Bqiem
+<br>【百度密碼】：2x1k
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
