@@ -249,7 +249,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1f90bo （or） http://www.linkbucks.com/Bo4cx
 <br>【百度密碼】：1itk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1f9kCx （or） http://www.linkbucks.com/Bpap1
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -258,8 +258,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-10-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1f9jwZ （or） http://www.linkbucks.com/BpbBi
+<br>【百度密碼】：jn7h
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
