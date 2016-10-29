@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fBusZ （or） http://www.linkbucks.com/Bri4w
 <br>【百度密碼】：4d4w
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCPDb （or） http://www.linkbucks.com/BsPL9
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fBuqS （or） http://www.linkbucks.com/BrjDo
 <br>【百度密碼】：vyee
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCP47 （or） http://www.linkbucks.com/BsPPu
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fBurQ （or） http://www.linkbucks.com/BrjCl
 <br>【百度密碼】：66c2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCPBj （or） http://www.linkbucks.com/BsPNZ
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fButt （or） http://www.linkbucks.com/Bri0U
 <br>【百度密碼】：kgx2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCP5j （or） http://www.linkbucks.com/BsPPa
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fBuoe （or） http://www.linkbucks.com/BrjFG
 <br>【百度密碼】：wik9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCPIk （or） http://www.linkbucks.com/BsPG3
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fBunU （or） http://www.linkbucks.com/BrjGR
 <br>【百度密碼】：qu3p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCPKA （or） http://www.linkbucks.com/BsPCh
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fC1yU （or） http://www.linkbucks.com/BrkX6
 <br>【百度密碼】：bmjn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCP9D （or） http://www.linkbucks.com/BsPN4
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fC1tH （or） http://www.linkbucks.com/BrlKd
 <br>【百度密碼】：wgux
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCPM1 （or） http://www.linkbucks.com/BsO7J
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fC1x2 （or） http://www.linkbucks.com/BrkuS
 <br>【百度密碼】：2aix
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCPHV （or） http://www.linkbucks.com/BsPHr
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fC1ur （or） http://www.linkbucks.com/BrkwU
 <br>【百度密碼】：ehjx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCPEZ （or） http://www.linkbucks.com/BsPKb
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fCDUG （or） http://www.linkbucks.com/BrwAJ
 <br>【百度密碼】：k3iq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fCP6b （or） http://www.linkbucks.com/BsPOb
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-10-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fCQ5Z （or） http://www.linkbucks.com/BsNWQ
+<br>【百度密碼】：3f7p
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：豁達推介
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-10-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fCQ3h （or） http://www.linkbucks.com/BsNWn
+<br>【百度密碼】：5ek8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
@@ -148,8 +148,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-10-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fCQJR （or） http://www.linkbucks.com/BsNNp
+<br>【百度密碼】：2b9i
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：3號螺絲釘
