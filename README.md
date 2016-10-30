@@ -225,8 +225,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2016-10-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fDzQk （or） http://www.linkbucks.com/Bs7K6
+<br>【百度密碼】：ia3y
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
