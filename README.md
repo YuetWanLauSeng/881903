@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fF0e0 （or） http://www.linkbucks.com/Bt4cS
 <br>【百度密碼】：jd6g
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fFBn5 （or） http://www.linkbucks.com/BuHa5
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fF0Yz （or） http://www.linkbucks.com/Bt4dU
 <br>【百度密碼】：7dqm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fFBoD （or） http://www.linkbucks.com/BuHar
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -137,8 +137,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-10-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fFBqg （or） http://www.linkbucks.com/BuHZ6
+<br>【百度密碼】：ccfk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -148,8 +148,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-10-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fFC8P （or） http://www.linkbucks.com/BuHSX
+<br>【百度密碼】：r2ss
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
