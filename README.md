@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fCQ5Z （or） http://www.linkbucks.com/BsNWQ
 <br>【百度密碼】：3f7p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fE0AQ （or） http://www.linkbucks.com/BtHw2
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fCQ3h （or） http://www.linkbucks.com/BsNWn
 <br>【百度密碼】：5ek8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fE0Bl （or） http://www.linkbucks.com/BtHu2
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fCQJR （or） http://www.linkbucks.com/BsNNp
 <br>【百度密碼】：2b9i
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fE0Fh （or） http://www.linkbucks.com/BtHoo
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fCZmB （or） http://www.linkbucks.com/BsSVh
 <br>【百度密碼】：ab2v
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fE0Co （or） http://www.linkbucks.com/BtHqq
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fCeOV （or） http://www.linkbucks.com/BsbFb
 <br>【百度密碼】：ca33
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fE0ER （or） http://www.linkbucks.com/BtHp6
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fCeMI （or） http://www.linkbucks.com/BsbMI
 <br>【百度密碼】：ayue
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fE0Db （or） http://www.linkbucks.com/BtHqH
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fDzQk （or） http://www.linkbucks.com/Bs7K6
 <br>【百度密碼】：ia3y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fE0Ib （or） http://www.linkbucks.com/BtHgn
 
 <br>【節目名稱】：發式生活
 <br>【節目頻道】：881
