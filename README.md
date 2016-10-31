@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-10-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fGmLo （or） http://www.linkbucks.com/BvZZy
+<br>【百度密碼】：tvf3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-10-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fGnvq （or） http://www.linkbucks.com/BvYjJ
+<br>【百度密碼】：rty5
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
