@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fGcXy （or） http://www.linkbucks.com/BvV4Q
 <br>【百度密碼】：8g9q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fHllX （or） http://www.linkbucks.com/BwPof
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fGoE8 （or） http://www.linkbucks.com/BvYad
 <br>【百度密碼】：iejg
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fHlkB （or） http://www.linkbucks.com/BwPol
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -257,7 +257,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fHAMV （or） http://www.linkbucks.com/Bvpfv
 <br>【百度密碼】：ich5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fHlwC （or） http://www.linkbucks.com/BwPeD
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -268,7 +268,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fHfzN （or） http://www.linkbucks.com/BwFJl
 <br>【百度密碼】：n6rc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fHlnM （or） http://www.linkbucks.com/BwPm2
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -301,3 +301,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fHfxk （or） http://www.linkbucks.com/BwFN3
 <br>【百度密碼】：aggg
+<br>【MediaFire】： （or）
