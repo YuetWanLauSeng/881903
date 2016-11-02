@@ -235,8 +235,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fKtnn （or） http://www.linkbucks.com/AJmR
+<br>【百度密碼】：69kg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -246,8 +246,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-11-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fKtrn （or） http://www.linkbucks.com/AJlG
+<br>【百度密碼】：4qev
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
