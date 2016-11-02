@@ -269,8 +269,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-11-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fJRLI （or） http://www.linkbucks.com/Byd47
+<br>【百度密碼】：e9tu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -288,8 +288,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Vanila Sky.2016-11-01(2)
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fJRJG （or） http://www.linkbucks.com/Byd8Y
+<br>【百度密碼】：ydfm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -299,6 +299,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fJRNt （or） http://www.linkbucks.com/Byd3s
+<br>【百度密碼】：zugb
 <br>【MediaFire】： （or）
