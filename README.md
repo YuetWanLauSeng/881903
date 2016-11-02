@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fJi7e （or） http://www.linkbucks.com/Bt9sl
 <br>【百度密碼】：f2nq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWcy （or） http://www.linkbucks.com/wgQ
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fJi6I （or） http://www.linkbucks.com/Bt9ss
 <br>【百度密碼】：qgcx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWkX （or） http://www.linkbucks.com/wdG
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fJi9m （or） http://www.linkbucks.com/Bt9sg
 <br>【百度密碼】：zj3a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWbM （or） http://www.linkbucks.com/wgS
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fJuwE （or） http://www.linkbucks.com/A5S7D
 <br>【百度密碼】：73q2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWmB （or） http://www.linkbucks.com/wcp
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fJv1F （or） http://www.linkbucks.com/A5S66
 <br>【百度密碼】：gdp8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWjD （or） http://www.linkbucks.com/wdQ
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fJvJM （or） http://www.linkbucks.com/A5S61
 <br>【百度密碼】：kh4r
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWhf （or） http://www.linkbucks.com/wfZ
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fK3fM （or） http://www.linkbucks.com/7bj
 <br>【百度密碼】：7ke9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWZo （or） http://www.linkbucks.com/wgi
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fK3vh （or） http://www.linkbucks.com/8Fa
 <br>【百度密碼】：5s2f
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWfx （or） http://www.linkbucks.com/wfn
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fK9l0 （or） http://www.linkbucks.com/5Si
 <br>【百度密碼】：7siu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWeJ （or） http://www.linkbucks.com/wf8
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fKJH6 （or） http://www.linkbucks.com/0hk
 <br>【百度密碼】：6qap
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKWYH （or） http://www.linkbucks.com/wit
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -208,8 +208,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fKWpB （or） http://www.linkbucks.com/wca
+<br>【百度密碼】：ezcz
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
