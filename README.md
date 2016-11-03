@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-11-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fLQtY （or） http://www.linkbucks.com/nrzl
+<br>【百度密碼】：7avv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-11-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fLQvF （or） http://www.linkbucks.com/nrzi
+<br>【百度密碼】：iurq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
