@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-11-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fLeDm （or） http://www.linkbucks.com/mq9J
+<br>【百度密碼】：znqb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-11-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fLa9O （or） http://www.linkbucks.com/ADySI
+<br>【百度密碼】：2mea
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-11-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fLeFM （or） http://www.linkbucks.com/mp6L
+<br>【百度密碼】：v2ra
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -279,6 +279,14 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-11-03
+<br>【節目暫停】：因Colin放假，改播『雲妮鍾情』
+
+<br>【節目名稱】：雲妮鍾情
+<br>【節目頻道】：903
+<br>【節目日期】：2016-11-03
+<br>【節目主持】：Vani
+<br>【節目時間】：01:00 - 02:00
+<br>【檔案名稱】：Vanila Sky.2016-11-03(2)
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
