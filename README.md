@@ -237,7 +237,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fKtnn （or） http://www.linkbucks.com/AJmR
 <br>【百度密碼】：69kg
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKy0A （or） http://www.linkbucks.com/AIRB
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -248,7 +248,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fKtrn （or） http://www.linkbucks.com/AJlG
 <br>【百度密碼】：4qev
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fKy1K （or） http://www.linkbucks.com/AINA
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -257,8 +257,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-11-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fKxx4 （or） http://www.linkbucks.com/AISu
+<br>【百度密碼】：ymee
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -276,8 +276,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Vanila Sky.2016-11-02(2)
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fKxvO （or） http://www.linkbucks.com/AITJ
+<br>【百度密碼】：f8hg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -287,6 +287,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fKxyW （or） http://www.linkbucks.com/AISg
+<br>【百度密碼】：m5x7
 <br>【MediaFire】： （or）
