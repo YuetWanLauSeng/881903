@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fLN4s （or） http://www.linkbucks.com/ARCu
 <br>【百度密碼】：35z3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fLSvQ （or） http://www.linkbucks.com/FD6A
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fLQtY （or） http://www.linkbucks.com/nrzl
 <br>【百度密碼】：7avv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fLSxB （or） http://www.linkbucks.com/FD5o
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fLQvF （or） http://www.linkbucks.com/nrzi
 <br>【百度密碼】：iurq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fLSwJ （or） http://www.linkbucks.com/FD5y
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-11-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fLXo7 （or） http://www.linkbucks.com/Fe5
+<br>【百度密碼】：p43q
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-11-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fLXpX （or） http://www.linkbucks.com/AJYf9
+<br>【百度密碼】：6wyb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
