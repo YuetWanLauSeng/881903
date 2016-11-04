@@ -200,9 +200,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fMw86 （or） http://www.linkbucks.com/4LC
+<br>【百度密碼】：kjpd
+<br>【MediaFire】：http://adf.ly/1fMw5p （or） http://www.linkbucks.com/4Df
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -213,7 +213,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fMqdc （or） http://www.linkbucks.com/5Ru
 <br>【百度密碼】：4qye
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fMwB6 （or） http://www.linkbucks.com/4Ke
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -223,7 +223,7 @@
 <br>【檔案名稱】：Vanila Sky.2016-11-04
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：星期六晚更新
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -233,9 +233,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fMw3a （or） http://www.linkbucks.com/4b6
+<br>【百度密碼】：81a5
+<br>【MediaFire】：http://adf.ly/1fMwOd （or） http://www.linkbucks.com/4G0
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -245,7 +245,7 @@
 <br>【檔案名稱】：Reading Time.2016-11-04
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】： 
+<br>【百度密碼】：星期六晚更新
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -256,7 +256,7 @@
 <br>【檔案名稱】：Summit.2016-11-04
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：星期六晚更新
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
