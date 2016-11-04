@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fMRRK （or） http://www.linkbucks.com/AFbA
 <br>【百度密碼】：rbxz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fMaoZ （or） http://www.linkbucks.com/9h6
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fMWsh （or） http://www.linkbucks.com/ABcv
 <br>【百度密碼】：nxuj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fMapj （or） http://www.linkbucks.com/9hM
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fMWwB （or） http://www.linkbucks.com/ABcW
 <br>【百度密碼】：kk1u
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fMasN （or） http://www.linkbucks.com/9f1
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fMWu7 （or） http://www.linkbucks.com/ACHN
 <br>【百度密碼】：9rji
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fMara （or） http://www.linkbucks.com/9gD
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fMWvH （or） http://www.linkbucks.com/ABcb
 <br>【百度密碼】：qsvd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fMaqp （or） http://www.linkbucks.com/9gf
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fMbJg （or） http://www.linkbucks.com/9Vi
+<br>【百度密碼】：uy9b
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -237,8 +237,7 @@
 <br>【檔案名稱】：Reading Time.2016-11-04
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度密碼】： 
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -249,8 +248,7 @@
 <br>【檔案名稱】：Summit.2016-11-04
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度密碼】： 
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -260,7 +258,6 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：星期六晚更新
 <br>【MediaFire】： （or） 
@@ -272,7 +269,6 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：星期六晚更新
 <br>【MediaFire】： （or） 
