@@ -222,8 +222,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度雲盤】：http://adf.ly/1fOcWH （or） http://www.linkbucks.com/AOkK
+<br>【百度密碼】：3uvr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -244,8 +244,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度雲盤】：http://adf.ly/1fOdVQ （or） http://www.linkbucks.com/AOfy
+<br>【百度密碼】：c96h
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -255,8 +255,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度雲盤】：http://adf.ly/1fOdQa （or） http://www.linkbucks.com/AOgL
+<br>【百度密碼】：us2j
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -266,8 +266,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度雲盤】：http://adf.ly/1fOdTD （or） http://www.linkbucks.com/AOgA
+<br>【百度密碼】：pn3f
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -277,8 +277,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度雲盤】：http://adf.ly/1fOdX8 （or） http://www.linkbucks.com/AOfn
+<br>【百度密碼】：7mvy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -296,8 +296,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Vanila Sky.2016-11-04(2)
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度雲盤】：http://adf.ly/1fOd80 （or） http://www.linkbucks.com/AOkB
+<br>【百度密碼】：328u
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -307,6 +307,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：星期六晚更新
+<br>【百度雲盤】：http://adf.ly/1fOdZB （or） http://www.linkbucks.com/AOfj
+<br>【百度密碼】：yz5d
 <br>【MediaFire】： （or）
