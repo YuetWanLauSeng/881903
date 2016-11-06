@@ -1,5 +1,3 @@
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
-
 <br>【節目名稱】：祝君早安
 <br>【節目頻道】：881
 <br>【節目日期】：2016-11-05
