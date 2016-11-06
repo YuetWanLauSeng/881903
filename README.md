@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPPI2 （or） http://www.linkbucks.com/AgUE
 <br>【百度密碼】：kse5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPWKa （or） http://www.linkbucks.com/Adlu
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPPMV （or） http://www.linkbucks.com/AgOu
 <br>【百度密碼】：9a3j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPWG6 （or） http://www.linkbucks.com/AdnK
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPPPW （or） http://www.linkbucks.com/AgNp
 <br>【百度密碼】：h8eu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPWIg （or） http://www.linkbucks.com/AdmS
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPPGe （or） http://www.linkbucks.com/AgX6
 <br>【百度密碼】：bqyn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPWJk （or） http://www.linkbucks.com/AdmL
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPPO4 （or） http://www.linkbucks.com/AgOW
 <br>【百度密碼】：i47i
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPWQd （or） http://www.linkbucks.com/AdkC
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPPK5 （or） http://www.linkbucks.com/AgTn
 <br>【百度密碼】：iner
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPWLc （or） http://www.linkbucks.com/AdlX
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPPpL （or） http://www.linkbucks.com/AgF4
 <br>【百度密碼】：u1yv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPWHc （or） http://www.linkbucks.com/Admj
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -82,9 +82,9 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fPXDZ （or） http://www.linkbucks.com/AdRx
+<br>【百度密碼】：8bn6
+<br>【MediaFire】：http://adf.ly/1fPY7y （or） http://www.linkbucks.com/AdLb
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
