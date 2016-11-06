@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPwqu （or） http://www.linkbucks.com/AyTN
 <br>【百度密碼】：pivf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fQ0CW （or） http://www.linkbucks.com/Awlg
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPwsv （or） http://www.linkbucks.com/AyS5
 <br>【百度密碼】：2vz6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fQ0E9 （or） http://www.linkbucks.com/AwlP
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPwug （or） http://www.linkbucks.com/AyR4
 <br>【百度密碼】：cbp8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fQ0FK （or） http://www.linkbucks.com/AwvD
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fQ19F （or） http://www.linkbucks.com/AwJn
+<br>【百度密碼】：s4uv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
@@ -181,8 +181,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fQ14o （or） http://www.linkbucks.com/AwLQ
+<br>【百度密碼】：p7xc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
@@ -192,8 +192,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fQ16k （or） http://www.linkbucks.com/AwKt
+<br>【百度密碼】：6wn7
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：短期租約
