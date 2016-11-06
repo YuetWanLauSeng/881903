@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPnxJ （or） http://www.linkbucks.com/A06C
 <br>【百度密碼】：1xjh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPwkr （or） http://www.linkbucks.com/Axsh
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPnvi （or） http://www.linkbucks.com/A051
 <br>【百度密碼】：9syd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPwjm （or） http://www.linkbucks.com/Axsx
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPntM （or） http://www.linkbucks.com/A05c
 <br>【百度密碼】：sxh9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPwpE （or） http://www.linkbucks.com/AxsB
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fPo9x （or） http://www.linkbucks.com/A0n2
 <br>【百度密碼】：bqz9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fPwmZ （or） http://www.linkbucks.com/AyUo
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -137,8 +137,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fPwqu （or） http://www.linkbucks.com/AyTN
+<br>【百度密碼】：pivf
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -148,8 +148,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fPwsv （or） http://www.linkbucks.com/AyS5
+<br>【百度密碼】：2vz6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
@@ -159,8 +159,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fPwug （or） http://www.linkbucks.com/AyR4
+<br>【百度密碼】：cbp8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
@@ -238,4 +238,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】： （or）
