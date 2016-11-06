@@ -93,8 +93,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fPnxJ （or） http://www.linkbucks.com/A06C
+<br>【百度密碼】：1xjh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
@@ -104,8 +104,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fPnvi （or） http://www.linkbucks.com/A051
+<br>【百度密碼】：9syd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -115,8 +115,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fPntM （or） http://www.linkbucks.com/A05c
+<br>【百度密碼】：sxh9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
@@ -126,8 +126,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fPo9x （or） http://www.linkbucks.com/A0n2
+<br>【百度密碼】：bqz9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
@@ -238,4 +238,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or）
+<br>【MediaFire】： （or） 
