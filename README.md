@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fQs0Z （or） http://www.linkbucks.com/AiVd
 <br>【百度密碼】：rxx4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fQy7T （or） http://www.linkbucks.com/atcs
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fQsL8 （or） http://www.linkbucks.com/AiNv
 <br>【百度密碼】：7zvy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fQyAG （or） http://www.linkbucks.com/as0b
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fQs1a （or） http://www.linkbucks.com/AiVY
 <br>【百度密碼】：8puu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fQy8s （or） http://www.linkbucks.com/as7b
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fQsQO （or） http://www.linkbucks.com/AiND
 <br>【百度密碼】：ra73
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fQy86 （or） http://www.linkbucks.com/atbn
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -137,9 +137,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-11-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fQxyy （or） http://www.linkbucks.com/axba
+<br>【百度密碼】：3d3a
+<br>【MediaFire】：http://adf.ly/1fQy6R （or） http://www.linkbucks.com/atf2
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -148,9 +148,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-11-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fQxxS （or） http://www.linkbucks.com/axpc
+<br>【百度密碼】：wv4g
+<br>【MediaFire】：http://adf.ly/1fQy5U （or） http://www.linkbucks.com/atlz
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -167,9 +167,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Mali Has a Little Lamb.2016-11-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fQyWC （or） http://www.linkbucks.com/aeii
+<br>【百度密碼】：v3n8
+<br>【MediaFire】：http://adf.ly/1fQyXO （or） http://www.linkbucks.com/acrw
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -178,9 +178,9 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-11-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fR5lO （or） http://www.linkbucks.com/AsZ2
+<br>【百度密碼】：b6mu
+<br>【MediaFire】：http://adf.ly/1fR5oO （or） http://www.linkbucks.com/AsZD
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -189,9 +189,9 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-11-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fR5mS （or） http://www.linkbucks.com/AsZk
+<br>【百度密碼】：5hys
+<br>【MediaFire】：http://adf.ly/1fR5nT （or） http://www.linkbucks.com/AsZR
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
