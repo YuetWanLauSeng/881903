@@ -203,8 +203,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fQXOb （or） http://www.linkbucks.com/A5xe
+<br>【百度密碼】：ijzx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：靜默的革命
@@ -214,8 +214,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Sound of Silence.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fQWqj （or） http://www.linkbucks.com/A59O
+<br>【百度密碼】：p3yb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：寫生活
@@ -225,8 +225,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fQXQV （or） http://www.linkbucks.com/A6Bs
+<br>【百度密碼】：3xys
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -236,6 +236,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fQXPU （or） http://www.linkbucks.com/AWKF
+<br>【百度密碼】：iddh
 <br>【MediaFire】： （or）
