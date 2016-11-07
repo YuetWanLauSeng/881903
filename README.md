@@ -202,7 +202,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fR8He （or） http://www.linkbucks.com/Arqd
 <br>【百度密碼】：t6nn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fRD9q （or） http://www.linkbucks.com/AqmI
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -213,7 +213,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fR8G0 （or） http://www.linkbucks.com/Arqw
 <br>【百度密碼】：9y1p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fRDBw （or） http://www.linkbucks.com/Aql2
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -233,9 +233,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-11-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fRD86 （or） http://www.linkbucks.com/Aqmw
+<br>【百度密碼】：yfb2
+<br>【MediaFire】：http://adf.ly/1fRDar （or） http://www.linkbucks.com/AqiH
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
