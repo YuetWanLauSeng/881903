@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fUH1Y （or） http://www.linkbucks.com/Abrd
 <br>【百度密碼】：shmr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fV0to （or） http://www.linkbucks.com/AgSV
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fUHQy （or） http://www.linkbucks.com/AbkB
 <br>【百度密碼】：3h53
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fV17m （or） http://www.linkbucks.com/AgQ8
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fUH4Y （or） http://www.linkbucks.com/Abkx
 <br>【百度密碼】：ntgk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fV15Z （or） http://www.linkbucks.com/AgQ9
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fUHtA （or） http://www.linkbucks.com/AbRn
 <br>【百度密碼】：wwju
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fV0ym （or） http://www.linkbucks.com/AgRy
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fUbhX （or） http://www.linkbucks.com/AKt6r
 <br>【百度密碼】：xnej
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fV12v （or） http://www.linkbucks.com/AgRZ
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fUp6H （or） http://www.linkbucks.com/Ah6k
 <br>【百度密碼】：r2nw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fV13W （or） http://www.linkbucks.com/AgRX
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -208,8 +208,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fV0qn （or） http://www.linkbucks.com/AgSy
+<br>【百度密碼】：y5t3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -235,9 +235,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fV0mU （or） http://www.linkbucks.com/AgS9
+<br>【百度密碼】：dv3j
+<br>【MediaFire】：http://adf.ly/1fV1lP （or） http://www.linkbucks.com/AgOD
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
