@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fUp6H （or） http://www.linkbucks.com/Ah6k
+<br>【百度密碼】：r2nw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -189,8 +189,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fUp04 （or） http://www.linkbucks.com/Ah50
+<br>【百度密碼】：dc9v
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
