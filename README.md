@@ -82,8 +82,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fUH1Y （or） http://www.linkbucks.com/Abrd
+<br>【百度密碼】：shmr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fUHQy （or） http://www.linkbucks.com/AbkB
+<br>【百度密碼】：3h53
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fUH4Y （or） http://www.linkbucks.com/Abkx
+<br>【百度密碼】：ntgk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fUHtA （or） http://www.linkbucks.com/AbRn
+<br>【百度密碼】：wwju
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fUa95 （or） http://www.linkbucks.com/AZSo
+<br>【百度密碼】：dsh9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-11-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fUa78 （or） http://www.linkbucks.com/AZSz
+<br>【百度密碼】：2vfq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -180,10 +180,7 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-11-09
-<br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【節目暫停】：因播出『一馬當先（跑馬地）』，本期節目暫停
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -202,10 +199,7 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-11-09
-<br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【節目暫停】：因播出『一馬當先（跑馬地）』，本期節目暫停
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -224,10 +218,7 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-11-09
-<br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【節目暫停】：因播出『一馬當先（跑馬地）』，本期節目暫停
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -235,10 +226,7 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-11-09
-<br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【節目暫停】：因播出『一馬當先（跑馬地）』，本期節目暫停
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
