@@ -191,7 +191,6 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fUp04 （or） http://www.linkbucks.com/Ah50
 <br>【百度密碼】：dc9v
-<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -210,7 +209,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fV0qn （or） http://www.linkbucks.com/AgSy
 <br>【百度密碼】：y5t3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fW1yD （or） http://www.linkbucks.com/BH9D
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -248,7 +247,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fVcRJ （or） http://www.linkbucks.com/BL4h
 <br>【百度密碼】：ixsn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fW21V （or） http://www.linkbucks.com/BH8w
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -259,7 +258,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fVcSh （or） http://www.linkbucks.com/BL4Q
 <br>【百度密碼】：gpc3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fW25K （or） http://www.linkbucks.com/BH8h
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -270,7 +269,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fVcUq （or） http://www.linkbucks.com/BL34
 <br>【百度密碼】：x4ht
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fW23h （or） http://www.linkbucks.com/BH8r
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -281,4 +280,3 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fVcNY （or） http://www.linkbucks.com/BL4o
 <br>【百度密碼】：waac
-<br>【MediaFire】： （or）
