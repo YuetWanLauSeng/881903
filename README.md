@@ -16,9 +16,9 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2016-11-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1fW8Yw （or） http://www.linkbucks.com/BHLM
-<br>【百度密碼】：nvtc
-<br>【MediaFire】：http://adf.ly/1fWJwE （or） http://www.linkbucks.com/BEPk
+<br>【百度雲盤】：http://adf.ly/1fWakl （or） http://www.linkbucks.com/BBj0
+<br>【百度密碼】：yuvv
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-11-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fWaic （or） http://www.linkbucks.com/BBkN
+<br>【百度密碼】：eepm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
