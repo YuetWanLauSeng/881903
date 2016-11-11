@@ -16,8 +16,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2016-11-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fYOqC （or） http://www.linkbucks.com/Bhfi
+<br>【百度密碼】：ikia
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：早安，同學早!
