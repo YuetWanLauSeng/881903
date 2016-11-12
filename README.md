@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fYOqC （or） http://www.linkbucks.com/Bhfi
 <br>【百度密碼】：ikia
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1faYlS （or） http://www.linkbucks.com/BV6l
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fZF36 （or） http://www.linkbucks.com/BCI7
 <br>【百度密碼】：6629
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1faYjF （or） http://www.linkbucks.com/BV6r
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -269,8 +269,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-11-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fajCc （or） http://www.linkbucks.com/BUuJ
+<br>【百度密碼】：fn76
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -280,8 +280,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-11-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fajEl （or） http://www.linkbucks.com/BUuE
+<br>【百度密碼】：fq9g
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -291,6 +291,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fajGp （or） http://www.linkbucks.com/BUtA
+<br>【百度密碼】：v85w
 <br>【MediaFire】： （or）
