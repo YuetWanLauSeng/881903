@@ -128,8 +128,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fbYIm （or） http://www.linkbucks.com/BIFO
+<br>【百度密碼】：cya9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
@@ -147,8 +147,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fbYFZ （or） http://www.linkbucks.com/BIFV
+<br>【百度密碼】：excc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：第三齡接觸
