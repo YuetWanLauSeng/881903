@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feGXk （or） http://www.linkbucks.com/BUks
 <br>【百度密碼】：rxtf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fejK0 （or） http://www.linkbucks.com/BmLA
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feGWk （or） http://www.linkbucks.com/BUk2
 <br>【百度密碼】：tusx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1feim2 （or） http://www.linkbucks.com/BmTE
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feGYe （or） http://www.linkbucks.com/BUkg
 <br>【百度密碼】：pbtk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1feivF （or） http://www.linkbucks.com/BmPe
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feGNp （or） http://www.linkbucks.com/BUlr
 <br>【百度密碼】：dghc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fejEp （or） http://www.linkbucks.com/BmLP
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feGUN （or） http://www.linkbucks.com/BUlI
 <br>【百度密碼】：xc1c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fejQe （or） http://www.linkbucks.com/BmKv
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feGQS （or） http://www.linkbucks.com/BUlU
 <br>【百度密碼】：3u4p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fejML （or） http://www.linkbucks.com/BmK0
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feGbm （or） http://www.linkbucks.com/BUkW
 <br>【百度密碼】：pfs7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fejIC （or） http://www.linkbucks.com/BmLI
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feRG1 （or） http://www.linkbucks.com/BTaJ
 <br>【百度密碼】：hycm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fejCu （or） http://www.linkbucks.com/BmLz
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feRD3 （or） http://www.linkbucks.com/BTau
 <br>【百度密碼】：qj8u
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fejAz （or） http://www.linkbucks.com/BmOw
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1feRAz （or） http://www.linkbucks.com/BTbf
 <br>【百度密碼】：n2ey
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fej81 （or） http://www.linkbucks.com/BmO8
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -126,9 +126,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1feicl （or） http://www.linkbucks.com/BmcI
+<br>【百度密碼】：rmt4
+<br>【MediaFire】：http://adf.ly/1fek86 （or） http://www.linkbucks.com/BmDY
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
