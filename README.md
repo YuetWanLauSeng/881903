@@ -158,9 +158,9 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fe1KG （or） http://www.linkbucks.com/BXht
+<br>【百度密碼】：mxt3
+<br>【MediaFire】：http://adf.ly/1fe1aS （or） http://www.linkbucks.com/BXgV
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -169,9 +169,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fe1If （or） http://www.linkbucks.com/BXh4
+<br>【百度密碼】：tdqh
+<br>【MediaFire】：http://adf.ly/1fe1WF （or） http://www.linkbucks.com/BXhF
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -180,8 +180,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fe1Ux （or） http://www.linkbucks.com/BXhK
+<br>【百度密碼】：kjx5
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -191,9 +191,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fe1OC （or） http://www.linkbucks.com/BXhg
+<br>【百度密碼】：g1a1
+<br>【MediaFire】：http://adf.ly/1fe1ZQ （or） http://www.linkbucks.com/BXgc
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -213,8 +213,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fe2Mm （or） http://www.linkbucks.com/BXU8
+<br>【百度密碼】：nwrw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
