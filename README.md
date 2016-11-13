@@ -181,8 +181,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ffGHl （or） http://www.linkbucks.com/ACpHT
+<br>【百度密碼】：rnew
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
