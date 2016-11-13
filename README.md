@@ -202,8 +202,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fe5gZ （or） http://www.linkbucks.com/BW7x
+<br>【百度密碼】：a93q
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -224,8 +224,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fe5e3 （or） http://www.linkbucks.com/BW77
+<br>【百度密碼】：8kv9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：皇牌出場
@@ -235,8 +235,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fe5l4 （or） http://www.linkbucks.com/BW7o
+<br>【百度密碼】：6wpx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -246,6 +246,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fe5im （or） http://www.linkbucks.com/BW7u
+<br>【百度密碼】：seqi
 <br>【MediaFire】： （or）
