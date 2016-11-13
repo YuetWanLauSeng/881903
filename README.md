@@ -137,9 +137,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1ffWsR （or） http://www.linkbucks.com/BMYG
+<br>【百度密碼】：5jhg
+<br>【MediaFire】：http://adf.ly/1ffWwV （or） http://www.linkbucks.com/BMXr
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -148,9 +148,9 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1ffWpA （or） http://www.linkbucks.com/BMYZ
+<br>【百度密碼】：x4pp
+<br>【MediaFire】：http://adf.ly/1ffWlX （or） http://www.linkbucks.com/BMYq
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ff7rI （or） http://www.linkbucks.com/Bi4P
 <br>【百度密碼】：wkwc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ffWzL （or） http://www.linkbucks.com/BMXg
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ff7fR （or） http://www.linkbucks.com/Bi5s
 <br>【百度密碼】：gbbe
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ffWuq （or） http://www.linkbucks.com/BMXx
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ffWi0 （or） http://www.linkbucks.com/BMa7
+<br>【百度密碼】：yphu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
@@ -203,8 +203,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ffWfb （or） http://www.linkbucks.com/BMbE
+<br>【百度密碼】：mti5
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
@@ -214,8 +214,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ffWal （or） http://www.linkbucks.com/BMbW
+<br>【百度密碼】：jsy6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ffWcO （or） http://www.linkbucks.com/BMbP
+<br>【百度密碼】：bdqb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
@@ -236,9 +236,9 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1ffWYg （or） http://www.linkbucks.com/BMbu
+<br>【百度密碼】：agwe
+<br>【MediaFire】：http://adf.ly/1ffWit （or） http://www.linkbucks.com/BMaw
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
