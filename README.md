@@ -82,8 +82,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1feRG1 （or） http://www.linkbucks.com/BTaJ
+<br>【百度密碼】：hycm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：電影圈
@@ -93,8 +93,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1feRD3 （or） http://www.linkbucks.com/BTau
+<br>【百度密碼】：qj8u
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：無定向喪煲病狂
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-11-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1feRAz （or） http://www.linkbucks.com/BTbf
+<br>【百度密碼】：n2ey
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
