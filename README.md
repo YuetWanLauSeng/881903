@@ -60,8 +60,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2016-11-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：稍後補充
+<br>【百度雲盤】：http://adf.ly/1fgqXu （or） http://www.linkbucks.com/BjKN
+<br>【百度密碼】：3s5s
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
