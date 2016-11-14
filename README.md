@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fh9cE （or） http://www.linkbucks.com/BPLg
 <br>【百度密碼】：jx1p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fhCwY （or） http://www.linkbucks.com/BOxO
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fh9e8 （or） http://www.linkbucks.com/BPLa
 <br>【百度密碼】：6khc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fhCyP （or） http://www.linkbucks.com/BOxN
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-11-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fhCku （or） http://www.linkbucks.com/BOxq
+<br>【百度密碼】：432k
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
