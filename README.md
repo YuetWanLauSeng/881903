@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fhCku （or） http://www.linkbucks.com/BOxq
 <br>【百度密碼】：432k
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fhTGv （or） http://www.linkbucks.com/Bzhx
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-11-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fhTD0 （or） http://www.linkbucks.com/BzhX
+<br>【百度密碼】：v7f6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-11-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fhTFd （or） http://www.linkbucks.com/Bzhv
+<br>【百度密碼】：qzf4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
