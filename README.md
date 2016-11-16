@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flWnc （or） http://www.linkbucks.com/CLMI
 <br>【百度密碼】：935t
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fmFIQ （or） http://www.linkbucks.com/B0IW
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flUB7 （or） http://www.linkbucks.com/CMll
 <br>【百度密碼】：xjbm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fmFEQ （or） http://www.linkbucks.com/B0IL
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flmsZ （or） http://www.linkbucks.com/CENO
 <br>【百度密碼】：ubrz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fmF8g （or） http://www.linkbucks.com/B0xo
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flmZW （or） http://www.linkbucks.com/CEum
 <br>【百度密碼】：2jcd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fmFCQ （or） http://www.linkbucks.com/B0H4
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flpFk （or） http://www.linkbucks.com/CDa8
 <br>【百度密碼】：nq45
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fmFL3 （or） http://www.linkbucks.com/B0If
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,9 +170,9 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-11-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fmEiE （or） http://www.linkbucks.com/B0t0
+<br>【百度密碼】：erq9
+<br>【MediaFire】：http://adf.ly/1fmEvS （or） http://www.linkbucks.com/B0vL
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -189,8 +189,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-11-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fmEpx （or） http://www.linkbucks.com/B0ui
+<br>【百度密碼】：n6qp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -208,8 +208,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fmEly （or） http://www.linkbucks.com/B0uV
+<br>【百度密碼】：jyxw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -235,9 +235,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fmEdw （or） http://www.linkbucks.com/B0td
+<br>【百度密碼】：2fcc
+<br>【MediaFire】：http://adf.ly/1fmFhZ （or） http://www.linkbucks.com/B0Jy
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
