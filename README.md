@@ -214,9 +214,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fkng2 （or） http://www.linkbucks.com/Bt1y
+<br>【百度密碼】：qzy4
+<br>【MediaFire】：http://adf.ly/1fko4G （or） http://www.linkbucks.com/BuLB
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -238,7 +238,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fjreF （or） http://www.linkbucks.com/B5tT
 <br>【百度密碼】：fwnt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fko6W （or） http://www.linkbucks.com/BuLJ
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -260,7 +260,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fkhvz （or） http://www.linkbucks.com/Buep
 <br>【百度密碼】：fkcx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fknxM （or） http://www.linkbucks.com/BuKh
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -271,7 +271,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fki16 （or） http://www.linkbucks.com/Bue6
 <br>【百度密碼】：3x9g
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fko2R （or） http://www.linkbucks.com/BuKt
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -282,7 +282,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fki3O （or） http://www.linkbucks.com/BufF
 <br>【百度密碼】：9kud
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fknzW （or） http://www.linkbucks.com/BuKn
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -293,4 +293,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fki5Q （or） http://www.linkbucks.com/BufO
 <br>【百度密碼】：kpj2
-<br>【MediaFire】： （or）
+<br>【MediaFire】：http://adf.ly/1fknvH （or）http://www.linkbucks.com/BuKa
