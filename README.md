@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flUA4 （or） http://www.linkbucks.com/CMlG
 <br>【百度密碼】：bc5a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flone （or） http://www.linkbucks.com/CDQW
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flU6D （or） http://www.linkbucks.com/CNPI
 <br>【百度密碼】：xxfp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flou2 （or） http://www.linkbucks.com/CDRX
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flU7Q （or） http://www.linkbucks.com/CMkm
 <br>【百度密碼】：hr9y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flowr （or） http://www.linkbucks.com/CDR3
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flmur （or） http://www.linkbucks.com/CEOW
 <br>【百度密碼】：amcb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flosH （or） http://www.linkbucks.com/CDRK
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flmqA （or） http://www.linkbucks.com/CEL2
 <br>【百度密碼】：zyic
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flopO （or） http://www.linkbucks.com/CDQ1
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flmRW （or） http://www.linkbucks.com/CEtl
 <br>【百度密碼】：4kbb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flomW （or） http://www.linkbucks.com/CDPH
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-11-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1flpFk （or） http://www.linkbucks.com/CDa8
+<br>【百度密碼】：nq45
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
