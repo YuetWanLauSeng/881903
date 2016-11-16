@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flVsL （or） http://www.linkbucks.com/CMPx
 <br>【百度密碼】：7gpj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flomW （or） http://www.linkbucks.com/B2Q5
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flUCU （or） http://www.linkbucks.com/CMmM
 <br>【百度密碼】：tpep
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flzbP （or） http://www.linkbucks.com/CAzQ
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1flmWd （or） http://www.linkbucks.com/CEt5
 <br>【百度密碼】：m1hq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1flzdu （or） http://www.linkbucks.com/B2Qs
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
