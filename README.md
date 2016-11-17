@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1foXBV （or） http://www.linkbucks.com/B32Y
 <br>【百度密碼】：3cj1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1foeQD （or） http://www.linkbucks.com/B2sw
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1foRhk （or） http://www.linkbucks.com/B4yl
 <br>【百度密碼】：5wme
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1foeN4 （or） http://www.linkbucks.com/B2sj
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1foXGu （or） http://www.linkbucks.com/B323
 <br>【百度密碼】：yz27
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1foeGy （or） http://www.linkbucks.com/B3bI
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1foXES （or） http://www.linkbucks.com/B32t
 <br>【百度密碼】：9my3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1foeRA （or） http://www.linkbucks.com/B2s8
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1foeDe （or） http://www.linkbucks.com/B3YZ
+<br>【百度密碼】：e3hh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1foXLM （or） http://www.linkbucks.com/B33E
 <br>【百度密碼】：fbrr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1foeKR （or） http://www.linkbucks.com/B2sD
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -235,10 +235,18 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-11-17
+<br>【節目暫停】：一連四個星期四晚改播『牽一腺，護全身』
+
+<br>【節目名稱】：牽一腺，護全身
+<br>【節目頻道】：881
+<br>【節目日期】：2016-11-17
+<br>【節目主持】：阮子健
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Protect Prostate Health, Promote Personal Health.2016-11-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1foeFQ （or） http://www.linkbucks.com/B3a0
+<br>【百度密碼】：gvam
+<br>【MediaFire】：http://adf.ly/1foeMA （or） http://www.linkbucks.com/B2sR
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -247,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1foe9h （or） http://www.linkbucks.com/B3Wt
+<br>【百度密碼】：4kmt
+<br>【MediaFire】：http://adf.ly/1fofwC （or） http://www.linkbucks.com/B25f
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
