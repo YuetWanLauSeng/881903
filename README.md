@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fqXr6 （or） http://www.linkbucks.com/CLPB
 <br>【百度密碼】：y6mc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fqlpp （or） http://www.linkbucks.com/CKam
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fqVV4 （or） http://www.linkbucks.com/CLwV
 <br>【百度密碼】：cm94
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fqlfK （or） http://www.linkbucks.com/CKaZ
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fqXuQ （or） http://www.linkbucks.com/CLPI
 <br>【百度密碼】：a6vr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fqlhm （or） http://www.linkbucks.com/CKag
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fqlFU （or） http://www.linkbucks.com/CKZI
+<br>【百度密碼】：hvvy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fqY2m （or） http://www.linkbucks.com/CLQq
 <br>【百度密碼】：ir2i
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fqlu0 （or） http://www.linkbucks.com/CKa7
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -236,8 +236,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-11-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fqlOt （or） http://www.linkbucks.com/CKZg
+<br>【百度密碼】：g1ys
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fql5a （or） http://www.linkbucks.com/CKYv
+<br>【百度密碼】：25sf
+<br>【MediaFire】：http://adf.ly/1fqlaz （or） http://www.linkbucks.com/CKaD
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
