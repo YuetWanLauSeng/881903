@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fsF2M （or） http://www.linkbucks.com/CSjr
 <br>【百度密碼】：q5s6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fschb （or） http://www.linkbucks.com/CxgC
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -148,8 +148,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fscfD （or） http://www.linkbucks.com/Cwzl
+<br>【百度密碼】：adg9
 <br>【MediaFire】：http://adf.ly/1fsQAi （or） http://www.linkbucks.com/CQoU
 
 <br>【節目名稱】：3號螺絲釘
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fscb8 （or） http://www.linkbucks.com/Cw0l
+<br>【百度密碼】：3izy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -181,8 +181,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fscWf （or） http://www.linkbucks.com/CPfH
+<br>【百度密碼】：muuw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
