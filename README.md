@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fsF2M （or） http://www.linkbucks.com/CSjr
+<br>【百度密碼】：q5s6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：豁達推介
@@ -137,9 +137,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1kVsIhQB （or） http://www.linkbucks.com/CTJB
+<br>【百度密碼】：gybz
+<br>【MediaFire】：http://adf.ly/1fsQ55 （or） http://www.linkbucks.com/CQnv
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fsQAi （or） http://www.linkbucks.com/CQoU
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -159,9 +159,9 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fsQ1S （or） http://www.linkbucks.com/CQnT
+<br>【百度密碼】：pdg6
+<br>【MediaFire】：http://adf.ly/1fsQ7k （or） http://www.linkbucks.com/CQoA
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
