@@ -71,8 +71,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fuIkS （or） http://www.linkbucks.com/Cz0t
+<br>【百度密碼】：y5nu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：無定向喪煲病狂
