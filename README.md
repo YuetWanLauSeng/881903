@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fu9Hu （or） http://www.linkbucks.com/C1VH
 <br>【百度密碼】：phpw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fuJa5 （or） http://www.linkbucks.com/CaKK
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fu9Cb （or） http://www.linkbucks.com/C1Tr
 <br>【百度密碼】：s9ft
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fuJPb （or） http://www.linkbucks.com/CaJF
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fu9KN （or） http://www.linkbucks.com/C1Vk
 <br>【百度密碼】：1i6s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fuJW5 （or） http://www.linkbucks.com/CaJU
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fu8l8 （or） http://www.linkbucks.com/C1fB
 <br>【百度密碼】：nigv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fuJSr （or） http://www.linkbucks.com/CaJS
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fu9Eo （or） http://www.linkbucks.com/C1UE
 <br>【百度密碼】：9cui
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fuJbO （or） http://www.linkbucks.com/CaMc
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fu9B6 （or） http://www.linkbucks.com/C1TT
 <br>【百度密碼】：hmwm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fuJfx （or） http://www.linkbucks.com/CaMg
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fuIkS （or） http://www.linkbucks.com/Cz0t
 <br>【百度密碼】：y5nu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fuJYY （or） http://www.linkbucks.com/CaJe
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -82,9 +82,9 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fuJLU （or） http://www.linkbucks.com/CaI5
+<br>【百度密碼】：2975
+<br>【MediaFire】：http://adf.ly/1fuJN7 （or） http://www.linkbucks.com/CaJE
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
