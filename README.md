@@ -115,8 +115,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fuVA0 （or） http://www.linkbucks.com/CXCP
+<br>【百度密碼】：hxfp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
@@ -126,8 +126,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fuV32 （or） http://www.linkbucks.com/CXBA
+<br>【百度密碼】：q7w9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
