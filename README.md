@@ -192,8 +192,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fu0w7 （or） http://www.linkbucks.com/C1wF
+<br>【百度密碼】：my56
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -203,8 +203,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fu0s8 （or） http://www.linkbucks.com/C1v0
+<br>【百度密碼】：5f9m
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
@@ -214,8 +214,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fu0hY （or） http://www.linkbucks.com/C2iI
+<br>【百度密碼】：nekx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ftsPk （or） http://www.linkbucks.com/C4Qq
 <br>【百度密碼】：nz2z
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fu11P （or） http://www.linkbucks.com/C1wY
 
 <br>【節目名稱】：發式生活
 <br>【節目頻道】：881
@@ -236,8 +236,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fu0ef （or） http://www.linkbucks.com/C2hZ
+<br>【百度密碼】：4m6t
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：皇牌出場
@@ -247,8 +247,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-11-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fu0be （or） http://www.linkbucks.com/C2hV
+<br>【百度密碼】：ypk8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
