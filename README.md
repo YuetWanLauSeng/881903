@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fwB0Q （or） http://www.linkbucks.com/CeDV
 <br>【百度密碼】：jwz5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fxApd （or） http://www.linkbucks.com/CUpC
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fwAxz （or） http://www.linkbucks.com/CeDG
 <br>【百度密碼】：gv24
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fwo08 （or） http://www.linkbucks.com/CUp8
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fwXAL （or） http://www.linkbucks.com/CyEf
 <br>【百度密碼】：8y3k
-<br>【MediaFire】：http://adf.ly/1fwo08 （or） http://www.linkbucks.com/CnkL
+<br>【MediaFire】：http://adf.ly/1fxAtk （or） http://www.linkbucks.com/CUpL
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fwo7B （or） http://www.linkbucks.com/Cm8o
 <br>【百度密碼】：kp53
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fxB3O （or） http://www.linkbucks.com/CUps
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fwy8f （or） http://www.linkbucks.com/CV0i
 <br>【百度密碼】：tmjw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fxB4l （or） http://www.linkbucks.com/CUpx
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fwy7O （or） http://www.linkbucks.com/CV0g
 <br>【百度密碼】：7wfp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fxB2K （or） http://www.linkbucks.com/CUpo
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fx3d0 （or） http://www.linkbucks.com/CVdx
 <br>【百度密碼】：xged
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fxAxH （or） http://www.linkbucks.com/CUpY
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fx3Yd （or） http://www.linkbucks.com/CVdp
 <br>【百度密碼】：x2z8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fxB0Z （or） http://www.linkbucks.com/CUpg
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fxAWi （or） http://www.linkbucks.com/CUoE
 <br>【百度密碼】：pk26
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fxB9f （or） http://www.linkbucks.com/CUqB
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
