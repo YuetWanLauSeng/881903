@@ -104,8 +104,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvkJG （or） http://www.linkbucks.com/Cf2q
+<br>【百度密碼】：36ct
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -137,8 +137,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvkPG （or） http://www.linkbucks.com/Cf3F
+<br>【百度密碼】：dy8h
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -148,8 +148,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvkMQ （or） http://www.linkbucks.com/Cf20
+<br>【百度密碼】：4eey
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
@@ -159,8 +159,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvk5O （or） http://www.linkbucks.com/CgmS
+<br>【百度密碼】：nf88
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
@@ -170,8 +170,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvjsD （or） http://www.linkbucks.com/CghY
+<br>【百度密碼】：khfk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
@@ -181,8 +181,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvk3w （or） http://www.linkbucks.com/CgmB
+<br>【百度密碼】：zxdr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
@@ -192,8 +192,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvk8N （or） http://www.linkbucks.com/Cf1C
+<br>【百度密碼】：6qrb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：短期租約
@@ -203,8 +203,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvjy8 （or） http://www.linkbucks.com/CgkB
+<br>【百度密碼】：wiif
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：靜默的革命
@@ -214,8 +214,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Sound of Silence.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvk09 （or） http://www.linkbucks.com/Cgk2
+<br>【百度密碼】：p892
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：寫生活
@@ -225,8 +225,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvkGo （or） http://www.linkbucks.com/Cf2A
+<br>【百度密碼】：eq44
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -236,6 +236,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fvkBf （or） http://www.linkbucks.com/Cf1K
+<br>【百度密碼】：83ud
 <br>【MediaFire】： （or）
