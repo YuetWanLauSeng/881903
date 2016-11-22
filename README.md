@@ -293,4 +293,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fy1BB （or） http://www.linkbucks.com/BW4j
 <br>【百度密碼】：n9h9
-<br>【MediaFire】： （or）
+<br>【MediaFire】：http://adf.ly/1fy3ZB （or）http://www.linkbucks.com/LWI
