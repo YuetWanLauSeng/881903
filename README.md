@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fxLp4 （or） http://www.linkbucks.com/CTSB
 <br>【百度密碼】：9v98
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fy1Db （or） http://www.linkbucks.com/BHw8
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -238,7 +238,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fxLrF （or） http://www.linkbucks.com/CTSG
 <br>【百度密碼】：4gfi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fy1Sz （or） http://www.linkbucks.com/BD9Q
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -249,7 +249,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fxLl0 （or） http://www.linkbucks.com/CTR3
 <br>【百度密碼】：u7ha
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1fy1LQ （or） http://www.linkbucks.com/DMNV
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -258,9 +258,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-11-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fy12T （or） http://www.linkbucks.com/1Rip
+<br>【百度密碼】：beb9
+<br>【MediaFire】：http://adf.ly/1fy1FG （or） http://www.linkbucks.com/BG0T
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -269,9 +269,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-11-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fy15A （or） http://www.linkbucks.com/AuBd
+<br>【百度密碼】：qnrd
+<br>【MediaFire】：http://adf.ly/1fy1KC （or） http://www.linkbucks.com/BEyY
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -280,9 +280,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-11-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fy180 （or） http://www.linkbucks.com/Atcm
+<br>【百度密碼】：req8
+<br>【MediaFire】：http://adf.ly/1fy1HT （or） http://www.linkbucks.com/BGvA
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -291,6 +291,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fy1BB （or） http://www.linkbucks.com/BW4j
+<br>【百度密碼】：n9h9
 <br>【MediaFire】： （or）
