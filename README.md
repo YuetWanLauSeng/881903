@@ -137,9 +137,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-11-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fysd4 （or） http://www.linkbucks.com/CYD7
+<br>【百度密碼】：22yc
+<br>【MediaFire】：http://adf.ly/1fyy6x （or） http://www.linkbucks.com/CYJP
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -148,9 +148,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-11-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1fyshl （or） http://www.linkbucks.com/CYEh
+<br>【百度密碼】：avmj
+<br>【MediaFire】：http://adf.ly/1fyy4b （or） http://www.linkbucks.com/CXjt
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-11-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1fyxyy （or） http://www.linkbucks.com/CYHu
+<br>【百度密碼】：v4vq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
