@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fzd6v （or） http://www.linkbucks.com/CpAW
 <br>【百度密碼】：ktw8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0Hk5 （or） 
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -249,7 +249,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1fzdLO （or） http://www.linkbucks.com/CpBY
 <br>【百度密碼】：86rw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0Hhj （or） http://www.linkbucks.com/CtAD
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -258,9 +258,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-11-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1g0HQb （or） http://www.linkbucks.com/Cs84
+<br>【百度密碼】：2txa
+<br>【MediaFire】：http://adf.ly/1g0Hex （or） http://www.linkbucks.com/Cs93
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -269,8 +269,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-11-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g0HUG （or） http://www.linkbucks.com/Cs9H
+<br>【百度密碼】：cbvh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -280,8 +280,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-11-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g0HbY （or） http://www.linkbucks.com/Cs9r
+<br>【百度密碼】：wxg4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -291,6 +291,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g0Hcs （or） http://www.linkbucks.com/Cs9x
+<br>【百度密碼】：d2zv
 <br>【MediaFire】： （or）
