@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g0kFf （or） http://www.linkbucks.com/rYJS
 <br>【百度密碼】：bej8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0ucG （or） http://www.linkbucks.com/cixv
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g0kSP （or） http://www.linkbucks.com/ooTU
 <br>【百度密碼】：26dx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0uVm （or） http://www.linkbucks.com/cjn2
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g0l3K （or） http://www.linkbucks.com/oC99
 <br>【百度密碼】：uexd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0uhD （or） http://www.linkbucks.com/ciuw
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g0kHK （or） http://www.linkbucks.com/rGcM
 <br>【百度密碼】：wav7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0uZr （or） http://www.linkbucks.com/ci1n
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g0l1v （or） http://www.linkbucks.com/oFAW
 <br>【百度密碼】：4h6q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0uly （or） http://www.linkbucks.com/cinq
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g0l5E （or） http://www.linkbucks.com/n17K
 <br>【百度密碼】：8ihh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0uZ7 （or） http://www.linkbucks.com/ci3v
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g0lpI （or） http://www.linkbucks.com/nJph
 <br>【百度密碼】：apm5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0ual （or） http://www.linkbucks.com/ciy3
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -82,8 +82,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-11-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g0uod （or） http://www.linkbucks.com/cimt
+<br>【百度密碼】：r3ur
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g0kE9 （or） http://www.linkbucks.com/rbwf
 <br>【百度密碼】：ma9f
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g0ujx （or） http://www.linkbucks.com/cisi
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-11-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g0vjT （or） http://www.linkbucks.com/b2s8
+<br>【百度密碼】：h7kb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-11-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g0vI8 （or） http://www.linkbucks.com/cg8q
+<br>【百度密碼】：9xme
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-11-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g0wX6 （or） http://www.linkbucks.com/b2ks
+<br>【百度密碼】：jm7a
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
