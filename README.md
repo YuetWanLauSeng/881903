@@ -1,3 +1,7 @@
+[b][size=6][color=#ff0000]祝各位感恩節快樂[/color][/size][/b]
+
+<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
+
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2016-11-24
@@ -139,7 +143,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1pL1xFrt
 <br>【百度密碼】：469i
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/9usqaaj3dzsczm0/The_Fun_Box.2016-11-24.mp3
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +154,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1qYvpYCs
 <br>【百度密碼】：86r8
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/eprytb7hfb6dte6/When_I_Was_Young_I_Listen_To_The_Radio.2016-11-24.mp3
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,9 +163,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-11-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：
-<br>【百度密碼】：
-<br>【MediaFire】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1geHCL27
+<br>【百度密碼】：3juu
+<br>【MediaFire】：http://www.mediafire.com/file/f4l3qa1606reayg/Dokureioukoku.2016-11-24.mp3
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
