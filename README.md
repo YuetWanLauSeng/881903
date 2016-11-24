@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1mips4qc
 <br>【百度密碼】：145j
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/or7s8la2uks7370/Share_My_Song.2016-11-24.mp3
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1mifPeWg
 <br>【百度密碼】：sbhr
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/o4473bux3dlwcf7/On_a_Clear_Day%EF%BC%88881%EF%BC%89.2016-11-24.mp3
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1i5OA129
 <br>【百度密碼】：cxe4
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/t8nzf1umnucbxu0/Hey%2C_Learners%21.2016-11-24.mp3
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1eSsS7D4
 <br>【百度密碼】：idkn
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/2a2yf63of9yp7yr/On_a_Clear_Day%EF%BC%88903%EF%BC%89.2016-11-24.mp3
 
 <br>【節目名稱】：鈺成千里目
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1hseBsn6
 <br>【百度密碼】：83rg
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/167wme324l1qe1w/Jasper%E2%80%99s_POV.2016-11-24.mp3
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1c135GIG
 <br>【百度密碼】：ax6k
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/t9hgm0hdtgp5x4s/Good_Morning_King.2016-11-24.mp3
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1hsukxSw
 <br>【百度密碼】：s3yp
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/xjgxf3m3d66x1mx/Circles.2016-11-24.mp3
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -82,8 +82,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-11-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1pKV9Asj
+<br>【百度密碼】：4axq
 <br>【MediaFire】：
 
 <br>【節目名稱】：十八樓C座
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1dEXpRPZ
 <br>【百度密碼】：r2y1
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/14f973rl9b8o4dk/18F_Block_C.2016-11-24.mp3
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-11-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1slGmEex
+<br>【百度密碼】：38fq
 <br>【MediaFire】：
 
 <br>【節目名稱】：人生交叉盤
@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-11-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1dFtA67R
+<br>【百度密碼】：1sc2
 <br>【MediaFire】：
 
 <br>【節目名稱】：你好嘢
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-11-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1gfKAMzx
+<br>【百度密碼】：ayre
 <br>【MediaFire】：
 
 <br>【節目名稱】：大玩派
