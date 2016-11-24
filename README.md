@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1pKV9Asj
 <br>【百度密碼】：4axq
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/sugl4zlfyf46sm9/903_Music.2016-11-24.mp3
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1slGmEex
 <br>【百度密碼】：38fq
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/j4noyin6tx35iv3/Lunch_Special.2016-11-24.mp3
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1dFtA67R
 <br>【百度密碼】：1sc2
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/j8fqpbkj1ls95ez/Crosstrade.2016-11-24.mp3
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1gfKAMzx
 <br>【百度密碼】：ayre
-<br>【MediaFire】：
+<br>【MediaFire】：http://www.mediafire.com/file/e5hm5enu6kbsy6d/You_Are_The_Best.2016-11-24.mp3
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-11-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1pL1xFrt
+<br>【百度密碼】：469i
 <br>【MediaFire】：
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-11-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1qYvpYCs
+<br>【百度密碼】：86r8
 <br>【MediaFire】：
 
 <br>【節目名稱】：毒檸王國
