@@ -1,7 +1,3 @@
-[b][size=6][color=#ff0000]祝各位感恩節快樂[/color][/size][/b]
-
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
-
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2016-11-24
@@ -174,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-11-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1kUQsg8f
+<br>【百度密碼】：4va7
 <br>【MediaFire】：
 
 <br>【節目名稱】：人民大道中
