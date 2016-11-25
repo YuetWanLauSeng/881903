@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-11-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g5wcb （or） http://www.linkbucks.com/AK4MV
+<br>【百度密碼】：pw7k
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-11-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g5whk （or） http://www.linkbucks.com/AK4MI
+<br>【百度密碼】：v354
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-11-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g60I3 （or） http://www.linkbucks.com/AK3Vt
+<br>【百度密碼】：i3qa
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
