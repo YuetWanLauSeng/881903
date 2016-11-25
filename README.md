@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5VSz （or） http://www.linkbucks.com/DKMP
 <br>【百度密碼】：cacw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g5oT8 （or） http://www.linkbucks.com/AK5Rx
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5VFd （or） http://www.linkbucks.com/DKvU
 <br>【百度密碼】：9bf5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g5ogG （or） http://www.linkbucks.com/AK5SB
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5VOf （or） http://www.linkbucks.com/DKIj
 <br>【百度密碼】：5ika
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g5ofG （or） http://www.linkbucks.com/AK5SP
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5VMB （or） http://www.linkbucks.com/DKHh
 <br>【百度密碼】：gnq1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g5oWA （or） http://www.linkbucks.com/AK5Sm
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5b07 （or） http://www.linkbucks.com/DIlB
 <br>【百度密碼】：wntj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g5oU5 （or） http://www.linkbucks.com/AK5T7
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5b1q （or） http://www.linkbucks.com/DIls
 <br>【百度密碼】：girt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g5oQ5 （or） http://www.linkbucks.com/AK5UZ
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5dVY （or） http://www.linkbucks.com/DHl3
 <br>【百度密碼】：ke6g
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g5oZL （or） http://www.linkbucks.com/AK5Sb
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-11-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g5owr （or） http://www.linkbucks.com/AK5Hm
+<br>【百度密碼】：kpgw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-11-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g5pZo （or） http://www.linkbucks.com/AK5G6
+<br>【百度密碼】：pfde
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
