@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5owr （or） http://www.linkbucks.com/AK5Hm
 <br>【百度密碼】：kpgw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g6FNG （or） http://www.linkbucks.com/DDXe
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5pZo （or） http://www.linkbucks.com/AK5G6
 <br>【百度密碼】：pfde
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g6FGl （or） http://www.linkbucks.com/DDXb
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5wcb （or） http://www.linkbucks.com/AK4MV
 <br>【百度密碼】：pw7k
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g6FEB （or） http://www.linkbucks.com/DDXW
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g5whk （or） http://www.linkbucks.com/AK4MI
 <br>【百度密碼】：v354
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g6FJA （or） http://www.linkbucks.com/DDXd
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g6Emj （or） http://www.linkbucks.com/wC9U
+<br>【百度密碼】：iig7
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g60I3 （or） http://www.linkbucks.com/AK3Vt
 <br>【百度密碼】：i3qa
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g6FAO （or） http://www.linkbucks.com/DDO2
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -236,9 +236,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-11-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1g6Eqi （or） http://www.linkbucks.com/DDOf
+<br>【百度密碼】：cwui
+<br>【MediaFire】：http://adf.ly/1g6F8I （or） http://www.linkbucks.com/DDOv
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1g6Eil （or） http://www.linkbucks.com/wC9a
+<br>【百度密碼】：bib3
+<br>【MediaFire】：http://adf.ly/1g6FSG （or） http://www.linkbucks.com/DDXp
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
