@@ -93,8 +93,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g80m1 （or） http://www.linkbucks.com/AKw2X
+<br>【百度密碼】：evgw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：咪芝蓮
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g80r8 （or） http://www.linkbucks.com/AKxbo
+<br>【百度密碼】：sm7d
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：豁達推介
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g80ix （or） http://www.linkbucks.com/AKxCh
+<br>【百度密碼】：qyec
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
@@ -148,8 +148,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g80Vi （or） http://www.linkbucks.com/AKxKp
+<br>【百度密碼】：txxw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：3號螺絲釘
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g80a3 （or） http://www.linkbucks.com/AKyUk
+<br>【百度密碼】：7k2f
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：第三齡接觸
