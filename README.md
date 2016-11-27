@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g9xT2 （or） http://www.linkbucks.com/q5bR
 <br>【百度密碼】：87rc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gA5cj （or） http://www.linkbucks.com/DHTx
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g9xVR （or） http://www.linkbucks.com/q5bF
 <br>【百度密碼】：cypu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gA5Zq （or） http://www.linkbucks.com/DFkX
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gA0iq （or） http://www.linkbucks.com/AIP5t
 <br>【百度密碼】：h3cr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gA5Sy （or） http://www.linkbucks.com/DHRj
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gA0Z8 （or） http://www.linkbucks.com/AFZmw
 <br>【百度密碼】：wk63
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gA5VJ （or） http://www.linkbucks.com/DFjr
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gA0Uz （or） http://www.linkbucks.com/AFZmR
 <br>【百度密碼】：rd6j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gA5XR （or） http://www.linkbucks.com/DFj0
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -82,9 +82,9 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gA63N （or） http://www.linkbucks.com/DBZm
+<br>【百度密碼】：51j4
+<br>【MediaFire】：http://adf.ly/1gA5O7 （or） http://www.linkbucks.com/DGLA
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -93,8 +93,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gA7LL （or） http://www.linkbucks.com/AHK9V
+<br>【百度密碼】：jcdn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
