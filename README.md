@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g8AkL （or） http://www.linkbucks.com/DJUW
 <br>【百度密碼】：rrxq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9LBd （or） http://www.linkbucks.com/DMtC
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g9Fgh （or） http://www.linkbucks.com/AKvAe
 <br>【百度密碼】：pp3h
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9LA3 （or） http://www.linkbucks.com/DMsy
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g9FQs （or） http://www.linkbucks.com/AKvCO
 <br>【百度密碼】：3jt3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9Kzw （or） http://www.linkbucks.com/DM1W
 
 <br>【節目名稱】：發式生活
 <br>【節目頻道】：881
@@ -238,7 +238,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g9FWt （or） http://www.linkbucks.com/AKvBc
 <br>【百度密碼】：jzni
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9L5h （or） http://www.linkbucks.com/DM5O
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -249,7 +249,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g9FUB （or） http://www.linkbucks.com/AKvKC
 <br>【百度密碼】：r9d2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9L7l （or） http://www.linkbucks.com/DM5Z
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -260,4 +260,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g9Fi6 （or） http://www.linkbucks.com/AKvAJ
 <br>【百度密碼】：j64b
-<br>【MediaFire】： （or）
+<br>【MediaFire】：http://adf.ly/1g9Kvj （or） http://www.linkbucks.com/DM1C
