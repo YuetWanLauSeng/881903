@@ -170,8 +170,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gAgCP （or） http://www.linkbucks.com/AK4uv
+<br>【百度密碼】：wyax
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
