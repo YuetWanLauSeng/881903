@@ -126,8 +126,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gAP3U （or） http://www.linkbucks.com/V7ZJ
+<br>【百度密碼】：v36s
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
