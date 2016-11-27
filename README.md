@@ -38,8 +38,8 @@
 <br>【節目時間】：09:00 - 11:00
 <br>【檔案名稱】：Urban Touch.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gA0iq （or） http://www.linkbucks.com/AIP5t
+<br>【百度密碼】：h3cr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：馬路的事我哋的事
@@ -49,8 +49,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Road Co-op.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gA0Z8 （or） http://www.linkbucks.com/AFZmw
+<br>【百度密碼】：wk63
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：同途有心人
@@ -60,8 +60,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：The Way We Are.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gA0Uz （or） http://www.linkbucks.com/AFZmR
+<br>【百度密碼】：rd6j
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀賣Sunday
@@ -71,8 +71,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gA0WX （or） http://www.linkbucks.com/AFZmb
+<br>【百度密碼】：pfth
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：無定向喪煲病狂
