@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g80r8 （or） http://www.linkbucks.com/AKxbo
 <br>【百度密碼】：sm7d
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9Fl2 （or） http://www.linkbucks.com/AKu93
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g8AhQ （or） http://www.linkbucks.com/DJUN
 <br>【百度密碼】：2r4a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9Fnv （or） http://www.linkbucks.com/AKu9n
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g8JGA （or） http://www.linkbucks.com/DAel
 <br>【百度密碼】：jmwp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9Fox （or） http://www.linkbucks.com/AKvEk
 
 <br>【節目名稱】：Chi Chung's Class
 <br>【節目頻道】：903
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1g8JEl （or） http://www.linkbucks.com/DAd5
 <br>【百度密碼】：s1ct
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1g9Ftv （or） http://www.linkbucks.com/AKu8E
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -214,8 +214,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g9Fgh （or） http://www.linkbucks.com/AKvAe
+<br>【百度密碼】：pp3h
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -225,8 +225,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g9FQs （or） http://www.linkbucks.com/AKvCO
+<br>【百度密碼】：3jt3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
@@ -236,8 +236,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g9FWt （or） http://www.linkbucks.com/AKvBc
+<br>【百度密碼】：jzni
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：皇牌出場
@@ -247,8 +247,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1g9FUB （or） http://www.linkbucks.com/AKvKC
+<br>【百度密碼】：r9d2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -258,6 +258,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1g9Fi6 （or） http://www.linkbucks.com/AKvAJ
+<br>【百度密碼】：j64b
+<br>【MediaFire】： （or）
