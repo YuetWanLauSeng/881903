@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gANnI （or） http://www.linkbucks.com/W3sP
 <br>【百度密碼】：4ufc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gBK52 （or） http://www.linkbucks.com/AK59x
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gANSE （or） http://www.linkbucks.com/XDks
 <br>【百度密碼】：492a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gBKEM （or） http://www.linkbucks.com/AK52q
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gAP3U （or） http://www.linkbucks.com/V7ZJ
 <br>【百度密碼】：v36s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gBKD9 （or） http://www.linkbucks.com/AK520
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -137,8 +137,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gBJj5 （or） http://www.linkbucks.com/AK6Az
+<br>【百度密碼】：dfq6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gAWfb （or） http://www.linkbucks.com/CWHm
 <br>【百度密碼】：frru
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gBJvV （or） http://www.linkbucks.com/AK52d
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gAWdz （or） http://www.linkbucks.com/CZo3
 <br>【百度密碼】：uyh7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gBJxC （or） http://www.linkbucks.com/AK567
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gAgCP （or） http://www.linkbucks.com/AK4uv
 <br>【百度密碼】：wyax
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gBJqV （or） http://www.linkbucks.com/AK6CU
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -181,9 +181,9 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gBJdn （or） http://www.linkbucks.com/AK6A9
+<br>【百度密碼】：ctym
+<br>【MediaFire】：http://adf.ly/1gBJtR （or） http://www.linkbucks.com/AK56k
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -192,9 +192,9 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gBJgd （or） http://www.linkbucks.com/AK6DR
+<br>【百度密碼】：vra4
+<br>【MediaFire】：http://adf.ly/1gBK1B （or） http://www.linkbucks.com/AK53O
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
@@ -203,8 +203,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gBJbX （or） http://www.linkbucks.com/AK59N
+<br>【百度密碼】：vefk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：靜默的革命
@@ -214,9 +214,9 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Sound of Silence.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gBJZL （or） http://www.linkbucks.com/AK59G
+<br>【百度密碼】：drr4
+<br>【MediaFire】：http://adf.ly/1gBJyt （or） http://www.linkbucks.com/AK57O
 
 <br>【節目名稱】：寫生活
 <br>【節目頻道】：881
@@ -225,9 +225,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gBJo3 （or） http://www.linkbucks.com/AK6AA
+<br>【百度密碼】：fuuh
+<br>【MediaFire】：http://adf.ly/1gBJrM （or） http://www.linkbucks.com/AK53c
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -236,6 +236,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gBJkg （or） http://www.linkbucks.com/AK6Aq
+<br>【百度密碼】：i7kk
 <br>【MediaFire】： （or）
