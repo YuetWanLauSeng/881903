@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gBkbf （or） http://www.linkbucks.com/ALAa7
 <br>【百度密碼】：gb65
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gC6yc （or） http://www.linkbucks.com/ALPlZ
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-11-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gC7KZ （or） http://www.linkbucks.com/ALPPx
+<br>【百度密碼】：gjym
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
