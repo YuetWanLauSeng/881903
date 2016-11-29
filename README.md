@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gEa12 （or） http://www.linkbucks.com/ALG7v
 <br>【百度密碼】：iin4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gEhCK （or） http://www.linkbucks.com/b3o5
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gEa2X （or） http://www.linkbucks.com/ALG7G
 <br>【百度密碼】：rndd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gEh64 （or） http://www.linkbucks.com/cKwR
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gEdTP （or） http://www.linkbucks.com/ALF74
 <br>【百度密碼】：6ayj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gEhA0 （or） http://www.linkbucks.com/b5LG
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-11-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gEh2e （or） http://www.linkbucks.com/f4Yu
+<br>【百度密碼】：1q9r
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
