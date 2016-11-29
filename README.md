@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gEdZ0 （or） http://www.linkbucks.com/ALF7r
 <br>【百度密碼】：qjrp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gEqiT （or） http://www.linkbucks.com/ALQuc
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -214,9 +214,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gEqU0 （or） http://www.linkbucks.com/ALQxW
+<br>【百度密碼】：q4r6
+<br>【MediaFire】：http://adf.ly/1gEqaq （or） http://www.linkbucks.com/ALQv9
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gEh2e （or） http://www.linkbucks.com/f4Yu
 <br>【百度密碼】：1q9r
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gEqfi （or） http://www.linkbucks.com/ALQuz
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -235,10 +235,18 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-11-29
+<br>【節目暫停】：因播出『再創生機』，本期節目暫停
+
+<br>【節目名稱】：再創生機
+<br>【節目頻道】：881
+<br>【節目日期】：2016-11-29
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2016-11-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gEqWx （or） http://www.linkbucks.com/ALQxK
+<br>【百度密碼】：js66
+<br>【MediaFire】：http://adf.ly/1gEqdJ （or） http://www.linkbucks.com/ALQvs
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -247,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gEqRw （or） http://www.linkbucks.com/ALQxq
+<br>【百度密碼】：mf5d
+<br>【MediaFire】：http://adf.ly/1gEqZ2 （or） http://www.linkbucks.com/ALQwM
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
