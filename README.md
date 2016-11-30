@@ -266,9 +266,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-11-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gFQX9 （or） http://www.linkbucks.com/ALU8h
+<br>【百度密碼】：vdu3
+<br>【MediaFire】：http://adf.ly/1gFQl9 （or） http://www.linkbucks.com/ALVCX
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -277,9 +277,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-11-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gFQZn （or） http://www.linkbucks.com/ALU8y
+<br>【百度密碼】：8fq9
+<br>【MediaFire】：http://adf.ly/1gFQf6 （or） http://www.linkbucks.com/ALVAH
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -288,9 +288,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-11-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gFQbA （or） http://www.linkbucks.com/ALU9i
+<br>【百度密碼】：t3fh
+<br>【MediaFire】：http://adf.ly/1gFQg9 （or） http://www.linkbucks.com/ALVS7
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -299,6 +299,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-11-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or）
+<br>【百度雲盤】：http://adf.ly/1gFQdY （or） http://www.linkbucks.com/ALU92
+<br>【百度密碼】：9nfc
+<br>【MediaFire】：http://adf.ly/1gFQyT （or）http://www.linkbucks.com/ALVLO
