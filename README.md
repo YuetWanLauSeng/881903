@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gGOBy （or） http://www.linkbucks.com/ALgUe
 <br>【百度密碼】：thqv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gGoiV （or） http://www.linkbucks.com/ALonC
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -189,9 +189,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-11-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gGoc9 （or） http://www.linkbucks.com/ALoou
+<br>【百度密碼】：zsif
+<br>【MediaFire】：http://adf.ly/1gGogq （or） http://www.linkbucks.com/ALond
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -208,9 +208,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-11-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gGoao （or） http://www.linkbucks.com/ALopO
+<br>【百度密碼】：9fr1
+<br>【MediaFire】：http://adf.ly/1gGofj （or） http://www.linkbucks.com/ALon3
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -235,9 +235,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-11-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gGoXP （or） http://www.linkbucks.com/ALopg
+<br>【百度密碼】：5ebs
+<br>【MediaFire】：http://adf.ly/1gGodU （or） http://www.linkbucks.com/ALooV
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
