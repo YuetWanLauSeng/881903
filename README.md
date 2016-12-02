@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-12-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gKGzK （or） http://www.linkbucks.com/ALvzm
+<br>【百度密碼】：8mvh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-12-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gKHLU （or） http://www.linkbucks.com/ALvvN
+<br>【百度密碼】：rhyn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
