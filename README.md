@@ -137,19 +137,19 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-12-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gK0GA （or） http://www.linkbucks.com/ALoMX
+<br>【百度密碼】：kzwk
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：口水多過浪花
+<br>【節目名稱】：口水多過浪花Special之GIMME A Break
 <br>【節目頻道】：903
 <br>【節目日期】：2016-12-02
-<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
+<br>【節目主持】：余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-12-02
+<br>【檔案名稱】：When I Was Young I Listen To The Radio Special GIMME A Break.2016-12-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gK0MT （or） http://www.linkbucks.com/ALoL7
+<br>【百度密碼】：3rxr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
