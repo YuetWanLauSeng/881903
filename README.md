@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gJt8g （or） http://www.linkbucks.com/ALqQJ
 <br>【百度密碼】：5ccu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gK62c （or） http://www.linkbucks.com/ALm0J
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gJtZl （or） http://www.linkbucks.com/ALqIr
 <br>【百度密碼】：fvjs
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gK67y （or） http://www.linkbucks.com/ALmmp
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gJtYl （or） http://www.linkbucks.com/ALqJI
 <br>【百度密碼】：2dud
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gK6AF （or） http://www.linkbucks.com/ALmmQ
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gJu4m （or） http://www.linkbucks.com/ALqEh
 <br>【百度密碼】：39un
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gK65E （or） http://www.linkbucks.com/ALmnE
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gK0GA （or） http://www.linkbucks.com/ALoMX
 <br>【百度密碼】：kzwk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gK5yu （or） http://www.linkbucks.com/ALm1N
 
 <br>【節目名稱】：口水多過浪花Special之GIMME A Break
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gK0MT （or） http://www.linkbucks.com/ALoL7
 <br>【百度密碼】：3rxr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gK605 （or） http://www.linkbucks.com/ALm0j
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gK2Pl （or） http://www.linkbucks.com/ALnkP
 <br>【百度密碼】：s3bu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gK68v （or） http://www.linkbucks.com/ALmma
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-12-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gK6He （or） http://www.linkbucks.com/ALmjo
+<br>【百度密碼】：mrkr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
