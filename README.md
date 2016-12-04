@@ -137,9 +137,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gOh6x （or） http://www.linkbucks.com/BcQhg
+<br>【百度密碼】：s9gs
+<br>【MediaFire】：http://adf.ly/1gOh88 （or） http://www.linkbucks.com/BcQhd
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -148,9 +148,9 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gOh3G （or） http://www.linkbucks.com/BcQhk
+<br>【百度密碼】：abw8
+<br>【MediaFire】：http://adf.ly/1gOh9F （or） http://www.linkbucks.com/BcQhc
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -159,9 +159,9 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gOh1d （or） http://www.linkbucks.com/BcQho
+<br>【百度密碼】：cnp7
+<br>【MediaFire】：http://adf.ly/1gOhBg （or） http://www.linkbucks.com/BcQhZ
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
