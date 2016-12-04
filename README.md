@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gNyUZ （or） http://www.linkbucks.com/AMGT6
 <br>【百度密碼】：cz6d
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gO9Re （or） http://www.linkbucks.com/AMBWI
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gNyKC （or） http://www.linkbucks.com/AMGXn
 <br>【百度密碼】：def9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gO98Q （or） http://www.linkbucks.com/AMCFd
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gNyVW （or） http://www.linkbucks.com/AMGTj
 <br>【百度密碼】：2ttw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gO9Dh （or） http://www.linkbucks.com/AMCWf
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gNyk2 （or） http://www.linkbucks.com/AMF3s
 <br>【百度密碼】：7h9a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gO9A5 （or） http://www.linkbucks.com/AMCa3
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gNyQI （or） http://www.linkbucks.com/AMGVU
 <br>【百度密碼】：ikge
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gOEZ0 （or） http://www.linkbucks.com/AMBUd
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gNyEt （or） http://www.linkbucks.com/AMGXz
 <br>【百度密碼】：sept
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gOEaK （or） http://www.linkbucks.com/AMAYH
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gNyII （or） http://www.linkbucks.com/AMGxe
 <br>【百度密碼】：ktbn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gO9BT （or） http://www.linkbucks.com/AMBy9
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -82,9 +82,9 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gOEdR （or） http://www.linkbucks.com/AMAXA
+<br>【百度密碼】：evex
+<br>【MediaFire】：http://adf.ly/1gOEfX （or） http://www.linkbucks.com/AMAUU
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
