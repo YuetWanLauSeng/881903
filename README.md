@@ -104,9 +104,9 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gOTlR （or） http://www.linkbucks.com/Bjwz4
+<br>【百度密碼】：k34g
+<br>【MediaFire】：http://adf.ly/1gOTqD （or） http://www.linkbucks.com/Bjwzq
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -115,9 +115,9 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gOTkB （or） http://www.linkbucks.com/Bjwz7
+<br>【百度密碼】：wwcq
+<br>【MediaFire】：http://adf.ly/1gOTrT （or） http://www.linkbucks.com/BjwzZ
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -126,9 +126,9 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gOTgk （or） http://www.linkbucks.com/Bjw0O
+<br>【百度密碼】：j3hj
+<br>【MediaFire】：http://adf.ly/1gOTo9 （or） http://www.linkbucks.com/Bjwzr
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
