@@ -93,9 +93,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gOIEY （or） http://www.linkbucks.com/AL84G
+<br>【百度密碼】：hbs6
+<br>【MediaFire】：http://adf.ly/1gOIkT （or） http://www.linkbucks.com/AL8cl
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
