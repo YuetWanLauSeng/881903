@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gPyQM （or） http://www.linkbucks.com/BnlOb
 <br>【百度密碼】：y5a7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQjw8 （or） http://www.linkbucks.com/AL55t
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gPyJh （or） http://www.linkbucks.com/BnlOl
 <br>【百度密碼】：9m93
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQkBP （or） http://www.linkbucks.com/AL540
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQ3nl （or） http://www.linkbucks.com/Bm10J
 <br>【百度密碼】：4t8p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQk3b （or） http://www.linkbucks.com/AL55Z
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQDrK （or） http://www.linkbucks.com/BlDRr
 <br>【百度密碼】：84kp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQk98 （or） http://www.linkbucks.com/AL55D
 
 <br>【節目名稱】：口水多過浪花Special之GIMME A Break
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQDtS （or） http://www.linkbucks.com/BlDRl
 <br>【百度密碼】：mgd1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQk07 （or） http://www.linkbucks.com/AL55k
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQnbf （or） http://www.linkbucks.com/AL5WB
+<br>【百度密碼】：pc3h
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -247,8 +247,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQnZ4 （or） http://www.linkbucks.com/AL5WF
+<br>【百度密碼】：psy2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
