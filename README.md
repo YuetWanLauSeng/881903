@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQign （or） http://www.linkbucks.com/AL6Dk
+<br>【百度密碼】：a5hp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQii7 （or） http://www.linkbucks.com/AL6DZ
+<br>【百度密碼】：t362
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQiT1 （or） http://www.linkbucks.com/AL6EK
+<br>【百度密碼】：24qv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQidR （or） http://www.linkbucks.com/AL6Dr
+<br>【百度密碼】：gbhd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQimn （or） http://www.linkbucks.com/AL6DQ
+<br>【百度密碼】：6kcy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQik2 （or） http://www.linkbucks.com/AL6DT
+<br>【百度密碼】：3nam
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
