@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gOl4S （or） http://www.linkbucks.com/B3zdp
 <br>【百度密碼】：nps6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gPLBB （or） http://www.linkbucks.com/Br9CS
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gOl7r （or） http://www.linkbucks.com/B3zdl
 <br>【百度密碼】：5tqx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gPLHM （or） http://www.linkbucks.com/Br9CM
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -203,8 +203,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gPKz1 （or） http://www.linkbucks.com/Br9Ck
+<br>【百度密碼】：td3b
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：靜默的革命
@@ -214,9 +214,9 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Sound of Silence.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gPKwN （or） http://www.linkbucks.com/Br9Cn
+<br>【百度密碼】：9u4n
+<br>【MediaFire】：http://adf.ly/1gPLFr （or） http://www.linkbucks.com/Br9CP
 
 <br>【節目名稱】：寫生活
 <br>【節目頻道】：881
@@ -225,9 +225,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gPL3I （or） http://www.linkbucks.com/Br9Cd
+<br>【百度密碼】：qate
+<br>【MediaFire】：http://adf.ly/1gPLEh （or） http://www.linkbucks.com/Br9CR
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -236,6 +236,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-12-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gPL2B （or） http://www.linkbucks.com/Br9Ci
+<br>【百度密碼】：ips4
 <br>【MediaFire】： （or）
