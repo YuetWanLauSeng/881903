@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gPyRH （or） http://www.linkbucks.com/BnlOZ
 <br>【百度密碼】：42nd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQBcE （or） http://www.linkbucks.com/Blm0h
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gPyGw （or） http://www.linkbucks.com/BnlZb
 <br>【百度密碼】：d54a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQBPe （or） http://www.linkbucks.com/Blm04
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gPyEQ （or） http://www.linkbucks.com/BnlZd
 <br>【百度密碼】：vf8h
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQBbE （or） http://www.linkbucks.com/Blm0g
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gPyC0 （or） http://www.linkbucks.com/BnlZg
 <br>【百度密碼】：y2u8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQBfV （or） http://www.linkbucks.com/Blm0c
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQ3mA （or） http://www.linkbucks.com/Bm10P
 <br>【百度密碼】：jdk9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQBWs （or） http://www.linkbucks.com/Blm0m
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQ4tO （or） http://www.linkbucks.com/Bm1zB
 <br>【百度密碼】：px17
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQBRJ （or） http://www.linkbucks.com/Blm0x
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQ4ry （or） http://www.linkbucks.com/Bm1zG
 <br>【百度密碼】：9pdf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gQBKv （or） http://www.linkbucks.com/Blm08
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -137,19 +137,19 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQDrK （or） http://www.linkbucks.com/BlDRr
+<br>【百度密碼】：84kp
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：口水多過浪花
+<br>【節目名稱】：口水多過浪花Special之GIMME A Break
 <br>【節目頻道】：903
 <br>【節目日期】：2016-12-05
-<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
+<br>【節目主持】：余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-12-05
+<br>【檔案名稱】：When I Was Young I Listen To The Radio Special GIMME A Break.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gQDtS （or） http://www.linkbucks.com/BlDRl
+<br>【百度密碼】：mgd1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
