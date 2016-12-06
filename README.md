@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQign （or） http://www.linkbucks.com/AL6Dk
 <br>【百度密碼】：a5hp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gRO8k （or） http://www.linkbucks.com/ALyXU
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQii7 （or） http://www.linkbucks.com/AL6DZ
 <br>【百度密碼】：t362
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gRODB （or） http://www.linkbucks.com/ALyWw
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQiT1 （or） http://www.linkbucks.com/AL6EK
 <br>【百度密碼】：24qv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gRO7b （or） http://www.linkbucks.com/ALyXY
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQimn （or） http://www.linkbucks.com/AL6DQ
 <br>【百度密碼】：6kcy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gROEC （or） http://www.linkbucks.com/ALyWs
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQik2 （or） http://www.linkbucks.com/AL6DT
 <br>【百度密碼】：3nam
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gROEx （or） http://www.linkbucks.com/ALyWj
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -249,7 +249,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gQnZ4 （or） http://www.linkbucks.com/AL5WF
 <br>【百度密碼】：psy2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gRO9m （or） http://www.linkbucks.com/ALyXE
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -258,8 +258,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-12-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gROJC （or） http://www.linkbucks.com/ALyWc
+<br>【百度密碼】：dhwb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
