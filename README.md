@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gUIsQ （or） http://www.linkbucks.com/AL91h
 <br>【百度密碼】：we8y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gUMDl （or） http://www.linkbucks.com/AL8sp
 
 <br>【節目名稱】：口水多過浪花Special之GIMME A Break
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gUIv3 （or） http://www.linkbucks.com/AL91Y
 <br>【百度密碼】：cirw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gUMEZ （or） http://www.linkbucks.com/AL8sa
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,9 +159,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-12-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gUMD3 （or） http://www.linkbucks.com/AL8xJ
+<br>【百度密碼】：vum6
+<br>【MediaFire】：http://adf.ly/1gUMOC （or） http://www.linkbucks.com/AL8r5
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
