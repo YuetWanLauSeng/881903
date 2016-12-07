@@ -214,9 +214,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gTULX （or） http://www.linkbucks.com/AMJZ6
+<br>【百度密碼】：juy7
+<br>【MediaFire】：http://adf.ly/1gTURZ （or） http://www.linkbucks.com/AMJZC
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -244,9 +244,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2016-12-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gTUJ1 （or） http://www.linkbucks.com/AMJk6
+<br>【百度密碼】：5gzp
+<br>【MediaFire】：http://adf.ly/1gTUSk （or） http://www.linkbucks.com/AMJY8
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -266,8 +266,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-12-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gTUCr （or） http://www.linkbucks.com/AMJfQ
+<br>【百度密碼】：et6t
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -277,8 +277,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-12-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gTUTf （or） http://www.linkbucks.com/AMJY6
+<br>【百度密碼】：82ds
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -288,8 +288,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-12-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gTUOo （or） http://www.linkbucks.com/AMJZI
+<br>【百度密碼】：7ec5
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -299,6 +299,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-12-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gTUNs （or） http://www.linkbucks.com/AMJZJ
+<br>【百度密碼】：ua3v
 <br>【MediaFire】： （or）
