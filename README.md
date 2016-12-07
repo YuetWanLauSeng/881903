@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gUVyA （or） http://www.linkbucks.com/hztj
 <br>【百度密碼】：aeqt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gUsaM （or） http://www.linkbucks.com/AMTb8
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -189,8 +189,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-12-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gUsZH （or） http://www.linkbucks.com/AMTcA
+<br>【百度密碼】：c981
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -235,9 +235,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gUsXU （or） http://www.linkbucks.com/AMTce
+<br>【百度密碼】：y7wz
+<br>【MediaFire】：http://adf.ly/1gUtMp （or） http://www.linkbucks.com/AMTV9
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
