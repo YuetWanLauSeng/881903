@@ -235,6 +235,14 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-12-08
+<br>【節目暫停】：因播出『牽一腺，護全身』，本期節目暫停
+
+<br>【節目名稱】：牽一腺，護全身
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-08
+<br>【節目主持】：阮子健
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Protect Prostate Health, Promote Personal Health.2016-12-08
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
@@ -247,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gWl9E （or） http://www.linkbucks.com/AMawF
+<br>【百度密碼】：yeq7
+<br>【MediaFire】：http://adf.ly/1gWlRu （or） http://www.linkbucks.com/AMaR7
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
