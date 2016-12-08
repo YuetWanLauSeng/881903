@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gW8Xc （or） http://www.linkbucks.com/AMgTE
 <br>【百度密碼】：33dn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gWFth （or） http://www.linkbucks.com/AMfpY
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gW7PN （or） http://www.linkbucks.com/AMgnU
 <br>【百度密碼】：jdrq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gWG5h （or） http://www.linkbucks.com/AMfoP
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gW7cZ （or） http://www.linkbucks.com/AMgmS
 <br>【百度密碼】：th5x
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gWG4s （or） http://www.linkbucks.com/AMfoZ
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gW8Ox （or） http://www.linkbucks.com/AMgUm
 <br>【百度密碼】：p5bm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gWFv9 （or） http://www.linkbucks.com/AMfpX
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-12-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gWGAr （or） http://www.linkbucks.com/AMfni
+<br>【百度密碼】：q7d3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
