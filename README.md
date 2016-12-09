@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-12-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gYWmS （or） http://www.linkbucks.com/AMO2J
+<br>【百度密碼】：25wc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
