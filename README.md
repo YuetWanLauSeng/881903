@@ -170,8 +170,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2016-12-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gaage （or） http://www.linkbucks.com/AMlHx
+<br>【百度密碼】：hxka
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -181,8 +181,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-12-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gaao3 （or） http://www.linkbucks.com/AMkJw
+<br>【百度密碼】：9hwe
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
@@ -192,8 +192,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-12-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gaamZ （or） http://www.linkbucks.com/AMkPT
+<br>【百度密碼】：875w
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -203,8 +203,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-12-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gaair （or） http://www.linkbucks.com/AMkeR
+<br>【百度密碼】：i8s3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
