@@ -137,9 +137,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-12-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gcFzY （or） http://www.linkbucks.com/AMhpt
+<br>【百度密碼】：d5gg
+<br>【MediaFire】：http://adf.ly/1gcGpf （or） http://www.linkbucks.com/AMh01
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -148,9 +148,9 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-12-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gcFuu （or） http://www.linkbucks.com/AMh5C
+<br>【百度密碼】：uv7f
+<br>【MediaFire】：http://adf.ly/1gcGsL （or） http://www.linkbucks.com/AMh00
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
