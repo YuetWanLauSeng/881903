@@ -159,9 +159,9 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-12-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gcS1a （or） http://www.linkbucks.com/AMg0h
+<br>【百度密碼】：yrs1
+<br>【MediaFire】：http://adf.ly/1gcS05 （or） http://www.linkbucks.com/AMg0k
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -170,9 +170,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-12-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gcRmg （or） http://www.linkbucks.com/AMg1x
+<br>【百度密碼】：2mh2
+<br>【MediaFire】：http://adf.ly/1gcRsu （or） http://www.linkbucks.com/AMg1h
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -181,9 +181,9 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-12-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gcRpo （or） http://www.linkbucks.com/AMg1v
+<br>【百度密碼】：djxj
+<br>【MediaFire】：http://adf.ly/1gcRy4 （or） http://www.linkbucks.com/AMg0p
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -192,9 +192,9 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-12-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gcRSM （or） http://www.linkbucks.com/AMg3E
+<br>【百度密碼】：ic6v
+<br>【MediaFire】：http://adf.ly/1gcRrP （or） http://www.linkbucks.com/AMg1m
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
