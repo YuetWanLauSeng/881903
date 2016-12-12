@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gdyTV （or） http://www.linkbucks.com/ymCe
+<br>【百度密碼】：parh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
