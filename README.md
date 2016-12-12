@@ -82,8 +82,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gddVU （or） http://www.linkbucks.com/AMkGc
+<br>【百度密碼】：nmsk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gddOx （or） http://www.linkbucks.com/AMkGp
+<br>【百度密碼】：7hzj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gddTe （or） http://www.linkbucks.com/AMkGi
+<br>【百度密碼】：sr7m
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gddMa （or） http://www.linkbucks.com/AMkGu
+<br>【百度密碼】：s74q
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
