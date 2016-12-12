@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdVbh （or） http://www.linkbucks.com/AMkpZ
 <br>【百度密碼】：a356
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkZX （or） http://www.linkbucks.com/AMjuN
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdVdN （or） http://www.linkbucks.com/AMk0h
 <br>【百度密碼】：3783
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkSV （or） http://www.linkbucks.com/AMji2
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdVlp （or） http://www.linkbucks.com/AMkri
 <br>【百度密碼】：fn57
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkcU （or） http://www.linkbucks.com/AMjuL
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdVcY （or） http://www.linkbucks.com/AMkpn
 <br>【百度密碼】：ahyb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkWF （or） http://www.linkbucks.com/AMjin
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdVkr （or） http://www.linkbucks.com/AMkr9
 <br>【百度密碼】：6yvw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkej （or） http://www.linkbucks.com/AMjuJ
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdVns （or） http://www.linkbucks.com/AMkrW
 <br>【百度密碼】：7zbx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkVV （or） http://www.linkbucks.com/AMjip
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdVqZ （or） http://www.linkbucks.com/AMkql
 <br>【百度密碼】：ikxa
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkX4 （or） http://www.linkbucks.com/AMjuQ
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdVZJ （or） http://www.linkbucks.com/AMkpN
 <br>【百度密碼】：nwdd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkff （or） http://www.linkbucks.com/AMjuB
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gddOx （or） http://www.linkbucks.com/AMkGp
 <br>【百度密碼】：7hzj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkQa （or） http://www.linkbucks.com/AMjjc
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gddTe （or） http://www.linkbucks.com/AMkGi
 <br>【百度密碼】：sr7m
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkRk （or） http://www.linkbucks.com/AMjjO
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gddMa （or） http://www.linkbucks.com/AMkGu
 <br>【百度密碼】：s74q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gdkP6 （or） http://www.linkbucks.com/AMjjo
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gdkhx （or） http://www.linkbucks.com/AMjiX
+<br>【百度密碼】：jnx4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gdl2b （or） http://www.linkbucks.com/AMjW4
+<br>【百度密碼】：6n8b
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
