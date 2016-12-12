@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdyTV （or） http://www.linkbucks.com/ymCe
 <br>【百度密碼】：parh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1geF9d （or） http://www.linkbucks.com/AMlhk
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdzcP （or） http://www.linkbucks.com/AMnRf
 <br>【百度密碼】：ufju
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1geF1L （or） http://www.linkbucks.com/AMlFK
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gdzft （or） http://www.linkbucks.com/AMnRZ
 <br>【百度密碼】：kb7z
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1geF59 （or） http://www.linkbucks.com/AMlFd
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ge7zm （or） http://www.linkbucks.com/AMmBF
 <br>【百度密碼】：a8ie
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1geEzb （or） http://www.linkbucks.com/AMlFH
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ge81N （or） http://www.linkbucks.com/AMmBA
 <br>【百度密碼】：ys29
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1geEx0 （or） http://www.linkbucks.com/AMlFA
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1geEtt （or） http://www.linkbucks.com/AMlE5
+<br>【百度密碼】：xmn1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ge8Nl （or） http://www.linkbucks.com/AMl81
 <br>【百度密碼】：jkuv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1geF3x （or） http://www.linkbucks.com/AMlFQ
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -236,9 +236,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1geEsV （or） http://www.linkbucks.com/AMlEm
+<br>【百度密碼】：j2fe
+<br>【MediaFire】：http://adf.ly/1geEy0 （or） http://www.linkbucks.com/AMlFD
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1geEr4 （or） http://www.linkbucks.com/AMlEd
+<br>【百度密碼】：w4n8
+<br>【MediaFire】：http://adf.ly/1geFaQ （or） http://www.linkbucks.com/AMlGq
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
