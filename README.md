@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ghybN （or） http://www.linkbucks.com/ANBhd
 <br>【百度密碼】：8ay7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gi2as （or） http://www.linkbucks.com/ANBGv
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -191,7 +191,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ghyHV （or） http://www.linkbucks.com/ANBm2
 <br>【百度密碼】：q17e
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gi2iI （or） http://www.linkbucks.com/ANBGo
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -208,9 +208,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1giDFw （or） http://www.linkbucks.com/nfTK
+<br>【百度密碼】：q2aj
+<br>【MediaFire】：http://adf.ly/1giDiz （or） http://www.linkbucks.com/nfSb
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -235,9 +235,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1giDIY （or） http://www.linkbucks.com/nfTG
+<br>【百度密碼】：ueme
+<br>【MediaFire】：http://adf.ly/1giDgl （or） http://www.linkbucks.com/nfSg
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
