@@ -159,9 +159,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-12-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gjpNW （or） http://www.linkbucks.com/AMs0T
+<br>【百度密碼】：wj9n
+<br>【MediaFire】：http://adf.ly/1gjpRH （or） http://www.linkbucks.com/AMsz1
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
