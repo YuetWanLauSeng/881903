@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gmEhN （or） http://www.linkbucks.com/AMvdd
 <br>【百度密碼】：t6wm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gmHmY （or） http://www.linkbucks.com/AMvP4
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gmHp5 （or） http://www.linkbucks.com/AMvP0
+<br>【百度密碼】：8q6d
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
