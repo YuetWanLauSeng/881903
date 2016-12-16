@@ -82,9 +82,9 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gmCLN （or） http://www.linkbucks.com/AMwEU
+<br>【百度密碼】：rth3
+<br>【MediaFire】：http://adf.ly/1gmCPG （or） http://www.linkbucks.com/AMwCm
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -104,9 +104,9 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gmCGe （or） http://www.linkbucks.com/AMwEt
+<br>【百度密碼】：n7qj
+<br>【MediaFire】：http://adf.ly/1gmCTi （or） http://www.linkbucks.com/AMwCI
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -115,9 +115,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gmCJz （or） http://www.linkbucks.com/AMwEp
+<br>【百度密碼】：nb9e
+<br>【MediaFire】：http://adf.ly/1gmCQu （or） http://www.linkbucks.com/AMwCV
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -126,9 +126,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gmCDm （or） http://www.linkbucks.com/AMwE3
+<br>【百度密碼】：xwie
+<br>【MediaFire】：http://adf.ly/1gmCPy （or） http://www.linkbucks.com/AMwCY
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
