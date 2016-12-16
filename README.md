@@ -5,9 +5,9 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gm6zQ （or） http://www.linkbucks.com/AMwl0
+<br>【百度密碼】：vugv
+<br>【MediaFire】：http://adf.ly/1gm7jU （or） http://www.linkbucks.com/AMwjD
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -16,9 +16,9 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gm73A （or） http://www.linkbucks.com/AMwlu
+<br>【百度密碼】：v8h9
+<br>【MediaFire】：http://adf.ly/1gm7fq （or） http://www.linkbucks.com/AMwjU
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -27,9 +27,9 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gm7cP （or） http://www.linkbucks.com/AMwjj
+<br>【百度密碼】：625q
+<br>【MediaFire】：http://adf.ly/1gm7kP （or） http://www.linkbucks.com/AMwi1
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1glz8Q （or） http://www.linkbucks.com/AMxRw
 <br>【百度密碼】：efc4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gm7de （or） http://www.linkbucks.com/AMwja
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -49,8 +49,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Master in Entertaining.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gm774 （or） http://www.linkbucks.com/AMwlh
+<br>【百度密碼】：ga99
 <br>【MediaFire】：http://adf.ly/1glz4F （or） http://www.linkbucks.com/AMxSB
 
 <br>【節目名稱】：早霸王
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1glz9F （or） http://www.linkbucks.com/AMxRp
 <br>【百度密碼】：uxmq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gm7gc （or） http://www.linkbucks.com/AMwjJ
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1glzB4 （or） http://www.linkbucks.com/AMxRi
 <br>【百度密碼】：ay13
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gm7hN （or） http://www.linkbucks.com/AMwjG
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
