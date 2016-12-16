@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gmUa5 （or） http://www.linkbucks.com/AM5ip
 <br>【百度密碼】：6ax8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gmcHL （or） http://www.linkbucks.com/AM46y
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gmUYy （or） http://www.linkbucks.com/AM5i4
 <br>【百度密碼】：hurq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gmcBp （or） http://www.linkbucks.com/AM47A
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gmWhB （or） http://www.linkbucks.com/AM5b3
 <br>【百度密碼】：ycx4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gmc6p （or） http://www.linkbucks.com/AM47I
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gmWjS （or） http://www.linkbucks.com/AM5bq
 <br>【百度密碼】：5inx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gmcKL （or） http://www.linkbucks.com/AM46v
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,9 +225,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gmc1w （or） http://www.linkbucks.com/AM479
+<br>【百度密碼】：6v1t
+<br>【MediaFire】：http://adf.ly/1gmc5k （or） http://www.linkbucks.com/AM47u
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
