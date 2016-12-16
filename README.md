@@ -214,9 +214,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gmhkG （or） http://www.linkbucks.com/AM4gl
+<br>【百度密碼】：gt7s
+<br>【MediaFire】：http://adf.ly/1gmhnY （or） http://www.linkbucks.com/AM4gS
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -236,9 +236,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gmhm8 （or） http://www.linkbucks.com/AM4gh
+<br>【百度密碼】：jsf8
+<br>【MediaFire】：http://adf.ly/1gmhmp （or） http://www.linkbucks.com/AM4gY
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gmhi1 （or） http://www.linkbucks.com/AM4gw
+<br>【百度密碼】：vkyr
+<br>【MediaFire】：http://adf.ly/1gmhwG （or） http://www.linkbucks.com/AM4fd
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
