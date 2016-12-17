@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gni96 （or） http://www.linkbucks.com/ACPB
 <br>【百度密碼】：ua2y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnshe （or） http://www.linkbucks.com/ANFCx
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gni6l （or） http://www.linkbucks.com/Ca4o
 <br>【百度密碼】：n5ar
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnsZv （or） http://www.linkbucks.com/ANFDf
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gni8B （or） http://www.linkbucks.com/CbBo
 <br>【百度密碼】：vwk7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnseS （or） http://www.linkbucks.com/ANFDG
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gniAN （or） http://www.linkbucks.com/AKfcn
 <br>【百度密碼】：4k92
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnsce （or） http://www.linkbucks.com/ANFDM
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gni0H （or） http://www.linkbucks.com/Ca00
 <br>【百度密碼】：ernw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnskg （or） http://www.linkbucks.com/ANFCw
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gni3X （or） http://www.linkbucks.com/Ca09
 <br>【百度密碼】：vd6y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnslz （or） http://www.linkbucks.com/ANFCu
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gnliE （or） http://www.linkbucks.com/6KM8
 <br>【百度密碼】：s5uk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnsaw （or） http://www.linkbucks.com/ANFDS
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -101,7 +101,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gnll7 （or） http://www.linkbucks.com/6KM5
 <br>【百度密碼】：vuj6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnsfk （or） http://www.linkbucks.com/ANFC0
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -112,7 +112,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gnpkD （or） http://www.linkbucks.com/ANFKw
 <br>【百度密碼】：qwib
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gnsXp （or） http://www.linkbucks.com/ANFDq
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
