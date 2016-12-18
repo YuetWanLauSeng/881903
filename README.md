@@ -1,254 +1,241 @@
-<br>【節目名稱】：祝君早安
+<br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：蔡靜怡
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：葉宇澄
 <br>【節目時間】：06:00 - 08:00
-<br>【檔案名稱】：Morning Glory.2016-12-17
+<br>【檔案名稱】：Reading Time.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gni96 （or） http://www.linkbucks.com/ACPB
-<br>【百度密碼】：ua2y
-<br>【MediaFire】：http://adf.ly/1gnshe （or） http://www.linkbucks.com/ANFCx
+<br>【百度雲盤】：http://adf.ly/1gphhm （or） http://www.linkbucks.com/ANK6N
+<br>【百度密碼】：vs1c
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：好醒晨
+<br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：細So
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：903 DJ
 <br>【節目時間】：06:00 - 09:00
-<br>【檔案名稱】：So Sunshine.2016-12-17
+<br>【檔案名稱】：Star House.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gni6l （or） http://www.linkbucks.com/Ca4o
-<br>【百度密碼】：n5ar
-<br>【MediaFire】：http://adf.ly/1gnsZv （or） http://www.linkbucks.com/ANFDf
+<br>【百度雲盤】：http://adf.ly/1gphbP （or） http://www.linkbucks.com/ANK6e
+<br>【百度密碼】：4apz
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：政經星期六
+<br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：陳淑薇 | 羅輝
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：Saturday Forum.2016-12-17
+<br>【檔案名稱】：Beautiful Sunday.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gni8B （or） http://www.linkbucks.com/CbBo
-<br>【百度密碼】：vwk7
-<br>【MediaFire】：http://adf.ly/1gnseS （or） http://www.linkbucks.com/ANFDG
+<br>【百度雲盤】：http://adf.ly/1gphic （or） http://www.linkbucks.com/ANK6A
+<br>【百度密碼】：sdqy
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：西加航空
+<br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：謝茜嘉
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：急急子
 <br>【節目時間】：09:00 - 11:00
-<br>【檔案名稱】：J.A.L.2016-12-17
+<br>【檔案名稱】：Urban Touch.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gniAN （or） http://www.linkbucks.com/AKfcn
-<br>【百度密碼】：4k92
-<br>【MediaFire】：http://adf.ly/1gnsce （or） http://www.linkbucks.com/ANFDM
+<br>【百度雲盤】：http://adf.ly/1gphtj （or） http://www.linkbucks.com/ANK4g
+<br>【百度密碼】：nd3x
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：潮爆開運王
+<br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：李居明 | 江美儀 | 林寄韻
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：林偉豪
 <br>【節目時間】：10:00 - 11:00
-<br>【檔案名稱】：Weekend Lucky Star.2016-12-17
+<br>【檔案名稱】：Road Co-op.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gni0H （or） http://www.linkbucks.com/Ca00
-<br>【百度密碼】：ernw
-<br>【MediaFire】：http://adf.ly/1gnskg （or） http://www.linkbucks.com/ANFCw
+<br>【百度雲盤】：http://adf.ly/1gpheU （or） http://www.linkbucks.com/ANK6Y
+<br>【百度密碼】：8831
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：考股專家
+<br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：陳永陸 | 伍甄琪
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：麥詠宜
 <br>【節目時間】：11:00 - 12:00
-<br>【檔案名稱】：Stockaeologist.2016-12-17
+<br>【檔案名稱】：The Way We Are.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gni3X （or） http://www.linkbucks.com/Ca09
-<br>【百度密碼】：vd6y
-<br>【MediaFire】：http://adf.ly/1gnslz （or） http://www.linkbucks.com/ANFCu
+<br>【百度雲盤】：http://adf.ly/1gphWE （or） http://www.linkbucks.com/ANK61
+<br>【百度密碼】：msgr
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：專業推介
+<br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：Donald
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：占 | 王貽興
 <br>【節目時間】：11:00 - 13:00
-<br>【檔案名稱】：903 Top 20.2016-12-17
+<br>【檔案名稱】：Sunny Day Readings.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gnliE （or） http://www.linkbucks.com/6KM8
-<br>【百度密碼】：s5uk
-<br>【MediaFire】：http://adf.ly/1gnsaw （or） http://www.linkbucks.com/ANFDS
+<br>【百度雲盤】：http://adf.ly/1gphYp （or） http://www.linkbucks.com/ANK6y
+<br>【百度密碼】：juua
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：中風危機解密
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：阮子健
-<br>【節目時間】：12:30 - 13:00
-<br>【檔案名稱】：Stroke Decryption.2016-10-22
-<br>【節目暫停】：因播出『一馬當先（沙田）』，本期節目順延到明日播出
-
-<br>【節目名稱】：電影圈
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：馮志豐 | 鄔家麟
-<br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Movies.2016-12-17
-<br>【檔案音質】：高清
-<br>【節目暫停】：因播出『一馬當先（沙田）』，本期節目順延到明日播出
-
-<br>【節目名稱】：咪芝蓮
+<br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：小儀
-<br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Mr Chef.2016-12-17
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：鄒凱光 | 檸
+<br>【節目時間】：13:00 - 15:00
+<br>【檔案名稱】：Binge-Watch.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gnll7 （or） http://www.linkbucks.com/6KM5
-<br>【百度密碼】：vuj6
-<br>【MediaFire】：http://adf.ly/1gnsfk （or） http://www.linkbucks.com/ANFC0
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：咆哮山莊
+<br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：DJ
-<br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：903 Band Time.2016-12-17
-<br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gnpkD （or） http://www.linkbucks.com/ANFKw
-<br>【百度密碼】：qwib
-<br>【MediaFire】：http://adf.ly/1gnsXp （or） http://www.linkbucks.com/ANFDq
-
-<br>【節目名稱】：1圈圈
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
-<br>【節目時間】：14:00 - 17:00
-<br>【檔案名稱】：Circles.2016-12-17
-<br>【檔案音質】：高清
-<br>【節目暫停】：因播出『一馬當先（沙田）』，本期節目順延到明日播出
-
-<br>【節目名稱】：豁達推介
-<br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：梁文禮
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：朱薰 | 陸永
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：Quote Chart.2016-12-17
+<br>【檔案名稱】：Kiss Kiss Kids.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1goFoP （or） http://www.linkbucks.com/ANDk9
-<br>【百度密碼】：rkzk
-<br>【MediaFire】：http://adf.ly/1gobXh （or） http://www.linkbucks.com/ANB8M
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：大鐵人
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：楊樂笙 | 熊書頤
-<br>【節目時間】：17:00 - 18:00
-<br>【檔案名稱】：The Big Sportsman.2016-12-17
-<br>【檔案音質】：高清
-<br>【節目暫停】：因播出『一馬當先（沙田）』，本期節目順延到明日播出
-
-<br>【節目名稱】：3號螺絲釘
+<br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：Colin
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Screw No.3.2016-12-17
+<br>【檔案名稱】：Mali Mali Home.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1goFrn （or） http://www.linkbucks.com/ANDk6
-<br>【百度密碼】：8swk
-<br>【MediaFire】：http://adf.ly/1gobat （or） http://www.linkbucks.com/ANB8G
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：第三齡接觸
+<br>【節目名稱】：串
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：朱菁 | 黃日安
-<br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Silver Age Club.2016-12-17
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
+<br>【節目時間】：18:30 - 19:00
+<br>【檔案名稱】：Sino Stream.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1goQEW （or） http://www.linkbucks.com/ANDCS
-<br>【百度密碼】：ktwk
-<br>【MediaFire】：http://adf.ly/1gobco （or） http://www.linkbucks.com/ANB8A
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：西瓜大發 !
+<br>【節目名稱】：讀懂中國
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：19:00 - 20:00
+<br>【檔案名稱】：Sino Stream - Reading.2016-12-18
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：國語類
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：西瓜
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：WonderMelon !.2016-12-17
+<br>【檔案名稱】：Bo Po Mo Fo.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1goQNP （or） http://www.linkbucks.com/ANDBv
-<br>【百度密碼】：ms7c
-<br>【MediaFire】：http://adf.ly/1gobWV （or） http://www.linkbucks.com/ANB8P
-
-<br>【節目名稱】：雷霆音樂圈
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：楊美琪
-<br>【節目時間】：20:00 - 23:00
-<br>【檔案名稱】：881 Music Station.2016-12-17
-<br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gobKq （or） http://www.linkbucks.com/ANB9E
-<br>【百度密碼】：dgac
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：Chi Chung's Class
+<br>【節目名稱】：泡菜粉絲煲 
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：伍甄琪 | 伍悅
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Kimchi Fans Club.2016-12-18
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：細路強 
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+<br>【節目時間】：21:00 - 22:00 
+<br>【檔案名稱】：Mighty Kids Mighty Parents.2016-12-18
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：國民教育
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：黃志淙
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Chi Chung's Class.2016-12-17
+<br>【檔案名稱】：Time's Up Pen's Down.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gobIk （or） http://www.linkbucks.com/ANB9N
-<br>【百度密碼】：35gc
-<br>【MediaFire】：http://adf.ly/1gobVe （or） http://www.linkbucks.com/ANB8W
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：與時並進
+<br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：時美真
-<br>【節目時間】：23:00 - 00:00
-<br>【檔案名稱】：Education Forum.2016-12-17
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：阮子健
+<br>【節目時間】：22:00 - 23:00
+<br>【檔案名稱】：Readers for Riders.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gpUco （or） http://www.linkbucks.com/ANM9h
-<br>【百度密碼】：jmhp
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：公子會
-<br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：森美
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：The Playtoy Mansion.2016-12-17
-<br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gpUkZ （or） http://www.linkbucks.com/ANM5o
-<br>【百度密碼】：3j1m
-<br>【MediaFire】： （or） 
-
-<br>【節目名稱】：發式生活
+<br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：余宜發
-<br>【節目時間】：00:30 - 02:00
-<br>【檔案名稱】：Fat’s Lifestyle.2016-12-17
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：葛民輝
+<br>【節目時間】：23:00 - 23:30
+<br>【檔案名稱】：Kot’s ology.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gpYWb （or） http://www.linkbucks.com/ANMdo
-<br>【百度密碼】：1xqc
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：皇牌出場
+<br>【節目名稱】：短期租約
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：Marco | Keyman
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：Wasabi
+<br>【節目時間】：23:00 - 02:00
+<br>【檔案名稱】：Short-term Lease.2016-12-18
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：靜默的革命
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：林以諾
+<br>【節目時間】：23:30 - 01:00
+<br>【檔案名稱】：Sound of Silence.2016-12-18
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：寫生活
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：主持人
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Losing Eleven.2016-12-17
+<br>【檔案名稱】：Bedtime Readings.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gpYae （or） http://www.linkbucks.com/ANMdc
-<br>【百度密碼】：bjwd
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
-<br>【節目日期】：2016-12-17
-<br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
+<br>【節目日期】：2016-12-18
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
-<br>【檔案名稱】：Begin with Music.2016-12-17
+<br>【檔案名稱】：Begin with Music.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gpYZH （or） http://www.linkbucks.com/ANMdf
-<br>【百度密碼】：hh4h
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or）
