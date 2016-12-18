@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gphWE （or） http://www.linkbucks.com/ANK61
 <br>【百度密碼】：msgr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gqWTe （or） http://www.linkbucks.com/ANSkt
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gphYp （or） http://www.linkbucks.com/ANK6y
 <br>【百度密碼】：juua
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gqWS5 （or） http://www.linkbucks.com/ANSlE
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqLOC （or） http://www.linkbucks.com/ANT8X
 <br>【百度密碼】：9mrm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gqWP5 （or） http://www.linkbucks.com/ANSlS
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqLMY （or） http://www.linkbucks.com/ANT85
 <br>【百度密碼】：6xae
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gqWO4 （or） http://www.linkbucks.com/ANSlZ
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gqWYC （or） http://www.linkbucks.com/ANSkQ
+<br>【百度密碼】：7rkt
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gqWZv （or） http://www.linkbucks.com/ANSkA
+<br>【百度密碼】：r4p4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
@@ -236,8 +236,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gqWbw （or） http://www.linkbucks.com/ANSjv
+<br>【百度密碼】：dkip
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：短期租約
