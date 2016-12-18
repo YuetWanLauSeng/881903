@@ -205,8 +205,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-12-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gpUco （or） http://www.linkbucks.com/ANM9h
+<br>【百度密碼】：jmhp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -216,8 +216,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2016-12-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gpUkZ （or） http://www.linkbucks.com/ANM5o
+<br>【百度密碼】：3j1m
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
