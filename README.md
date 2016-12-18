@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gqLJE （or） http://www.linkbucks.com/ANT9v
+<br>【百度密碼】：wda4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：兒童適宜
@@ -126,8 +126,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gqLH9 （or） http://www.linkbucks.com/ANUAM
+<br>【百度密碼】：4612
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
@@ -137,8 +137,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gqLBR （or） http://www.linkbucks.com/ANUAR
+<br>【百度密碼】：t9g9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
@@ -159,8 +159,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gqLOC （or） http://www.linkbucks.com/ANT8X
+<br>【百度密碼】：9mrm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
@@ -170,8 +170,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gqLMY （or） http://www.linkbucks.com/ANT85
+<br>【百度密碼】：6xae
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
