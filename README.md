@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1grZuP （or） http://www.linkbucks.com/ANbgv
 <br>【百度密碼】：aumn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gs6T1 （or） http://www.linkbucks.com/ANGKv
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gro6Y （or） http://www.linkbucks.com/ADj4d
 <br>【百度密碼】：aqwe
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gs6V5 （or） http://www.linkbucks.com/ANGKW
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1grss6 （or） http://www.linkbucks.com/aqQB
 <br>【百度密碼】：8yu8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gs6Xz （or） http://www.linkbucks.com/ANGJu
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gs2Gg （or） http://www.linkbucks.com/ANGfJ
 <br>【百度密碼】：mqd9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gs6ZQ （or） http://www.linkbucks.com/ANGJj
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-12-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gs7E4 （or） http://www.linkbucks.com/ANGHg
+<br>【百度密碼】：vws6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-12-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gs78q （or） http://www.linkbucks.com/ANGHs
+<br>【百度密碼】：26vj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
