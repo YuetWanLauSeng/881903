@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gs7E4 （or） http://www.linkbucks.com/ANGHg
 <br>【百度密碼】：vws6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gsCxi （or） http://www.linkbucks.com/AM1SL
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -203,9 +203,9 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-12-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1gsCnE （or） http://www.linkbucks.com/AM1xq
+<br>【百度密碼】：vgnc
+<br>【MediaFire】：http://adf.ly/1gsDDx （or） http://www.linkbucks.com/AM0a5
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
