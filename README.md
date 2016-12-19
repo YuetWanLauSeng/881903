@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gphhm （or） http://www.linkbucks.com/ANK6N
 <br>【百度密碼】：vs1c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grICF （or） http://www.linkbucks.com/ANdnR
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gpheU （or） http://www.linkbucks.com/ANK6Y
 <br>【百度密碼】：8831
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIS8 （or） http://www.linkbucks.com/ANdmJ
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqJ3v （or） http://www.linkbucks.com/ANUYh
 <br>【百度密碼】：84zw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIZc （or） http://www.linkbucks.com/ANdjB
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqJC9 （or） http://www.linkbucks.com/ANUWI
 <br>【百度密碼】：xg8t
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grITP （or） http://www.linkbucks.com/ANdju
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqLBR （or） http://www.linkbucks.com/ANUAR
 <br>【百度密碼】：t9g9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIQK （or） http://www.linkbucks.com/ANdmd
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqQOF （or） http://www.linkbucks.com/ANTZu
 <br>【百度密碼】：uh9c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIA0 （or） http://www.linkbucks.com/ANdo6
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqQRl （or） http://www.linkbucks.com/ANTZV
 <br>【百度密碼】：kc2j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIME （or） http://www.linkbucks.com/ANdm7
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqQPm （or） http://www.linkbucks.com/ANTZk
 <br>【百度密碼】：i666
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIJX （or） http://www.linkbucks.com/ANdnE
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqWYC （or） http://www.linkbucks.com/ANSkQ
 <br>【百度密碼】：7rkt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIUy （or） http://www.linkbucks.com/ANdjZ
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqWZv （or） http://www.linkbucks.com/ANSkA
 <br>【百度密碼】：r4p4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIFN （or） http://www.linkbucks.com/ANdnx
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -238,7 +238,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gqWbw （or） http://www.linkbucks.com/ANSjv
 <br>【百度密碼】：dkip
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1grIXS （or） http://www.linkbucks.com/ANdjQ
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
@@ -247,8 +247,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1grHgV （or） http://www.linkbucks.com/ANdpk
+<br>【百度密碼】：7deb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：靜默的革命
@@ -258,9 +258,9 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Sound of Silence.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1grHCW （or） http://www.linkbucks.com/ANdvm
+<br>【百度密碼】：af1g
+<br>【MediaFire】：http://adf.ly/1grIO6 （or） http://www.linkbucks.com/ANdmy
 
 <br>【節目名稱】：寫生活
 <br>【節目頻道】：881
@@ -269,9 +269,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1grI6g （or） http://www.linkbucks.com/ANdpH
+<br>【百度密碼】：if7x
+<br>【MediaFire】：http://adf.ly/1grIER （or） http://www.linkbucks.com/ANdoI
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -280,6 +280,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-12-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1grI4m （or） http://www.linkbucks.com/ANdpX
+<br>【百度密碼】：4r5c
 <br>【MediaFire】： （or）
