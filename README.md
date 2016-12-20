@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gu7Im （or） http://www.linkbucks.com/ANQme
 <br>【百度密碼】：j4km
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1guIGk （or） http://www.linkbucks.com/ANPim
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gu3oa （or） http://www.linkbucks.com/ANRFk
 <br>【百度密碼】：rxhi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1guIJh （or） http://www.linkbucks.com/ANPiS
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -214,9 +214,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1guH9H （or） http://www.linkbucks.com/ANPm6
+<br>【百度密碼】：jc96
+<br>【MediaFire】：http://adf.ly/1guHHB （or） http://www.linkbucks.com/ANPmC
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gu7HD （or） http://www.linkbucks.com/ANQmj
 <br>【百度密碼】：tcx9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1guIM8 （or） http://www.linkbucks.com/ANPiP
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -255,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1guH6T （or） http://www.linkbucks.com/ANPnH
+<br>【百度密碼】：t3wv
+<br>【MediaFire】：http://adf.ly/1guIDu （or） http://www.linkbucks.com/ANPjT
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
