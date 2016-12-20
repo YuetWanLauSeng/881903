@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gtzMP （or） http://www.linkbucks.com/ANb8y
 <br>【百度密碼】：kzk4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gu3zT （or） http://www.linkbucks.com/ANREv
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gtzBT （or） http://www.linkbucks.com/ANcA0
 <br>【百度密碼】：rrb7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gu3xH （or） http://www.linkbucks.com/ANRE5
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-12-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gu3oa （or） http://www.linkbucks.com/ANRFk
+<br>【百度密碼】：rxhi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -235,6 +235,14 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-12-20
+<br>【節目暫停】：因播出『再創生機』，本期節目暫停
+
+<br>【節目名稱】：再創生機
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-20
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2016-12-20
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
