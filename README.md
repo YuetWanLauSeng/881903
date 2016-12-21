@@ -125,7 +125,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1i5c8ZEP
 <br>【百度密碼】：2xqg
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/jmo0hyk1fz2t49s/Crosstrade.2016-12-21.mp3
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -144,7 +144,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1eRNLYUY
 <br>【百度密碼】：44qf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/lj1v7etvzdblow5/The_Fun_Box.2016-12-21.mp3
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -155,7 +155,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1o88SOfK
 <br>【百度密碼】：e6ea
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/x2du1ig6mi8262c/When_I_Was_Young_I_Listen_To_The_Radio.2016-12-21.mp3
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -166,7 +166,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1qXXAZwS
 <br>【百度密碼】：jg9t
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/up36xrg662apcrq/Dokureioukoku.2016-12-21.mp3
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -177,7 +177,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1mi59bXQ
 <br>【百度密碼】：xwa3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/316i3jkb2eva740/Zine.2016-12-21.mp3
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -188,7 +188,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1i5dUSK1
 <br>【百度密碼】：651e
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/hdjmh419ow3mrlo/Our_Way_Out.2016-12-21.mp3
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -210,7 +210,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1hrIsqxA
 <br>【百度密碼】：337b
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/8ywd2puu1bk9vza/Tea_For_You.2016-12-21.mp3
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -219,8 +219,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1qYhKuIS
+<br>【百度密碼】：c8hy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -232,7 +232,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1dF2z7o9
 <br>【百度密碼】：5nhb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/cuo53gif3ucgf11/Sino_Stream.2016-12-21.mp3
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -241,8 +241,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-12-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1c1JgwRu
+<br>【百度密碼】：egh7
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -252,9 +252,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：https://pan.baidu.com/s/1i5uPS6h
+<br>【百度密碼】：dm7b
+<br>【MediaFire】：http://www.mediafire.com/file/du0oh5fq7c0zo2n/Summit.2016-12-21.mp3
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
