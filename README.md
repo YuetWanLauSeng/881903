@@ -237,17 +237,6 @@
 <br>【檔案名稱】：Reading Time.2016-12-20
 <br>【節目暫停】：因播出『再創生機』，本期節目暫停
 
-<br>【節目名稱】：再創生機
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-20
-<br>【節目主持】：熊書頤
-<br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Hair Again.2016-12-20
-<br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
-
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
 <br>【節目日期】：2016-12-20
@@ -266,8 +255,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-12-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gusLh （or） http://www.linkbucks.com/ANWMq
+<br>【百度密碼】：qj3p
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -277,8 +266,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-12-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gusVV （or） http://www.linkbucks.com/ANWKK
+<br>【百度密碼】：bhw6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -288,8 +277,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-12-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gusX0 （or） http://www.linkbucks.com/ANWJ7
+<br>【百度密碼】：8adm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -299,6 +288,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-12-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gusaC （or） http://www.linkbucks.com/ANWJp
+<br>【百度密碼】：wuf7
 <br>【MediaFire】： （or）
