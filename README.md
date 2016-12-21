@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1jIuNNl8
 <br>【百度密碼】：8r1j
-<br>【MediaFire】：http://www.mediafire.com/file/2r ... Song.2016-12-21.mp3
+<br>【MediaFire】：http://www.mediafire.com/file/2r3t0q6354s453n/Share_My_Song.2016-12-21.mp3
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1dFuXYHN
 <br>【百度密碼】：24d8
-<br>【MediaFire】：http://www.mediafire.com/file/39 ... C%89.2016-12-21.mp3
+<br>【MediaFire】：http://www.mediafire.com/file/39cpp2usmsckoh7/On_a_Clear_Day%EF%BC%88881%EF%BC%89.2016-12-21.mp3
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1slaWKl3
 <br>【百度密碼】：wm34
-<br>【MediaFire】：http://www.mediafire.com/file/v7 ... s%21.2016-12-21.mp3
+<br>【MediaFire】：http://www.mediafire.com/file/v74xd5f4ex5i85z/Hey%2C_Learners%21.2016-12-21.mp3
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1c2HuHAK
 <br>【百度密碼】：1vsn
-<br>【MediaFire】：http://www.mediafire.com/file/bq ... C%89.2016-12-21.mp3
+<br>【MediaFire】：http://www.mediafire.com/file/bqq69qjc2o5kc75/On_a_Clear_Day%EF%BC%88903%EF%BC%89.2016-12-21.mp3
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1dFkiBcd
 <br>【百度密碼】：t9ci
-<br>【MediaFire】：http://www.mediafire.com/file/1d ... ning.2016-12-21.mp3
+<br>【MediaFire】：http://www.mediafire.com/file/1dvcq38ffebgrfc/Master_in_Entertaining.2016-12-21.mp3
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1hrCS9hy
 <br>【百度密碼】：pky9
-<br>【MediaFire】：http://www.mediafire.com/file/vn ... King.2016-12-21.mp3
+<br>【MediaFire】：http://www.mediafire.com/file/vn5absc5dqwe5ka/Good_Morning_King.2016-12-21.mp3
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1bBcVrK
 <br>【百度密碼】：x1ne
-<br>【MediaFire】：http://www.mediafire.com/file/n4 ... cles.2016-12-21.mp3
+<br>【MediaFire】：http://www.mediafire.com/file/n489nona20z8tgm/Circles.2016-12-21.mp3
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -92,7 +92,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1hs4vqJi
 <br>【百度密碼】：fz74
-<br>【MediaFire】：http://www.mediafire.com/file/0w ... ck_C.2016-12-21.mp3
+<br>【MediaFire】：http://www.mediafire.com/file/0wq58b2d8sgd0a0/18F_Block_C.2016-12-21.mp3
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -103,7 +103,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1o7GKgsy
 <br>【百度密碼】：qyb3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/8govd8qlvwpgb1w/Lunch_Special.2016-12-21.mp3
 
 <br>【節目名稱】：903夢想系拉闊音樂會 草蜢
 <br>【節目頻道】：903
