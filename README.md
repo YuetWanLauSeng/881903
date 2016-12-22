@@ -114,7 +114,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1eRM0bEa
 <br>【百度密碼】：72pp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/t5nb82d38z168gx/903%E5%A4%A2%E6%83%B3%E7%B3%BB%E6%8B%89%E9%97%8A%E9%9F%B3%E6%A8%82%E6%9C%83_%E8%8D%89%E8%9C%A2.2016-12-21.mp3
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -199,7 +199,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1bp3jCMb
 <br>【百度密碼】：65cf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/mww97ij429nw9xp/My_Daily_Life.2016-12-21.mp3
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -221,7 +221,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1qYhKuIS
 <br>【百度密碼】：c8hy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/cm4axdhxozehomr/Vanila_Sky.2016-12-21.mp3
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -243,7 +243,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1c1JgwRu
 <br>【百度密碼】：egh7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/go18tftyh5hihan/Reading_Time.2016-12-21.mp3
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -263,9 +263,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-12-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1miwfFXQ
+<br>【百度密碼】：necq
+<br>【MediaFire】：http://www.mediafire.com/file/xzomn2hwc0jrbep/St._ILUB_Gay_Lim_Yeah_How.2016-12-21.mp3
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -274,9 +274,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-12-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1sl70N2d
+<br>【百度密碼】：nvq4
+<br>【MediaFire】：http://www.mediafire.com/file/w27q4j9ar13hgha/Goodnight_Kiss_Kiss_Kiss.2016-12-21.mp3
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -285,9 +285,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2016-12-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1nv0hxK9
+<br>【百度密碼】：9prd
+<br>【MediaFire】：http://www.mediafire.com/file/cucx4bwy97yac7b/Canto_Pop.2016-12-21.mp3
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -296,6 +296,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-12-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or）
+<br>【百度雲盤】：http://pan.baidu.com/s/1o876S34
+<br>【百度密碼】：c8yw
+<br>【MediaFire】：http://www.mediafire.com/file/pktc71ehaenk3tc/Begin_with_Music.2016-12-21.mp3
