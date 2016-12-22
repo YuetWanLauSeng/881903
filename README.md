@@ -1,301 +1,285 @@
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：Wasabi | 嘉賓主持
 <br>【節目時間】：06:00 - 07:00 
-<br>【檔案名稱】：Share My Song.2016-12-21
+<br>【檔案名稱】：Share My Song.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1jIuNNl8
-<br>【百度密碼】：8r1j
-<br>【MediaFire】：http://www.mediafire.com/file/2r3t0q6354s453n/Share_My_Song.2016-12-21.mp3
+<br>【百度雲盤】：http://adf.ly/1gxTwY （or） http://www.linkbucks.com/ANnPd
+<br>【百度密碼】：c4yi
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 符靜琳 | 李兆綸
 <br>【節目時間】：06:30 - 10:00
-<br>【檔案名稱】：On a Clear Day（881）.2016-12-21
+<br>【檔案名稱】：On a Clear Day（881）.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1dFuXYHN
-<br>【百度密碼】：24d8
-<br>【MediaFire】：http://www.mediafire.com/file/39cpp2usmsckoh7/On_a_Clear_Day%EF%BC%88881%EF%BC%89.2016-12-21.mp3
+<br>【百度雲盤】：http://adf.ly/1gxTzs （or） http://www.linkbucks.com/ANnPN
+<br>【百度密碼】：mv1b
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
-<br>【檔案名稱】：Hey, Learners!.2016-12-21
+<br>【檔案名稱】：Hey, Learners!.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1slaWKl3
-<br>【百度密碼】：wm34
-<br>【MediaFire】：http://www.mediafire.com/file/v74xd5f4ex5i85z/Hey%2C_Learners%21.2016-12-21.mp3
+<br>【百度雲盤】：http://adf.ly/1gxU2n （or） http://www.linkbucks.com/ANnOu
+<br>【百度密碼】：vpem
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：On a Clear Day（903）.2016-12-21
+<br>【檔案名稱】：On a Clear Day（903）.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1c2HuHAK
-<br>【百度密碼】：1vsn
-<br>【MediaFire】：http://www.mediafire.com/file/bqq69qjc2o5kc75/On_a_Clear_Day%EF%BC%88903%EF%BC%89.2016-12-21.mp3
+<br>【百度雲盤】：http://adf.ly/1gxTxK （or） http://www.linkbucks.com/ANnPT
+<br>【百度密碼】：8yxy
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：吳雨
 <br>【節目時間】：10:00 - 10:30
-<br>【檔案名稱】：Master in Entertaining.2016-12-21
+<br>【檔案名稱】：Master in Entertaining.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1dFkiBcd
-<br>【百度密碼】：t9ci
-<br>【MediaFire】：http://www.mediafire.com/file/1dvcq38ffebgrfc/Master_in_Entertaining.2016-12-21.mp3
+<br>【百度雲盤】：http://adf.ly/1gxU0d （or） http://www.linkbucks.com/ANnO2
+<br>【百度密碼】：sqea
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
-<br>【檔案名稱】：Good Morning King.2016-12-21
+<br>【檔案名稱】：Good Morning King.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1hrCS9hy
-<br>【百度密碼】：pky9
-<br>【MediaFire】：http://www.mediafire.com/file/vn5absc5dqwe5ka/Good_Morning_King.2016-12-21.mp3
+<br>【百度雲盤】：http://adf.ly/1gxU5Q （or） http://www.linkbucks.com/ANnOg
+<br>【百度密碼】：rdu1
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：樂樂 | 阮兆祥 | 梁泰來
 <br>【節目時間】：10:30 - 12:00
-<br>【檔案名稱】：Circles.2016-12-21
+<br>【檔案名稱】：Circles.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1bBcVrK
-<br>【百度密碼】：x1ne
-<br>【MediaFire】：http://www.mediafire.com/file/n489nona20z8tgm/Circles.2016-12-21.mp3
+<br>【百度雲盤】：http://adf.ly/1gxU8l （or） http://www.linkbucks.com/ANnOa
+<br>【百度密碼】：8dtf
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
-<br>【檔案名稱】：903 Music.2016-12-21
-<br>【節目暫停】：因播出『903夢想系拉闊音樂會 草蜢』，本期節目暫停
+<br>【檔案名稱】：903 Music.2016-12-22
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
-<br>【檔案名稱】：18F Block C.2016-12-21
+<br>【檔案名稱】：18F Block C.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1hs4vqJi
-<br>【百度密碼】：fz74
-<br>【MediaFire】：http://www.mediafire.com/file/0wq58b2d8sgd0a0/18F_Block_C.2016-12-21.mp3
+<br>【百度雲盤】：http://adf.ly/1gxUAT （or） http://www.linkbucks.com/ANnOL
+<br>【百度密碼】：rb9w
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Lunch Special.2016-12-21
+<br>【檔案名稱】：Lunch Special.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1o7GKgsy
-<br>【百度密碼】：qyb3
-<br>【MediaFire】：http://www.mediafire.com/file/8govd8qlvwpgb1w/Lunch_Special.2016-12-21.mp3
-
-<br>【節目名稱】：903夢想系拉闊音樂會 草蜢
-<br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
-<br>【節目主持】：903 DJ
-<br>【節目時間】：12:00 - 15:00
-<br>【檔案名稱】：903夢想系拉闊音樂會 草蜢.2016-12-21
-<br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1eRM0bEa
-<br>【百度密碼】：72pp
-<br>【MediaFire】：http://www.mediafire.com/file/t5nb82d38z168gx/903%E5%A4%A2%E6%83%B3%E7%B3%BB%E6%8B%89%E9%97%8A%E9%9F%B3%E6%A8%82%E6%9C%83_%E8%8D%89%E8%9C%A2.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：Crosstrade.2016-12-21
+<br>【檔案名稱】：Crosstrade.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1i5c8ZEP
-<br>【百度密碼】：2xqg
-<br>【MediaFire】：http://www.mediafire.com/file/jmo0hyk1fz2t49s/Crosstrade.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：You Are The Best.2016-12-21
-<br>【節目暫停】：因播出『903夢想系拉闊音樂會 草蜢』，本期節目暫停
+<br>【檔案名稱】：You Are The Best.2016-12-22
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：The Fun Box.2016-12-21
+<br>【檔案名稱】：The Fun Box.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1eRNLYUY
-<br>【百度密碼】：44qf
-<br>【MediaFire】：http://www.mediafire.com/file/lj1v7etvzdblow5/The_Fun_Box.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-12-21
+<br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1o88SOfK
-<br>【百度密碼】：e6ea
-<br>【MediaFire】：http://www.mediafire.com/file/x2du1ig6mi8262c/When_I_Was_Young_I_Listen_To_The_Radio.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
-<br>【檔案名稱】：Dokureioukoku.2016-12-21
+<br>【檔案名稱】：Dokureioukoku.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1qXXAZwS
-<br>【百度密碼】：jg9t
-<br>【MediaFire】：http://www.mediafire.com/file/up36xrg662apcrq/Dokureioukoku.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
-<br>【檔案名稱】：Zine.2016-12-21
+<br>【檔案名稱】：Zine.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1mi59bXQ
-<br>【百度密碼】：xwa3
-<br>【MediaFire】：http://www.mediafire.com/file/316i3jkb2eva740/Zine.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Our Way Out.2016-12-21
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1i5dUSK1
-<br>【百度密碼】：651e
-<br>【MediaFire】：http://www.mediafire.com/file/hdjmh419ow3mrlo/Our_Way_Out.2016-12-21.mp3
+<br>【檔案名稱】：Our Way Out.2016-12-22
+<br>【節目暫停】：因播出『一馬當先（跑馬地）』，本期節目暫停
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：My Daily Life.2016-12-21
+<br>【檔案名稱】：My Daily Life.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1bp3jCMb
-<br>【百度密碼】：65cf
-<br>【MediaFire】：http://www.mediafire.com/file/mww97ij429nw9xp/My_Daily_Life.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Tea For You.2016-12-21
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1hrIsqxA
-<br>【百度密碼】：337b
-<br>【MediaFire】：http://www.mediafire.com/file/8ywd2puu1bk9vza/Tea_For_You.2016-12-21.mp3
+<br>【檔案名稱】：Tea For You.2016-12-22
+<br>【節目暫停】：因播出『一馬當先（跑馬地）』，本期節目暫停
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Vanila Sky.2016-12-21
+<br>【檔案名稱】：Vanila Sky.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1qYhKuIS
-<br>【百度密碼】：c8hy
-<br>【MediaFire】：http://www.mediafire.com/file/cm4axdhxozehomr/Vanila_Sky.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
-<br>【檔案名稱】：Sino Stream.2016-12-21
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1dF2z7o9
-<br>【百度密碼】：5nhb
-<br>【MediaFire】：http://www.mediafire.com/file/cuo53gif3ucgf11/Sino_Stream.2016-12-21.mp3
+<br>【檔案名稱】：Sino Stream.2016-12-22
+<br>【節目暫停】：因播出『一馬當先（跑馬地）』，本期節目暫停
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time.2016-12-21
+<br>【檔案名稱】：Reading Time.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1c1JgwRu
-<br>【百度密碼】：egh7
-<br>【MediaFire】：http://www.mediafire.com/file/go18tftyh5hihan/Reading_Time.2016-12-21.mp3
+<br>【節目暫停】：因播出『一馬當先（跑馬地）』，本期節目暫停
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
-<br>【檔案名稱】：Summit.2016-12-21
+<br>【檔案名稱】：Summit.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1i5uPS6h
-<br>【百度密碼】：dm7b
-<br>【MediaFire】：http://www.mediafire.com/file/du0oh5fq7c0zo2n/Summit.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-12-21
+<br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1miwfFXQ
-<br>【百度密碼】：necq
-<br>【MediaFire】：http://www.mediafire.com/file/xzomn2hwc0jrbep/St._ILUB_Gay_Lim_Yeah_How.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
-<br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-12-21
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1sl70N2d
-<br>【百度密碼】：nvq4
-<br>【MediaFire】：http://www.mediafire.com/file/w27q4j9ar13hgha/Goodnight_Kiss_Kiss_Kiss.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Canto Pop.2016-12-21
+<br>【檔案名稱】：Canto Pop.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1nv0hxK9
-<br>【百度密碼】：9prd
-<br>【MediaFire】：http://www.mediafire.com/file/cucx4bwy97yac7b/Canto_Pop.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
-<br>【節目日期】：2016-12-21
+<br>【節目日期】：2016-12-22
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
-<br>【檔案名稱】：Begin with Music.2016-12-21
+<br>【檔案名稱】：Begin with Music.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1o876S34
-<br>【百度密碼】：c8yw
-<br>【MediaFire】：http://www.mediafire.com/file/pktc71ehaenk3tc/Begin_with_Music.2016-12-21.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or）
