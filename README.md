@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gxmIq （or） http://www.linkbucks.com/ANlB7
 <br>【百度密碼】：epvm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gyAos （or） http://www.linkbucks.com/ANgba
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gxmBW （or） http://www.linkbucks.com/ANlDU
 <br>【百度密碼】：yvvc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gyApw （or） http://www.linkbucks.com/ANgbX
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gxmHt （or） http://www.linkbucks.com/ANlCh
 <br>【百度密碼】：ndn6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gyAuk （or） http://www.linkbucks.com/ANgbC
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gxlz2 （or） http://www.linkbucks.com/ANlD0
 <br>【百度密碼】：x85c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gyAmL （or） http://www.linkbucks.com/ANgbo
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gxw1U （or） http://www.linkbucks.com/ANjuN
 <br>【百度密碼】：ha6a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gyAr1 （or） http://www.linkbucks.com/ANgbO
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -189,8 +189,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-12-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gyAjY （or） http://www.linkbucks.com/ANgb5
+<br>【百度密碼】：r6v6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -209,7 +209,7 @@
 <br>【檔案名稱】：Vanila Sky.2016-12-22
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】： 
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
