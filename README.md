@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gzPU4 （or） http://www.linkbucks.com/AN4oQ
 <br>【百度密碼】：jhh5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gzigE （or） http://www.linkbucks.com/AN1nZ
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gzPPh （or） http://www.linkbucks.com/AN4on
 <br>【百度密碼】：f9qy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gzimf （or） http://www.linkbucks.com/AN1m6
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1gzPLc （or） http://www.linkbucks.com/AN4pT
 <br>【百度密碼】：waar
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gzl4Q （or） http://www.linkbucks.com/AN1Lb
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -82,9 +82,9 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2016-12-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1gzPZm （or） http://www.linkbucks.com/AN4nx
+<br>【百度雲盤】：http://adf.ly/1gzPZm （or） http://www.linkbucks.com/AN4nx        
 <br>【百度密碼】：mcma
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1gzjOu （or） http://www.linkbucks.com/AN1h1
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2016-12-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gzkzC （or） http://www.linkbucks.com/AN1L6
+<br>【百度密碼】：sbvd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-12-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1gzl23 （or） http://www.linkbucks.com/AN1Lq
+<br>【百度密碼】：q2tq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
