@@ -123,8 +123,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1bPWgOI
-<br>【百度密碼】：mk8v
+<br>【百度雲盤】：https://pan.baidu.com/s/1eSOcxbG
+<br>【百度密碼】：4sf3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
@@ -134,8 +134,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1slVN2TB
+<br>【百度密碼】：gedd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：豁達推介
@@ -145,8 +145,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1nvsGcJZ
+<br>【百度密碼】：v2vg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
