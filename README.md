@@ -156,8 +156,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1jIfoYvs
+<br>【百度密碼】：u7xr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：3號螺絲釘
@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1dEVpGp7
+<br>【百度密碼】：wqsr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：第三齡接觸
