@@ -123,8 +123,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1jHH8wHS
+<br>【百度密碼】：gjc2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：903夢想系拉闊音樂會 草蜢
