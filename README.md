@@ -158,7 +158,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1hrRfVog
 <br>【百度密碼】：5iw9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/p12sxwaqvhnc8b5/Sino_Stream.2016-12-25.mp3
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -169,7 +169,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1dENiqNf
 <br>【百度密碼】：uuyh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/234wpclfjfb9oky/Sino_Stream_-_Reading.2016-12-25.mp3
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -178,8 +178,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1boQAgKB
+<br>【百度密碼】：v3tw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -189,8 +189,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1o8deWNS
+<br>【百度密碼】：x8cv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
@@ -200,9 +200,9 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：https://pan.baidu.com/s/1gfp43th
+<br>【百度密碼】：rqbu
+<br>【MediaFire】：http://www.mediafire.com/file/ryiqft0u0ykkyn6/Mighty_Kids_Mighty_Parents.2016-12-25.mp3
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -211,8 +211,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1qYEU81I
+<br>【百度密碼】：6h3g
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
@@ -222,8 +222,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1gfr6uAJ
+<br>【百度密碼】：w254
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
@@ -233,8 +233,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1i5DgXNZ
+<br>【百度密碼】：ng67
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：短期租約
