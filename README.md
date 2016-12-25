@@ -244,8 +244,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1bPWj3w
+<br>【百度密碼】：mpy2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：皇牌出場
@@ -255,8 +255,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1eR77kNw
+<br>【百度密碼】：2eiz
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -266,6 +266,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1jIiCKOQ
+<br>【百度密碼】：nqs5
 <br>【MediaFire】： （or） 
