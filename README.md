@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1qYRLQ5Q
 <br>【百度密碼】：31ja
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/sz9vo32csw1m1nk/Reading_Time.2016-12-25.mp3
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1eSmODCe
 <br>【百度密碼】：2z8t
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/9ckppmb3610t8bn/Star_House.2016-12-25.mp3
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -37,7 +37,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1mioEqdM
 <br>【百度密碼】：p56j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/2ss9ik8is0tkjxi/Year_End_Reviews_2016.2016-12-25.mp3
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -48,7 +48,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1o7IMmgy
 <br>【百度密碼】：c9wf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/v3amsgfxkm00n8x/Urban_Touch.2016-12-25.mp3
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -59,7 +59,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1b4X4AU
 <br>【百度密碼】：75k8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/tthr0j6pa6c6oty/Road_Co-op.2016-12-25.mp3
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -70,7 +70,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1o8PNY5s
 <br>【百度密碼】：bvv4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/b5trpgn2xv4ugtp/The_Way_We_Are.2016-12-25.mp3
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -81,7 +81,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1boXvICR
 <br>【百度密碼】：bp8c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/rw4n7uz2li953qj/Sunny_Day_Readings.2016-12-25.mp3
 
 <br>【節目名稱】：2016年度叱咤樂壇流行榜頒獎典禮特輯
 <br>【節目頻道】：881
@@ -92,7 +92,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1kV2T3oz
 <br>【百度密碼】：tq2j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/ittjn32rsydgne4/2016%E5%B9%B4%E5%BA%A6%E5%8F%B1%E5%92%A4%E6%A8%82%E5%A3%87%E6%B5%81%E8%A1%8C%E6%A6%9C%E9%A0%92%E7%8D%8E%E5%85%B8%E7%A6%AE%E7%89%B9%E8%BC%AF.2016-12-25.mp3
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -103,7 +103,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1qXUnyw8
 <br>【百度密碼】：84rq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/b4wi0tgiggrqwzk/Binge-Watch.2016-12-25.mp3
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -114,7 +114,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1eRLKvNs
 <br>【百度密碼】：w54x
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/8i9j874x7igkexd/Circles.2016-12-25.mp3
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -125,7 +125,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1jHH8wHS
 <br>【百度密碼】：gjc2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/7xgz5cz8qzy13ks/Kiss_Kiss_Kids.2016-12-25.mp3
 
 <br>【節目名稱】：903夢想系拉闊音樂會 草蜢
 <br>【節目頻道】：881
@@ -134,8 +134,8 @@
 <br>【節目時間】：15:00 - 18:00
 <br>【檔案名稱】：903夢想系拉闊音樂會 草蜢.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1mh5tdTQ
+<br>【百度密碼】：pr38
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
@@ -145,8 +145,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1jHTJGcI
+<br>【百度密碼】：8ja9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -156,8 +156,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1hrRfVog
+<br>【百度密碼】：5iw9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
@@ -167,8 +167,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1dENiqNf
+<br>【百度密碼】：uuyh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
