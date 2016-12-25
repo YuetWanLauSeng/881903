@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1cimZMm
 <br>【百度密碼】：xk46
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/9mg266uq7onm4r7/Morning_Glory.2016-12-24.mp3
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1qYpSeFa
 <br>【百度密碼】：f5vz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/23t0wrn1dcpmuqq/So_Sunshine.2016-12-24.mp3
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -37,7 +37,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1qYThAP2
 <br>【百度密碼】：beqk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/d40by5jlzi8itqe/Year_End_Reviews_2016.2016-12-24.mp3
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -48,7 +48,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1bo4p295
 <br>【百度密碼】：fskx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/habt28y8gykx9nc/J.A.L.2016-12-24.mp3
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -59,7 +59,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1hsLWy0k
 <br>【百度密碼】：bn4x
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/dicfc8yg1d3ig3j/Weekend_Lucky_Star.2016-12-24.mp3
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -70,7 +70,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1hrW5760
 <br>【百度密碼】：xi9e
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/4adkm639741kiw5/Stockaeologist.2016-12-24.mp3
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -81,7 +81,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1qYFA1PU
 <br>【百度密碼】：2jrh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/uqe2y0sabfcq757/903_Top_20.2016-12-24.mp3
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -92,7 +92,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1jI8viom
 <br>【百度密碼】：kiae
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/73sbin3ggkqgjhz/Stroke_Decryption.2016-12-24.mp3
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -103,7 +103,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1c5nHkq
 <br>【百度密碼】：irxz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/90n94xgam7jnph6/Movies.2016-12-24.mp3
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -114,7 +114,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1cxMgOI
 <br>【百度密碼】：cqr2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/lzuvmsc0h7dsofg/Mr_Chef.2016-12-24.mp3
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -125,7 +125,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1eSOcxbG
 <br>【百度密碼】：4sf3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/u1wbc8247ntteci/903_Band_Time.2016-12-24.mp3
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -178,8 +178,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1kUMWaZt
+<br>【百度密碼】：2jbd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -189,8 +189,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1bpl8NIf
+<br>【百度密碼】：ri1s
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
@@ -200,8 +200,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1boPom4Z
+<br>【百度密碼】：dak8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -211,8 +211,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1bpHwWkZ
+<br>【百度密碼】：bmcu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
@@ -222,8 +222,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1pLNefFX
+<br>【百度密碼】：55dj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -233,8 +233,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2016-12-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：https://pan.baidu.com/s/1o7XFmI2
+<br>【百度密碼】：dmf2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
