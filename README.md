@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h4ltV （or） http://www.linkbucks.com/ANwyz
 <br>【百度密碼】：rtgy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5Tr1 （or） http://www.linkbucks.com/AOF5A
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h4lGf （or） http://www.linkbucks.com/ANw0u
 <br>【百度密碼】：sj7s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5Tmb （or） http://www.linkbucks.com/B7jJn
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h53mi （or） http://www.linkbucks.com/ANvtn
 <br>【百度密碼】：yt9y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5Trn （or） http://www.linkbucks.com/AOF40
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h5BWV （or） http://www.linkbucks.com/ANvKW
 <br>【百度密碼】：iucy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5Tuf （or） http://www.linkbucks.com/AOF4s
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h5N08 （or） http://www.linkbucks.com/ANuQ9
 <br>【百度密碼】：xrzr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5Tpd （or） http://www.linkbucks.com/AOF5G
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -203,8 +203,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h5Tjy （or） http://www.linkbucks.com/B7jJy
+<br>【百度密碼】：psss
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -214,8 +214,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h5Tgf （or） http://www.linkbucks.com/YC7n
+<br>【百度密碼】：jje3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -225,9 +225,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1h5Tx3 （or） http://www.linkbucks.com/AOF4c
+<br>【百度密碼】：rtjm
+<br>【MediaFire】：http://adf.ly/1h5U4f （or） http://www.linkbucks.com/AOF39
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
