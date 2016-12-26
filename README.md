@@ -224,7 +224,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1gfr6uAJ
 <br>【百度密碼】：w254
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/3slxk25cwbycsh0/Readers_for_Riders.2016-12-25.mp3
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -235,7 +235,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：https://pan.baidu.com/s/1i5DgXNZ
 <br>【百度密碼】：ng67
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/xmhoa923oe149a9/Kot%E2%80%99s_ology.2016-12-25.mp3
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
@@ -244,8 +244,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1qYdGR9q
+<br>【百度密碼】：2q4r
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：靜默的革命
@@ -255,9 +255,9 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Sound of Silence.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1hrLas2g
+<br>【百度密碼】：j6qy
+<br>【MediaFire】：http://www.mediafire.com/file/kle2vnblrjn6y7p/Sound_of_Silence.2016-12-25.mp3
 
 <br>【節目名稱】：寫生活
 <br>【節目頻道】：881
@@ -266,9 +266,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1hsfZaPA
+<br>【百度密碼】：k3ka
+<br>【MediaFire】：http://www.mediafire.com/file/4sy10xkt65jg5yb/Bedtime_Readings.2016-12-25.mp3
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -277,6 +277,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2016-12-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1jHF6998
+<br>【百度密碼】：62tc
 <br>【MediaFire】： （or） 
