@@ -1,282 +1,307 @@
-<br>【節目名稱】：書.情.歌
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：葉宇澄
-<br>【節目時間】：06:00 - 08:00
-<br>【檔案名稱】：Reading Time.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1qYRLQ5Q
-<br>【百度密碼】：31ja
-<br>【MediaFire】：http://www.mediafire.com/file/sz9vo32csw1m1nk/Reading_Time.2016-12-25.mp3
-
-<br>【節目名稱】：一周紅人館
+<br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：903 DJ
-<br>【節目時間】：06:00 - 09:00
-<br>【檔案名稱】：Star House.2016-12-25
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：Wasabi | 嘉賓主持
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1eSmODCe
-<br>【百度密碼】：2z8t
-<br>【MediaFire】：http://www.mediafire.com/file/9ckppmb3610t8bn/Star_House.2016-12-25.mp3
+<br>【百度雲盤】：http://adf.ly/1h4ltV （or） http://www.linkbucks.com/ANwyz
+<br>【百度密碼】：rtgy
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：政好星期天
+<br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 符靜琳 | 李兆綸
+<br>【節目時間】：06:30 - 10:00
+<br>【檔案名稱】：On a Clear Day（881）.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】：http://adf.ly/1h4lGf （or） http://www.linkbucks.com/ANw0u
+<br>【百度密碼】：sj7s
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：早安，同學早!
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：西瓜
+<br>【節目時間】：07:00 - 08:00
+<br>【檔案名稱】：Hey, Learners!.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】：http://adf.ly/1h4lAA （or） http://www.linkbucks.com/ANw1C
+<br>【百度密碼】：be2v
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：在晴朗的一天出發
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：Beautiful Sunday.2016-12-25
-<br>【節目暫停】：因播出『2016大事回顧-兩岸及國際』，本期節目暫停
-
-<br>【節目名稱】：2016大事回顧-兩岸及國際
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：陳倩雯 | 林智偉
-<br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：Year End Reviews 2016.2016-12-25
+<br>【檔案名稱】：On a Clear Day（903）.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1mioEqdM
-<br>【百度密碼】：p56j
-<br>【MediaFire】：http://www.mediafire.com/file/2ss9ik8is0tkjxi/Year_End_Reviews_2016.2016-12-25.mp3
+<br>【百度雲盤】：http://adf.ly/1h4lI0 （or） http://www.linkbucks.com/ANw0r
+<br>【百度密碼】：j1m2
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：Urban Touch
+<br>【節目名稱】：娛樂大哥
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：吳雨
+<br>【節目時間】：10:00 - 10:30
+<br>【檔案名稱】：Master in Entertaining.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】：http://adf.ly/1h4lDd （or） http://www.linkbucks.com/ANw02
+<br>【百度密碼】：nxdq
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：早霸王
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：急急子
-<br>【節目時間】：09:00 - 11:00
-<br>【檔案名稱】：Urban Touch.2016-12-25
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：森美 | 小儀
+<br>【節目時間】：10:00 - 12:00
+<br>【檔案名稱】：Good Morning King.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1o7IMmgy
-<br>【百度密碼】：c9wf
-<br>【MediaFire】：http://www.mediafire.com/file/v3amsgfxkm00n8x/Urban_Touch.2016-12-25.mp3
-
-<br>【節目名稱】：馬路的事我哋的事
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：林偉豪
-<br>【節目時間】：10:00 - 11:00
-<br>【檔案名稱】：Road Co-op.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1b4X4AU
-<br>【百度密碼】：75k8
-<br>【MediaFire】：http://www.mediafire.com/file/tthr0j6pa6c6oty/Road_Co-op.2016-12-25.mp3
-
-<br>【節目名稱】：同途有心人
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：麥詠宜
-<br>【節目時間】：11:00 - 12:00
-<br>【檔案名稱】：The Way We Are.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1o8PNY5s
-<br>【百度密碼】：bvv4
-<br>【MediaFire】：http://www.mediafire.com/file/b5trpgn2xv4ugtp/The_Way_We_Are.2016-12-25.mp3
-
-<br>【節目名稱】：讀賣Sunday
-<br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：占 | 王貽興
-<br>【節目時間】：11:00 - 13:00
-<br>【檔案名稱】：Sunny Day Readings.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1boXvICR
-<br>【百度密碼】：bp8c
-<br>【MediaFire】：http://www.mediafire.com/file/rw4n7uz2li953qj/Sunny_Day_Readings.2016-12-25.mp3
-
-<br>【節目名稱】：2016年度叱咤樂壇流行榜頒獎典禮特輯
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：Wasabi | 江慧楓
-<br>【節目時間】：12:30 - 14:00
-<br>【檔案名稱】：2016年度叱咤樂壇流行榜頒獎典禮特輯.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1kV2T3oz
-<br>【百度密碼】：tq2j
-<br>【MediaFire】：http://www.mediafire.com/file/ittjn32rsydgne4/2016%E5%B9%B4%E5%BA%A6%E5%8F%B1%E5%92%A4%E6%A8%82%E5%A3%87%E6%B5%81%E8%A1%8C%E6%A6%9C%E9%A0%92%E7%8D%8E%E5%85%B8%E7%A6%AE%E7%89%B9%E8%BC%AF.2016-12-25.mp3
-
-<br>【節目名稱】：無定向喪煲病狂
-<br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：鄒凱光 | 檸
-<br>【節目時間】：13:00 - 15:00
-<br>【檔案名稱】：Binge-Watch.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1qXUnyw8
-<br>【百度密碼】：84rq
-<br>【MediaFire】：http://www.mediafire.com/file/b4wi0tgiggrqwzk/Binge-Watch.2016-12-25.mp3
+<br>【百度雲盤】：http://adf.ly/1h4l6m （or） http://www.linkbucks.com/ANw1L
+<br>【百度密碼】：dfsf
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
+<br>【節目日期】：2016-12-26
 <br>【節目主持】：樂樂 | 阮兆祥 | 梁泰來
-<br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：Circles.2016-12-25
+<br>【節目時間】：10:30 - 12:00
+<br>【檔案名稱】：Circles.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1eRLKvNs
-<br>【百度密碼】：w54x
-<br>【MediaFire】：http://www.mediafire.com/file/8i9j874x7igkexd/Circles.2016-12-25.mp3
-
-<br>【節目名稱】：兒童適宜
-<br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：朱薰 | 陸永
-<br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：Kiss Kiss Kids.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1jHH8wHS
-<br>【百度密碼】：gjc2
-<br>【MediaFire】：http://www.mediafire.com/file/7xgz5cz8qzy13ks/Kiss_Kiss_Kids.2016-12-25.mp3
-
-<br>【節目名稱】：903夢想系拉闊音樂會 草蜢
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：903 DJ
-<br>【節目時間】：15:00 - 18:00
-<br>【檔案名稱】：903夢想系拉闊音樂會 草蜢.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1mh5tdTQ
-<br>【百度密碼】：pr38
+<br>【百度雲盤】：http://adf.ly/1h4l4p （or） http://www.linkbucks.com/ANw1M
+<br>【百度密碼】：gi9b
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：Mali Mali Home
-<br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：麻利亞
-<br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Mali Mali Home.2016-12-25
+<br>【節目名稱】：十八樓C座
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1jHTJGcI
-<br>【百度密碼】：8ja9
+<br>【百度雲盤】：http://adf.ly/1h4lwP （or） http://www.linkbucks.com/ANwyq
+<br>【百度密碼】：k3x4
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：叱咤樂壇
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：謝茜嘉 | 梁文禮
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：一點叮一叮
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：何飛鳳
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Lunch Special.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：人生交叉盤
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：你好嘢
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：朱薰
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：You Are The Best.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：大玩派
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：The Fun Box.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：口水多過浪花
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：都是我的流行曲
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：江健聰
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Oldies Buddy.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：毒檸王國
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Dokureioukoku.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：集雜志
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：人民大道中
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：生活日常
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：細So
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：My Daily Life.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：杏林茶
+<br>【節目頻道】：881
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You.2016-12-26
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
+<br>【節目日期】：2016-12-26
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目時間】：18:30 - 19:00
-<br>【檔案名稱】：Sino Stream.2016-12-25
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1hrRfVog
-<br>【百度密碼】：5iw9
-<br>【MediaFire】：http://www.mediafire.com/file/p12sxwaqvhnc8b5/Sino_Stream.2016-12-25.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：讀懂中國
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：潘小濤 | 何亦文
-<br>【節目時間】：19:00 - 20:00
-<br>【檔案名稱】：Sino Stream - Reading.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1dENiqNf
-<br>【百度密碼】：uuyh
-<br>【MediaFire】：http://www.mediafire.com/file/234wpclfjfb9oky/Sino_Stream_-_Reading.2016-12-25.mp3
-
-<br>【節目名稱】：國語類
+<br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
+<br>【節目日期】：2016-12-26
 <br>【節目主持】：Vani
-<br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：Bo Po Mo Fo.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1boQAgKB
-<br>【百度密碼】：v3tw
-<br>【MediaFire】： （or） 
-
-<br>【節目名稱】：泡菜粉絲煲 
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：伍甄琪 | 伍悅
-<br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Kimchi Fans Club.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1o8deWNS
-<br>【百度密碼】：x8cv
-<br>【MediaFire】： （or） 
-
-<br>【節目名稱】：細路強 
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
-<br>【節目時間】：21:00 - 22:00 
-<br>【檔案名稱】：Mighty Kids Mighty Parents.2016-12-25
-<br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1gfp43th
-<br>【百度密碼】：rqbu
-<br>【MediaFire】：http://www.mediafire.com/file/ryiqft0u0ykkyn6/Mighty_Kids_Mighty_Parents.2016-12-25.mp3
-
-<br>【節目名稱】：國民教育
-<br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Time's Up Pen's Down.2016-12-25
+<br>【檔案名稱】：Vanila Sky.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1qYEU81I
-<br>【百度密碼】：6h3g
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：帶一本書去旅行
+<br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：阮子健
-<br>【節目時間】：22:00 - 23:00
-<br>【檔案名稱】：Readers for Riders.2016-12-25
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1gfr6uAJ
-<br>【百度密碼】：w254
-<br>【MediaFire】：http://www.mediafire.com/file/3slxk25cwbycsh0/Readers_for_Riders.2016-12-25.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：葛民教育
+<br>【節目名稱】：光明頂
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：葛民輝
-<br>【節目時間】：23:00 - 23:30
-<br>【檔案名稱】：Kot’s ology.2016-12-25
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：陶傑 | 嘉賓主持
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：https://pan.baidu.com/s/1i5DgXNZ
-<br>【百度密碼】：ng67
-<br>【MediaFire】：http://www.mediafire.com/file/xmhoa923oe149a9/Kot%E2%80%99s_ology.2016-12-25.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：短期租約
+<br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：Wasabi
-<br>【節目時間】：23:00 - 02:00
-<br>【檔案名稱】：Short-term Lease.2016-12-25
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1qYdGR9q
-<br>【百度密碼】：2q4r
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
-<br>【節目名稱】：靜默的革命
+<br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：林以諾
-<br>【節目時間】：23:30 - 01:00
-<br>【檔案名稱】：Sound of Silence.2016-12-25
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：鄔家麟
+<br>【節目時間】：00:30 - 01:30
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1hrLas2g
-<br>【百度密碼】：j6qy
-<br>【MediaFire】：http://www.mediafire.com/file/kle2vnblrjn6y7p/Sound_of_Silence.2016-12-25.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
-<br>【節目名稱】：寫生活
-<br>【節目頻道】：881
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：主持人
+<br>【節目名稱】：廣東爆谷
+<br>【節目頻道】：903
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Bedtime Readings.2016-12-25
+<br>【檔案名稱】：Canto Pop.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1hsfZaPA
-<br>【百度密碼】：k3ka
-<br>【MediaFire】：http://www.mediafire.com/file/4sy10xkt65jg5yb/Bedtime_Readings.2016-12-25.mp3
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
-<br>【節目日期】：2016-12-25
-<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目日期】：2016-12-26
+<br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
-<br>【檔案名稱】：Begin with Music.2016-12-25
+<br>【檔案名稱】：Begin with Music.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://pan.baidu.com/s/1jHF6998
-<br>【百度密碼】：62tc
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
 <br>【MediaFire】： （or） 
