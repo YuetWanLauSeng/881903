@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h4lAA （or） http://www.linkbucks.com/ANw1C
 <br>【百度密碼】：be2v
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5KaU （or） http://www.linkbucks.com/ANub2
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h4lI0 （or） http://www.linkbucks.com/ANw0r
 <br>【百度密碼】：j1m2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5KYj （or） http://www.linkbucks.com/ANuco
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h4lDd （or） http://www.linkbucks.com/ANw02
 <br>【百度密碼】：nxdq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5Kbo （or） http://www.linkbucks.com/ANubt
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h4l6m （or） http://www.linkbucks.com/ANw1L
 <br>【百度密碼】：dfsf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5KRC （or） http://www.linkbucks.com/ANudo
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h4lwP （or） http://www.linkbucks.com/ANwyq
 <br>【百度密碼】：k3x4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5KeP （or） http://www.linkbucks.com/ANubn
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h540r （or） http://www.linkbucks.com/ANvtB
 <br>【百度密碼】：nvw3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5KUG （or） http://www.linkbucks.com/ANudh
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h57xE （or） http://www.linkbucks.com/ANvZA
 <br>【百度密碼】：bfhn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5KWA （or） http://www.linkbucks.com/ANucw
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h58aW （or） http://www.linkbucks.com/ANvXG
 <br>【百度密碼】：q4d5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h5KVN （or） http://www.linkbucks.com/ANudV
 
 <br>【節目名稱】：都是我的流行曲
 <br>【節目頻道】：881
@@ -159,9 +159,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2016-12-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1h5KJH （or） http://www.linkbucks.com/ANuez
+<br>【百度密碼】：kbct
+<br>【MediaFire】：http://adf.ly/1h5KPo （or） http://www.linkbucks.com/ANueW
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
