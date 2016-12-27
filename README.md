@@ -213,9 +213,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1h7Ty3 （or） http://www.linkbucks.com/AOJTw
+<br>【百度密碼】：h4eb
+<br>【MediaFire】：http://adf.ly/1h7U7L （or） http://www.linkbucks.com/AOJR3
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -232,9 +232,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1h7U19 （or） http://www.linkbucks.com/AOJTl
+<br>【百度密碼】：g7g3
+<br>【MediaFire】：http://adf.ly/1h7U9J （or） http://www.linkbucks.com/AOJRz
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -243,9 +243,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1h7Twc （or） http://www.linkbucks.com/AOJUa
+<br>【百度密碼】：d5yh
+<br>【MediaFire】：http://adf.ly/1h7U6U （or） http://www.linkbucks.com/AOJSF
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
