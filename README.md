@@ -158,8 +158,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h7F5d （or） http://www.linkbucks.com/AONTz
+<br>【百度密碼】：5xms
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -169,8 +169,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h7F76 （or） http://www.linkbucks.com/AONTg
+<br>【百度密碼】：2mgw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
