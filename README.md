@@ -92,7 +92,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6otH （or） http://www.linkbucks.com/AOSG8
 <br>【百度密碼】：e4eu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6rWg （or） http://www.linkbucks.com/AORoY
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -119,7 +119,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6opi （or） http://www.linkbucks.com/AOSHf
 <br>【百度密碼】：msiy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6rqx （or） http://www.linkbucks.com/AORfQ
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -136,8 +136,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h6v8D （or） http://www.linkbucks.com/AOQfC
+<br>【百度密碼】：f6fz
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
