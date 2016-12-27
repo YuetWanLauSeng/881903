@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6c13 （or） http://www.linkbucks.com/AN6ja
 <br>【百度密碼】：75um
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6lVB （or） http://www.linkbucks.com/AN5cy
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6c4V （or） http://www.linkbucks.com/AN6iq
 <br>【百度密碼】：ghed
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6jjH （or） http://www.linkbucks.com/AN5pG
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6c86 （or） http://www.linkbucks.com/AN6hZ
 <br>【百度密碼】：gwyb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6lYF （or） http://www.linkbucks.com/AN5cs
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6c33 （or） http://www.linkbucks.com/AN6i5
 <br>【百度密碼】：6dmi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6lQP （or） http://www.linkbucks.com/AN5dj
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6c5R （or） http://www.linkbucks.com/AN6ie
 <br>【百度密碼】：vemm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6lbW （or） http://www.linkbucks.com/AN5cQ
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6cDX （or） http://www.linkbucks.com/AN6gA
 <br>【百度密碼】：jv23
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6lHW （or） http://www.linkbucks.com/AN5dx
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6cFG （or） http://www.linkbucks.com/AN6fw
 <br>【百度密碼】：wwix
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6lUM （or） http://www.linkbucks.com/AN5c3
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -90,8 +90,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h6otH （or） http://www.linkbucks.com/AOSG8
+<br>【百度密碼】：e4eu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -117,8 +117,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h6opi （or） http://www.linkbucks.com/AOSHf
+<br>【百度密碼】：msiy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
