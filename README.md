@@ -160,7 +160,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h7F5d （or） http://www.linkbucks.com/AONTz
 <br>【百度密碼】：5xms
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h7N4M （or） http://www.linkbucks.com/AOKnE
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -171,7 +171,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h7F76 （or） http://www.linkbucks.com/AONTg
 <br>【百度密碼】：2mgw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h7N3L （or） http://www.linkbucks.com/AOKnH
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -182,7 +182,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h7GqU （or） http://www.linkbucks.com/AOMoe
 <br>【百度密碼】：9dqw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h7MzK （or） http://www.linkbucks.com/AOKni
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -193,7 +193,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h7Gx8 （or） http://www.linkbucks.com/AOMmp
 <br>【百度密碼】：3xf4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h7N6K （or） http://www.linkbucks.com/AOKmn
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -202,9 +202,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1h7Mvm （or） http://www.linkbucks.com/AOKnq
+<br>【百度密碼】：set9
+<br>【MediaFire】：http://adf.ly/1h7MyP （or） http://www.linkbucks.com/AOKnn
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
