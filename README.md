@@ -138,7 +138,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1h6v8D （or） http://www.linkbucks.com/AOQfC
 <br>【百度密碼】：f6fz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1h6ycq （or） http://www.linkbucks.com/AOQQ0
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -147,9 +147,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2016-12-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1h72HF （or） http://www.linkbucks.com/AOQCN
+<br>【百度密碼】：n4ir
+<br>【MediaFire】：http://adf.ly/1h72Jb （or） http://www.linkbucks.com/AOQBj
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
