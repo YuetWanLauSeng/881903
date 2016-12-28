@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2016-12-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h92NO （or） http://www.linkbucks.com/AN7Av
+<br>【百度密碼】：bwhg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2016-12-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h92Rq （or） http://www.linkbucks.com/AN69d
+<br>【百度密碼】：emka
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-12-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1h93P2 （or） http://www.linkbucks.com/AN62i
+<br>【百度密碼】：4sy3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
