@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBIBU （or） http://www.linkbucks.com/AOYBW
 <br>【百度密碼】：iy9n
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBPBj （or） http://www.linkbucks.com/AOWDF
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBIIl （or） http://www.linkbucks.com/AOX7m
 <br>【百度密碼】：m9ga
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBOkH （or） http://www.linkbucks.com/AOWEp
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBIA2 （or） http://www.linkbucks.com/AOYBk
 <br>【百度密碼】：9skx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBOgS （or） http://www.linkbucks.com/AOWFE
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hB1wK （or） http://www.linkbucks.com/AOMcC
 <br>【百度密碼】：uurf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBOiL （or） http://www.linkbucks.com/AOWE1
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBJ5x （or） http://www.linkbucks.com/AOXlZ
 <br>【百度密碼】：4pw2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBPEO （or） http://www.linkbucks.com/AOWC9
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBIv5 （or） http://www.linkbucks.com/AOXpP
 <br>【百度密碼】：s36u
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBORG （or） http://www.linkbucks.com/AOWGJ
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-12-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hBPjH （or） http://www.linkbucks.com/AOWBX
+<br>【百度密碼】：7aqp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-12-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hBPyL （or） http://www.linkbucks.com/AOWAb
+<br>【百度密碼】：3kr2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2016-12-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hBPmT （or） http://www.linkbucks.com/AOWBP
+<br>【百度密碼】：y6ub
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
