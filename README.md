@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBIKh （or） http://www.linkbucks.com/AOX7E
 <br>【百度密碼】：gy12
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBORG （or） http://www.linkbucks.com/AORI1
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBPjH （or） http://www.linkbucks.com/AOWBX
 <br>【百度密碼】：7aqp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBYZ2 （or） http://www.linkbucks.com/AORJZ
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBPyL （or） http://www.linkbucks.com/AOWAb
 <br>【百度密碼】：3kr2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBYdU （or） http://www.linkbucks.com/AORJB
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hBPmT （or） http://www.linkbucks.com/AOWBP
 <br>【百度密碼】：y6ub
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hBYeJ （or） http://www.linkbucks.com/AORI8
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,9 +225,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2016-12-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hBYPv （or） http://www.linkbucks.com/AORMC
+<br>【百度密碼】：w3x2
+<br>【MediaFire】：http://adf.ly/1hBYWB （or） http://www.linkbucks.com/AORJx
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -236,9 +236,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2016-12-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hBYTS （or） http://www.linkbucks.com/AORLb
+<br>【百度密碼】：12nu
+<br>【MediaFire】：http://adf.ly/1hBYYO （or） http://www.linkbucks.com/AORJh
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-29
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hBYNm （or） http://www.linkbucks.com/AORMO
+<br>【百度密碼】：xy4g
+<br>【MediaFire】：http://adf.ly/1hBYUq （or） http://www.linkbucks.com/AORJ5
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
