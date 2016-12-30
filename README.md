@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hDg3q （or） http://www.linkbucks.com/AOSD9
 <br>【百度密碼】：r1y7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hE2lp （or） 
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hDg5I （or） http://www.linkbucks.com/AOSDr
 <br>【百度密碼】：8ckd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hE2jp （or） 
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -203,9 +203,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2016-12-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hE2VE （or） 
+<br>【百度密碼】：u114
+<br>【MediaFire】：http://adf.ly/1hE2dr （or） 
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -214,9 +214,9 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2016-12-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hE2SK （or） 
+<br>【百度密碼】：5jcx
+<br>【MediaFire】：http://adf.ly/1hE2iu （or） 
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -258,8 +258,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2016-12-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hE2nU （or） 
+<br>【百度密碼】：wdiu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
