@@ -93,8 +93,8 @@
 <br>【節目時間】：12:00 - 13:00
 <br>【檔案名稱】：叱咤樂壇流行榜2016回顧.2016-12-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hDMxC （or） http://www.linkbucks.com/qUI3
+<br>【百度密碼】：mg2b
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：叱咤樂壇
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：903 Music.2016-12-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hDMtn （or） http://www.linkbucks.com/qoch
+<br>【百度密碼】：u5r7
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -115,8 +115,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2016-12-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hDMnO （or） http://www.linkbucks.com/q0ed
+<br>【百度密碼】：hwf4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2016-12-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hDMpv （or） http://www.linkbucks.com/qvev
+<br>【百度密碼】：h4sg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
@@ -137,8 +137,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2016-12-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hDMTU （or） http://www.linkbucks.com/rjw0
+<br>【百度密碼】：6wms
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
