@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hGWsl （or） http://www.linkbucks.com/AOdJV
 <br>【百度密碼】：xzic
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hGySi （or） http://www.linkbucks.com/AOais
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hGfSI （or） http://www.linkbucks.com/AOccl
 <br>【百度密碼】：jkdf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hGyeC （or） http://www.linkbucks.com/AOahj
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hGWoX （or） http://www.linkbucks.com/AOdJp
 <br>【百度密碼】：7vri
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hGyYJ （or） http://www.linkbucks.com/AOaiS
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hGfdI （or） http://www.linkbucks.com/AOccN
 <br>【百度密碼】：yeac
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hGyaR （or） http://www.linkbucks.com/AOaiF
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2016-12-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hGyP1 （or） http://www.linkbucks.com/AOajI
+<br>【百度密碼】：v2ev
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -203,8 +203,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2016-12-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hGyL7 （or） http://www.linkbucks.com/AOajd
+<br>【百度密碼】：upvx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
