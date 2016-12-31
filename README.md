@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2016-12-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hGWyF （or） http://www.linkbucks.com/AOdJB
+<br>【百度密碼】：bzj4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：豁達推介
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2016-12-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hGWsl （or） http://www.linkbucks.com/AOdJV
+<br>【百度密碼】：xzic
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2016-12-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hGWoX （or） http://www.linkbucks.com/AOdJp
+<br>【百度密碼】：7vri
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：第三齡接觸
