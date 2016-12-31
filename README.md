@@ -148,8 +148,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2016-12-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hGfSI （or） http://www.linkbucks.com/AOccl
+<br>【百度密碼】：jkdf
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：3號螺絲釘
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2016-12-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hGfdI （or） http://www.linkbucks.com/AOccN
+<br>【百度密碼】：yeac
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -181,8 +181,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2016-12-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hGfiu （or） http://www.linkbucks.com/AOcbd
+<br>【百度密碼】：x3cj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
