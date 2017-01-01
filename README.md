@@ -104,8 +104,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Mali Mali Home.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1kVPU1KF
+<br>【百度密碼】：dyy6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -137,8 +137,8 @@
 <br>【節目時間】：18:00 - 20:00
 <br>【檔案名稱】：2016年度叱咤樂壇流行榜頒獎典禮前奏.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1c25kaXE
+<br>【百度密碼】：kn9t
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
@@ -156,8 +156,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1kUXfPKb
+<br>【百度密碼】：96w7
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
@@ -167,8 +167,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1qYpS7s4
+<br>【百度密碼】：84we
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
