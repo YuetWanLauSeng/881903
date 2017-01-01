@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1pLIuNt5
 <br>【百度密碼】：4uz3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/xa596369e3h7zqx/Reading_Time.2017-01-01.mp3
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1eREZdlw
 <br>【百度密碼】：ri4i
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/4qgaw1c0spa11ad/Star_House.2017-01-01.mp3
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1dEQ60VZ
 <br>【百度密碼】：n47j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/155ubr5p5hu4f8j/Beautiful_Sunday.2017-01-01.mp3
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1eSGBqQe
 <br>【百度密碼】：trhg
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/xm9labz1mz3zkoa/Urban_Touch.2017-01-01.mp3
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1c2eLBR6
 <br>【百度密碼】：giyk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/kgccxf902y9tky2/Road_Co-op.2017-01-01.mp3
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1c2Hvs3Y
 <br>【百度密碼】：adin
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/tx790y1banynbij/The_Way_We_Are.2017-01-01.mp3
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1pLcxtwv
 <br>【百度密碼】：26wt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/cpn21ezbj5zq59y/Sunny_Day_Readings.2017-01-01.mp3
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1hrEpekO
 <br>【百度密碼】：1456
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/4ikajdcgfg7470o/Binge-Watch.2017-01-01.mp3
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -93,9 +93,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1miK2OuG
+<br>【百度密碼】：kckf
+<br>【MediaFire】：http://www.mediafire.com/file/vskx18gresr5798/Kiss_Kiss_Kids.2017-01-01.mp3
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
