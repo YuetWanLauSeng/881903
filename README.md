@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLV4T （or） http://www.linkbucks.com/AObYK
 <br>【百度密碼】：ia35
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hMMGD （or） http://www.linkbucks.com/AOgVA
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLVHr （or） http://www.linkbucks.com/AObXv
 <br>【百度密碼】：sqem
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hMMYI （or） http://www.linkbucks.com/AOgUh
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLVMK （or） http://www.linkbucks.com/AObXs
 <br>【百度密碼】：qee4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hMMna （or） http://www.linkbucks.com/AOgTK
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLhFc （or） http://www.linkbucks.com/AOZU7
 <br>【百度密碼】：33wr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hMMhx （or） http://www.linkbucks.com/AOgUF
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLhD4 （or） http://www.linkbucks.com/AOZVH
 <br>【百度密碼】：snfk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hMMeO （or） http://www.linkbucks.com/AOgUJ
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLhmi （or） http://www.linkbucks.com/AOZK2
 <br>【百度密碼】：ind5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hMMkO （or） http://www.linkbucks.com/AOgTj
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hMTYd （or） http://www.linkbucks.com/AOgFH
+<br>【百度密碼】：3t4p
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hMCl0 （or） http://www.linkbucks.com/AOg0C
 <br>【百度密碼】：cp8k
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hMMKz （or） http://www.linkbucks.com/AOgUo
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hMTP2 （or） http://www.linkbucks.com/AOgFW
+<br>【百度密碼】：v3ds
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -192,8 +192,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hMTTb （or） http://www.linkbucks.com/AOgFO
+<br>【百度密碼】：pti3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
