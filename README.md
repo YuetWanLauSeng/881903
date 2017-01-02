@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLVKg （or） http://www.linkbucks.com/AObXu
 <br>【百度密碼】：9kpj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hLh7v （or） http://www.linkbucks.com/AOZVq
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -93,8 +93,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hLhAU （or） http://www.linkbucks.com/AOZVQ
+<br>【百度密碼】：9pdn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hLhFc （or） http://www.linkbucks.com/AOZU7
+<br>【百度密碼】：33wr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hLhD4 （or） http://www.linkbucks.com/AOZVH
+<br>【百度密碼】：snfk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hLhmi （or） http://www.linkbucks.com/AOZK2
+<br>【百度密碼】：ind5
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
@@ -147,6 +147,17 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-01-02
+<br>【檔案音質】：高清
+<br>【百度雲盤】： （or） 
+<br>【百度密碼】：
+<br>【MediaFire】： （or） 
+
+<br>【節目名稱】：都是我的流行曲
+<br>【節目頻道】：881
+<br>【節目日期】：2017-01-02
+<br>【節目主持】：江健聰
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Oldies Buddy.2017-01-02
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
