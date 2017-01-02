@@ -172,7 +172,7 @@
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
-<br>【節目頻道】：903
+<br>【節目頻道】：903	
 <br>【節目日期】：2017-01-01
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
@@ -186,8 +186,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1hrRgtSS
+<br>【百度密碼】：asuc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：2016年度叱咤樂壇流行榜頒獎典禮
@@ -197,8 +197,8 @@
 <br>【節目時間】：20:00 - 23:30
 <br>【檔案名稱】：Ultimate Song Chart Awards Presentation 2016.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1bpehJPl
+<br>【百度密碼】：n7vx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
@@ -208,19 +208,19 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1nvvyqlN
+<br>【百度密碼】：qkmj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
 <br>【節目日期】：2017-01-01
 <br>【節目主持】：Wasabi
-<br>【節目時間】：23:00 - 02:00
+<br>【節目時間】：23:30 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1c9XR3o
+<br>【百度密碼】：9xaq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：心靈料理
@@ -230,8 +230,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1c1LOQ20
+<br>【百度密碼】：grb1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：寫生活
@@ -241,8 +241,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1qYJEHqc
+<br>【百度密碼】：3psc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -252,6 +252,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-01-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1o8sEwFS
+<br>【百度密碼】：wiuk
 <br>【MediaFire】： （or） 
