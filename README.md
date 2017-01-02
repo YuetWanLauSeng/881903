@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hMCgL （or） http://www.linkbucks.com/AOg0W
 <br>【百度密碼】：z4ci
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hMX5e （or） http://www.linkbucks.com/AOcJM
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hMWya （or） http://www.linkbucks.com/AOcJg
+<br>【百度密碼】：yvem
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
