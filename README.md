@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLVEq （or） http://www.linkbucks.com/AObX3
 <br>【百度密碼】：s8y4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hLdCN （or） http://www.linkbucks.com/AOZ8w
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLVOW （or） http://www.linkbucks.com/AObXp
 <br>【百度密碼】：q4fm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hLdB5 （or） http://www.linkbucks.com/AOZ9J
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hLUwH （or） http://www.linkbucks.com/AObYZ
 <br>【百度密碼】：kqb8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hLdE0 （or） http://www.linkbucks.com/AOZ8T
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
