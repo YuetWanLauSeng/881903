@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hMCO9 （or） http://www.linkbucks.com/AOg3W
 <br>【百度密碼】：dg45
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hN2mA （or） http://www.linkbucks.com/AOYOj
 
 <br>【節目名稱】：都是我的流行曲
 <br>【節目頻道】：881
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hMWya （or） http://www.linkbucks.com/AOcJg
 <br>【百度密碼】：yvem
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hN2iH （or） http://www.linkbucks.com/AOYO6
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hMtmA （or） http://www.linkbucks.com/AOY0A
 <br>【百度密碼】：afzm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hN2oq （or） http://www.linkbucks.com/AOYOc
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -258,9 +258,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hN2N1 （or） http://www.linkbucks.com/AOYP1
+<br>【百度密碼】：5p9b
+<br>【MediaFire】：http://adf.ly/1hN3T4 （or） http://www.linkbucks.com/AOYKM
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
