@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hOqRL （or） http://www.linkbucks.com/AOjjK
 <br>【百度密碼】：iz9r
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPFvM （or） http://www.linkbucks.com/AOiYE
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hOrBC （or） http://www.linkbucks.com/AOjg9
 <br>【百度密碼】：wcwg
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPHCo （or） http://www.linkbucks.com/AOiQM
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hOrJ8 （or） http://www.linkbucks.com/AOjeq
 <br>【百度密碼】：r6h8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPFyk （or） http://www.linkbucks.com/AOiX8
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hOqUk （or） http://www.linkbucks.com/AOjjG
 <br>【百度密碼】：5un5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPFLs （or） http://www.linkbucks.com/AOiZO
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hOrEu （or） http://www.linkbucks.com/AOjfz
 <br>【百度密碼】：tnni
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPG2q （or） http://www.linkbucks.com/AOiXv
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hOrMg （or） http://www.linkbucks.com/AOjeN
 <br>【百度密碼】：6mfy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPFFo （or） http://www.linkbucks.com/AOiZz
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hOrQL （or） http://www.linkbucks.com/AOjdg
 <br>【百度密碼】：7cx8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPFP3 （or） http://www.linkbucks.com/AOiY6
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hOrUm （or） http://www.linkbucks.com/AOjbv
 <br>【百度密碼】：hbyh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPG5r （or） http://www.linkbucks.com/AOiXo
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -301,4 +301,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or）
+<br>【MediaFire】： （or） 
