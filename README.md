@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hPb6X （or） http://www.linkbucks.com/AOxzj
 <br>【百度密碼】：jyau
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPrlu （or） http://www.linkbucks.com/AOsgl
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hPbgS （or） http://www.linkbucks.com/AOxrp
 <br>【百度密碼】：84vt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPruE （or） http://www.linkbucks.com/AOsfN
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hPcZZ （or） http://www.linkbucks.com/AOxfB
 <br>【百度密碼】：q49j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hPs1I （or） http://www.linkbucks.com/AOsfI
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,9 +159,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-01-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hPqN8 （or） http://www.linkbucks.com/AOtZc
+<br>【百度密碼】：q27n
+<br>【MediaFire】：http://adf.ly/1hPsvx （or） http://www.linkbucks.com/AOsWc
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
