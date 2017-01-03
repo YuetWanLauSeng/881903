@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hQ891 （or） http://www.linkbucks.com/ALmir
 <br>【百度密碼】：bw8s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hQaJe （or） http://www.linkbucks.com/AOrRx
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hQK4h （or） http://www.linkbucks.com/po7m
 <br>【百度密碼】：b1cn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hQaOt （or） http://www.linkbucks.com/AOrRn
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hQKF2 （or） http://www.linkbucks.com/cn4M
 <br>【百度密碼】：f6vh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hQaRu （or） http://www.linkbucks.com/AOrDA
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hQaDQ （or） http://www.linkbucks.com/AOrSH
+<br>【百度密碼】：qy36
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -244,8 +244,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-01-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hQaHq （or） http://www.linkbucks.com/AOrR7
+<br>【百度密碼】：a9yk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -255,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hQa8n （or） http://www.linkbucks.com/AOrSO
+<br>【百度密碼】：wmy3
+<br>【MediaFire】：http://adf.ly/1hQcIC （or） http://www.linkbucks.com/AOq8F
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
