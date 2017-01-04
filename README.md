@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hSsge （or） http://www.linkbucks.com/AOxrJ
 <br>【百度密碼】：exha
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hTPbm （or） http://www.linkbucks.com/AOv3h
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hSsZx （or） http://www.linkbucks.com/AOxr2
 <br>【百度密碼】：em1p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hTQKW （or） http://www.linkbucks.com/AOvv4
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hSsd6 （or） http://www.linkbucks.com/AOxrg
 <br>【百度密碼】：ue49
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hTPnN （or） http://www.linkbucks.com/AOv2D
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hSsU1 （or） http://www.linkbucks.com/AOxso
 <br>【百度密碼】：byee
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hTPrp （or） http://www.linkbucks.com/AOv1O
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hSwdW （or） http://www.linkbucks.com/AOxkq
 <br>【百度密碼】：ajm7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hTPft （or） http://www.linkbucks.com/AOv3J
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hSxpu （or） http://www.linkbucks.com/AOxir
 <br>【百度密碼】：vr64
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hTPW9 （or） http://www.linkbucks.com/AOv3t
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hT35E （or） http://www.linkbucks.com/AOxUF
 <br>【百度密碼】：9wye
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hTQOe （or） http://www.linkbucks.com/AOvvb
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hTQVa （or） http://www.linkbucks.com/AOvvA
+<br>【百度密碼】：26ng
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
