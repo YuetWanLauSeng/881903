@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hXKU2 （or） http://www.linkbucks.com/AO0iP
 <br>【百度密碼】：53ck
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hXpES （or） http://www.linkbucks.com/APKJY
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hXVGN （or） http://www.linkbucks.com/AOz6X
 <br>【百度密碼】：v5p8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hXpG6 （or） http://www.linkbucks.com/APKJM
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hXYMv （or） http://www.linkbucks.com/APLUG
 <br>【百度密碼】：j2e4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hXpJ4 （or） http://www.linkbucks.com/APKHB
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hXp4t （or） http://www.linkbucks.com/APKKC
+<br>【百度密碼】：9dje
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -236,8 +236,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-01-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hXp8p （or） http://www.linkbucks.com/APKJm
+<br>【百度密碼】：4hna
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -247,8 +247,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hXp1B （or） http://www.linkbucks.com/APKKP
+<br>【百度密碼】：q8cw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
