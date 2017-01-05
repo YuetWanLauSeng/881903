@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hXKZF （or） http://www.linkbucks.com/AO0iM
 <br>【百度密碼】：ndtn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hXVLU （or） http://www.linkbucks.com/AOz54
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-01-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hXVGN （or） http://www.linkbucks.com/AOz6X
+<br>【百度密碼】：v5p8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-01-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hXVB4 （or） http://www.linkbucks.com/AOz6f
+<br>【百度密碼】：6ahc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hXYMv （or） http://www.linkbucks.com/APLUG
+<br>【百度密碼】：j2e4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
