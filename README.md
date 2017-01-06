@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-01-06
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：晚上發布
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：在晴朗的一天出發
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hZhW7 （or） http://www.linkbucks.com/APBoV
 <br>【百度密碼】：kgdb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hZu4P （or） http://www.linkbucks.com/APP77
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -28,7 +28,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-01-06
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：晚上發布
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：在晴朗的一天出發
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hZi1c （or） http://www.linkbucks.com/APBiA
 <br>【百度密碼】：ssnk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hZu7k （or） http://www.linkbucks.com/APP7v
 
 <br>【節目名稱】：娛樂大哥
 <br>【節目頻道】：881
@@ -49,9 +49,9 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Master in Entertaining.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hZuJH （or） http://www.linkbucks.com/APP6H
+<br>【百度密碼】：tqfa
+<br>【MediaFire】：http://adf.ly/1hZu2d （or） http://www.linkbucks.com/APP8U
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hZhtQ （or） http://www.linkbucks.com/APBmf
 <br>【百度密碼】：m7j3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hZuD1 （or） http://www.linkbucks.com/APP7N
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -72,7 +72,7 @@
 <br>【檔案名稱】：Circles.2017-01-06
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：晚上發布
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hZhwk （or） http://www.linkbucks.com/APBlR
 <br>【百度密碼】：hmc7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hZuA9 （or） http://www.linkbucks.com/APP7j
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -94,7 +94,7 @@
 <br>【檔案名稱】：903 Music.2017-01-06
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：晚上發布
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -105,7 +105,7 @@
 <br>【檔案名稱】：Lunch Special.2017-01-06
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：晚上發布
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -116,7 +116,7 @@
 <br>【檔案名稱】：Crosstrade.2017-01-06
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：晚上發布
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
@@ -127,7 +127,7 @@
 <br>【檔案名稱】：You Are The Best.2017-01-06
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：晚上發布
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
@@ -293,4 +293,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or）
+<br>【MediaFire】： （or） 
