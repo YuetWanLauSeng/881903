@@ -115,9 +115,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：晚上發布
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1ha2qd （or） http://www.linkbucks.com/APPEk
+<br>【百度密碼】：mkyg
+<br>【MediaFire】：http://adf.ly/1ha2ts （or） http://www.linkbucks.com/APPEU
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -293,4 +293,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】： （or）
