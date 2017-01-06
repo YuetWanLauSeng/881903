@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hai0c （or） http://www.linkbucks.com/APLZf
 <br>【百度密碼】：k7c9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hbJYB （or） 
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hai8D （or） http://www.linkbucks.com/APLYu
 <br>【百度密碼】：f5cu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1haw0c （or） 
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1haiI7 （or） http://www.linkbucks.com/APLYa
 <br>【百度密碼】：5g2i
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hbJdg （or） 
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hai5P （or） http://www.linkbucks.com/APLZH
 <br>【百度密碼】：xp1c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hbJg9 （or） 
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hahwK （or） http://www.linkbucks.com/APLZv
 <br>【百度密碼】：hach
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hbJJf （or） http://www.linkbucks.com/APAvL
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hahrm （or） http://www.linkbucks.com/APLaZ
 <br>【百度密碼】：cbts
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hbH0d （or） http://www.linkbucks.com/APBDH
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hbJop （or） 
+<br>【百度密碼】：k8n6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1havuy （or） http://www.linkbucks.com/APCds
 <br>【百度密碼】：hs9v
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hbJao （or） 
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1havrl （or） http://www.linkbucks.com/APCd8
 <br>【百度密碼】：6iaj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hbJQ0 （or） 
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hawH2 （or） http://www.linkbucks.com/APCdI
 <br>【百度密碼】：za8n
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hbJVZ （or） 
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -247,8 +247,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hbJkT （or） 
+<br>【百度密碼】：rmiw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
