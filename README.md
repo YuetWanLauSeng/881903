@@ -5,8 +5,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：晚上發布
+<br>【百度雲盤】：http://adf.ly/1hai0c （or） http://www.linkbucks.com/APLZf
+<br>【百度密碼】：k7c9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：在晴朗的一天出發
@@ -27,8 +27,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：晚上發布
+<br>【百度雲盤】：http://adf.ly/1hai8D （or） http://www.linkbucks.com/APLYu
+<br>【百度密碼】：f5cu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：在晴朗的一天出發
@@ -71,8 +71,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：晚上發布
+<br>【百度雲盤】：http://adf.ly/1haiCy （or） http://www.linkbucks.com/APLYm
+<br>【百度密碼】：d8tk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -93,8 +93,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：晚上發布
+<br>【百度雲盤】：http://adf.ly/1haiI7 （or） http://www.linkbucks.com/APLYa
+<br>【百度密碼】：5g2i
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：晚上發布
+<br>【百度雲盤】：http://adf.ly/1hai5P （or） http://www.linkbucks.com/APLZH
+<br>【百度密碼】：xp1c
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：晚上發布
+<br>【百度雲盤】：http://adf.ly/1hahwK （or） http://www.linkbucks.com/APLZv
+<br>【百度密碼】：hach
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hahrm （or） http://www.linkbucks.com/APLaZ
+<br>【百度密碼】：cbts
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
