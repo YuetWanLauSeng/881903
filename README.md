@@ -79,8 +79,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hdBcE （or） http://www.linkbucks.com/APGst
+<br>【百度密碼】：rxch
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：中風危機解密
@@ -90,8 +90,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2016-10-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hdBfY （or） http://www.linkbucks.com/APGsg
+<br>【百度密碼】：xki3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：電影圈
@@ -101,8 +101,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hdBYE （or） http://www.linkbucks.com/APGyb
+<br>【百度密碼】：hecf
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：咪芝蓮
@@ -112,8 +112,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hdBUo （or） http://www.linkbucks.com/APG0T
+<br>【百度密碼】：gknz
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：咆哮山莊
