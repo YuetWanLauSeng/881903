@@ -123,9 +123,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1heKix （or） http://www.linkbucks.com/APKp9
+<br>【百度密碼】：cxrc
+<br>【MediaFire】：http://adf.ly/1heKZA （or） http://www.linkbucks.com/APKzf
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -142,8 +142,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1heKmE （or） http://www.linkbucks.com/APKp6
+<br>【百度密碼】：571n
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
@@ -172,8 +172,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1heLtu （or） http://www.linkbucks.com/APKro
+<br>【百度密碼】：pqp4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：第三齡接觸
