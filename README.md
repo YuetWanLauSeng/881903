@@ -144,7 +144,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1heKmE （or） http://www.linkbucks.com/APKp6
 <br>【百度密碼】：571n
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hekMi （or） http://www.linkbucks.com/AK3a1
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -161,9 +161,9 @@
 <br>【節目時間】：14:00 - 18:00
 <br>【檔案名稱】：2016年度叱咤樂壇流行榜頒獎典禮 (錄音轉播).2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hek45 （or） http://www.linkbucks.com/AK3bj
+<br>【百度密碼】：sed6
+<br>【MediaFire】：http://adf.ly/1hekJl （or） http://www.linkbucks.com/AK3a5
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -174,7 +174,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1heLtu （or） http://www.linkbucks.com/APKro
 <br>【百度密碼】：pqp4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hekP5 （or） http://www.linkbucks.com/AK3aw
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -183,8 +183,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hejqB （or） http://www.linkbucks.com/AK3b4
+<br>【百度密碼】：fmex
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -194,8 +194,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hejmE （or） http://www.linkbucks.com/AK3b9
+<br>【百度密碼】：eivq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
@@ -205,8 +205,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hejzl （or） http://www.linkbucks.com/AK3bo
+<br>【百度密碼】：ugrd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -216,8 +216,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hejuz （or） http://www.linkbucks.com/AK3by
+<br>【百度密碼】：yd57
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
