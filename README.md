@@ -93,8 +93,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-01-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hha1A （or） http://www.linkbucks.com/APDX9
+<br>【百度密碼】：h8qh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
@@ -104,8 +104,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-01-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hhZwh （or） http://www.linkbucks.com/APBvV
+<br>【百度密碼】：158g
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
