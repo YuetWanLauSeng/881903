@@ -185,7 +185,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hejqB （or） http://www.linkbucks.com/AK3b4
 <br>【百度密碼】：fmex
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgF68 （or） http://www.linkbucks.com/ABeec
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -196,7 +196,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hejmE （or） http://www.linkbucks.com/AK3b9
 <br>【百度密碼】：eivq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgF3E （or） http://www.linkbucks.com/AGqGI
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -218,7 +218,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hejuz （or） http://www.linkbucks.com/AK3by
 <br>【百度密碼】：yd57
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgF52 （or） http://www.linkbucks.com/ABfJv
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -227,8 +227,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hgFb6 （or） http://www.linkbucks.com/AEdbL
+<br>【百度密碼】：eu5q
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -238,8 +238,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-01-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hgFdU （or） http://www.linkbucks.com/9k7J
+<br>【百度密碼】：d9q8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
