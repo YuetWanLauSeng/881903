@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hgZPR （or） http://www.linkbucks.com/B8qX
 <br>【百度密碼】：mywc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgtAp （or） http://www.linkbucks.com/APMwe
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hgZLL （or） http://www.linkbucks.com/CAxS
 <br>【百度密碼】：enmc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgtG5 （or） http://www.linkbucks.com/APMwV
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hgZSG （or） http://www.linkbucks.com/B4P3
 <br>【百度密碼】：vpw8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgtN4 （or） http://www.linkbucks.com/APMwD
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hgZIp （or） http://www.linkbucks.com/CPES
 <br>【百度密碼】：bhny
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgt7V （or） http://www.linkbucks.com/APMwj
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hgZNW （or） http://www.linkbucks.com/B8wO
 <br>【百度密碼】：4w47
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgtJH （or） http://www.linkbucks.com/APMwP
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hgZUf （or） http://www.linkbucks.com/HM6M
 <br>【百度密碼】：g8ds
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgtPS （or） http://www.linkbucks.com/APMvt
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hgZFO （or） http://www.linkbucks.com/CYSU
 <br>【百度密碼】：4sj3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hgtDQ （or） http://www.linkbucks.com/APMwa
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -82,8 +82,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-01-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hgslS （or） http://www.linkbucks.com/APMxf
+<br>【百度密碼】：pccg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：兒童適宜
