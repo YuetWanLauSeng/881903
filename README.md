@@ -214,9 +214,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hlTkh （or） http://www.linkbucks.com/APUfB
+<br>【百度密碼】：dy8n
+<br>【MediaFire】：http://adf.ly/1hlVR5 （or） http://www.linkbucks.com/APUQT
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hlTiK （or） http://www.linkbucks.com/APUg3
+<br>【百度密碼】：ptps
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -236,8 +236,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-01-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hlTnt （or） http://www.linkbucks.com/APUeu
+<br>【百度密碼】：3sum
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hlTeZ （or） http://www.linkbucks.com/APUhJ
+<br>【百度密碼】：uedh
+<br>【MediaFire】：http://adf.ly/1hlVOb （or） http://www.linkbucks.com/APUQk
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
