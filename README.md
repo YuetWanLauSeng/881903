@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hi89Y （or） http://www.linkbucks.com/AO5XJ
 <br>【百度密碼】：r3h1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hjWks （or） http://www.linkbucks.com/APBsK
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hi87n （or） http://www.linkbucks.com/AO5XR
 <br>【百度密碼】：qb7k
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hjWz7 （or） http://www.linkbucks.com/APBq3
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hi83l （or） http://www.linkbucks.com/AO5Xd
 <br>【百度密碼】：khbr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hjWvs （or） http://www.linkbucks.com/APBrL
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hi7zO （or） http://www.linkbucks.com/AO5Xg
 <br>【百度密碼】：pvrk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hjWoH （or） http://www.linkbucks.com/APBr2
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hi7ql （or） http://www.linkbucks.com/AO5Xs
 <br>【百度密碼】：mj7v
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1hjXH1 （or） http://www.linkbucks.com/APBna
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
@@ -203,8 +203,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-01-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hjWUL （or） http://www.linkbucks.com/APBw3
+<br>【百度密碼】：jbi2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：心靈料理
@@ -214,9 +214,9 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-01-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hjWZx （or） http://www.linkbucks.com/APBwO
+<br>【百度密碼】：3pbb
+<br>【MediaFire】：http://adf.ly/1hjX4Q （or） http://www.linkbucks.com/APBqZ
 
 <br>【節目名稱】：寫生活
 <br>【節目頻道】：881
@@ -225,9 +225,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-01-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hjWfn （or） http://www.linkbucks.com/APBvp
+<br>【百度密碼】：8hiw
+<br>【MediaFire】：http://adf.ly/1hjWtm （or） http://www.linkbucks.com/APBrf
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -236,6 +236,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-01-08
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hjWcl （or） http://www.linkbucks.com/APBv1
+<br>【百度密碼】：dmm5
 <br>【MediaFire】： （or）
