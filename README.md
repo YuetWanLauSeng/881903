@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hnQbZ （or） http://www.linkbucks.com/APbS5
 <br>【百度密碼】：mxbm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ho76Y （or） http://www.linkbucks.com/APmZi
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hnOAm （or） http://www.linkbucks.com/APbmn
 <br>【百度密碼】：bbf2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ho7DJ （or） http://www.linkbucks.com/APmYq
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hnNvK （or） http://www.linkbucks.com/APbna
 <br>【百度密碼】：3re1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ho6qc （or） http://www.linkbucks.com/APma6
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hnknQ （or） http://www.linkbucks.com/APoid
 <br>【百度密碼】：5cu9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ho7Aj （or） http://www.linkbucks.com/APmZU
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ho1X1 （or） http://www.linkbucks.com/APnBM
 <br>【百度密碼】：bbnq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ho72e （or） http://www.linkbucks.com/APmZ3
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ho1aN （or） http://www.linkbucks.com/APnBD
 <br>【百度密碼】：i6vb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ho6zL （or） http://www.linkbucks.com/APmaF
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ho7If （or） http://www.linkbucks.com/APmX7
+<br>【百度密碼】：qr74
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
