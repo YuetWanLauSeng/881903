@@ -189,8 +189,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-01-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hsC1C （or） http://www.linkbucks.com/APXEJ
+<br>【百度密碼】：pa9b
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -216,8 +216,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hsBvi （or） http://www.linkbucks.com/APXEQ
+<br>【百度密碼】：qnae
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -235,8 +235,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-11
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hsBse （or） http://www.linkbucks.com/APXEX
+<br>【百度密碼】：mnht
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
