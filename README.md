@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq1AJ （or） http://www.linkbucks.com/APSyB
+<br>【百度密碼】：gspm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq16j （or） http://www.linkbucks.com/APSyH
+<br>【百度密碼】：jhab
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq0vE （or） http://www.linkbucks.com/APSyb
+<br>【百度密碼】：ua9a
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -244,8 +244,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq1EI （or） http://www.linkbucks.com/APSxu
+<br>【百度密碼】：5xby
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -255,8 +255,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq0ym （or） http://www.linkbucks.com/APSyV
+<br>【百度密碼】：zztx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -266,8 +266,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq12r （or） http://www.linkbucks.com/APSyL
+<br>【百度密碼】：9jyk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -277,8 +277,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq1I7 （or） http://www.linkbucks.com/APSxi
+<br>【百度密碼】：rafs
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -288,8 +288,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq1Md （or） http://www.linkbucks.com/APSxX
+<br>【百度密碼】：g6st
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -299,6 +299,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-01-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1hq1Yp （or） http://www.linkbucks.com/APSw5
+<br>【百度密碼】：44xf
 <br>【MediaFire】： （or）
