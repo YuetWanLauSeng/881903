@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1huK9T （or） http://www.linkbucks.com/APekE
 <br>【百度密碼】：4gfb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1huTh9 （or） http://www.linkbucks.com/APeRZ
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1huJwu （or） http://www.linkbucks.com/APekY
 <br>【百度密碼】：nipp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1huUC7 （or） http://www.linkbucks.com/APeQQ
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1huK2o （or） http://www.linkbucks.com/APekH
 <br>【百度密碼】：q6mn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1huU3B （or） http://www.linkbucks.com/APeQ1
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1huJr0 （or） http://www.linkbucks.com/APeke
 <br>【百度密碼】：mtf7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1huUET （or） http://www.linkbucks.com/APeQO
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -137,9 +137,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-01-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1huUv1 （or） http://www.linkbucks.com/APeON
+<br>【百度密碼】：acyp
+<br>【MediaFire】：http://adf.ly/1hucn0 （or） http://www.linkbucks.com/APd80
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -148,9 +148,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-01-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1hucpc （or） http://www.linkbucks.com/APd8t
+<br>【百度密碼】：j8tr
+<br>【MediaFire】：http://adf.ly/1hucgi （or） http://www.linkbucks.com/APd81
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,9 +159,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-01-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1huctL （or） http://www.linkbucks.com/APd8o
+<br>【百度密碼】：ujv3
+<br>【MediaFire】：http://adf.ly/1hucb9 （or） http://www.linkbucks.com/APd9H
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
