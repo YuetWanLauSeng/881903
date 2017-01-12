@@ -170,9 +170,9 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1humN0 （or） http://www.linkbucks.com/APdqm
+<br>【百度密碼】：y9e7
+<br>【MediaFire】：http://adf.ly/1hunH7 （or） http://www.linkbucks.com/APdoS
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
