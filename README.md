@@ -82,8 +82,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i09gk （or） http://www.linkbucks.com/gqn2
+<br>【百度密碼】：y9mp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：叱咤樂壇
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hy9qh （or） http://www.linkbucks.com/APpcH
 <br>【百度密碼】：gytk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i07pe （or） http://www.linkbucks.com/pfKb
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hyAcX （or） http://www.linkbucks.com/APpY9
 <br>【百度密碼】：b5n9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i08CY （or） http://www.linkbucks.com/o0qb
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hyAVp （or） http://www.linkbucks.com/APpZE
 <br>【百度密碼】：d1gz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i088f （or） http://www.linkbucks.com/o0rc
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hyAjz （or） http://www.linkbucks.com/APpYm
 <br>【百度密碼】：s3td
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i085G （or） http://www.linkbucks.com/o0vX
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hyEO4 （or） http://www.linkbucks.com/APpTO
 <br>【百度密碼】：1dnk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i080t （or） http://www.linkbucks.com/o5lk
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1hyFjs （or） http://www.linkbucks.com/APpQK
 <br>【百度密碼】：7fsm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i07vu （or） http://www.linkbucks.com/pVLc
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i07IB （or） http://www.linkbucks.com/qvqh
+<br>【百度密碼】：y3cn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i06T3 （or） http://www.linkbucks.com/re3d
+<br>【百度密碼】：cgcc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i075h （or） http://www.linkbucks.com/q17z
+<br>【百度密碼】：2v38
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i07Bz （or） http://www.linkbucks.com/qyeW
+<br>【百度密碼】：2mm8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i06mp （or） http://www.linkbucks.com/rHtA
+<br>【百度密碼】：hhbb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i06sE （or） http://www.linkbucks.com/rCsC
+<br>【百度密碼】：w41x
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i06az （or） http://www.linkbucks.com/rbXZ
+<br>【百度密碼】：5cak
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -236,8 +236,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i070Y （or） http://www.linkbucks.com/q7ow
+<br>【百度密碼】：7y39
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1i07gk （or） http://www.linkbucks.com/qSRX
+<br>【百度密碼】：7duc
+<br>【MediaFire】：http://adf.ly/1i09px （or） http://www.linkbucks.com/mH6R
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
