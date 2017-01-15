@@ -160,7 +160,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i4ADG （or） http://www.linkbucks.com/AP8DZ
 <br>【百度密碼】：cbq9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i4Lxu （or） http://www.linkbucks.com/AP7Tx
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -171,7 +171,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i4AAq （or） http://www.linkbucks.com/AP8Dw
 <br>【百度密碼】：bacm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i6L2K （or） http://www.linkbucks.com/APt5h
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -180,9 +180,9 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-01-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1i4Lqg （or） http://www.linkbucks.com/AP7UK
+<br>【百度密碼】：guyb
+<br>【MediaFire】：http://adf.ly/1i6Kt7 （or） http://www.linkbucks.com/APt61
 
 <br>【節目名稱】：Chi Chung's Class
 <br>【節目頻道】：903
@@ -191,9 +191,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-01-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1i4Ljs （or） http://www.linkbucks.com/AP7US
+<br>【百度密碼】：vrpd
+<br>【MediaFire】：http://adf.ly/1i6Kxw （or） http://www.linkbucks.com/APt6F
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -202,8 +202,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-01-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i6KpT （or） http://www.linkbucks.com/APt7X
+<br>【百度密碼】：6ihf
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -213,8 +213,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-01-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i6Kfk （or） http://www.linkbucks.com/APt9j
+<br>【百度密碼】：68ye
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
@@ -224,8 +224,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-01-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i6Klc （or） http://www.linkbucks.com/APt7r
+<br>【百度密碼】：v18a
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：皇牌出場
@@ -235,9 +235,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-01-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1i6Kid （or） http://www.linkbucks.com/APt83
+<br>【百度密碼】：sswh
+<br>【MediaFire】：http://adf.ly/1i6KwD （or） http://www.linkbucks.com/APt6d
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -246,6 +246,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-01-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i6KrW （or） http://www.linkbucks.com/APt7F
+<br>【百度密碼】：xzg6
 <br>【MediaFire】： （or）
