@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i7ZSZ （or） http://www.linkbucks.com/AQFaO
 <br>【百度密碼】：ga9s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7lKs （or） http://www.linkbucks.com/AP9vh
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i7ZO8 （or） http://www.linkbucks.com/AQFcy
 <br>【百度密碼】：tysh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7lGf （or） http://www.linkbucks.com/AP9yV
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -192,9 +192,9 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1i7lTJ （or） http://www.linkbucks.com/AP9rX
+<br>【百度密碼】：xyzc
+<br>【MediaFire】：http://adf.ly/1i7lCo （or） http://www.linkbucks.com/AP91N
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
