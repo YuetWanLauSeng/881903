@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i6xUU （or） http://www.linkbucks.com/AP1Q3
+<br>【百度密碼】：92ss
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：兒童適宜
@@ -126,8 +126,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i6xOt （or） http://www.linkbucks.com/AP1Rk
+<br>【百度密碼】：iu74
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
