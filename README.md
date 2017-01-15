@@ -203,9 +203,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1i81p8 （or） http://www.linkbucks.com/AP7fb
+<br>【百度密碼】：asvq
+<br>【MediaFire】：http://adf.ly/1i82M1 （or） http://www.linkbucks.com/AP7cQ
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -214,9 +214,9 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1i826k （or） http://www.linkbucks.com/AP7di
+<br>【百度密碼】：pu5k
+<br>【MediaFire】：http://adf.ly/1i82NS （or） http://www.linkbucks.com/AP7cD
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -225,9 +225,9 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1i81Zf （or） http://www.linkbucks.com/AP7gB
+<br>【百度密碼】：rpf5
+<br>【MediaFire】：http://adf.ly/1i82Ss （or） http://www.linkbucks.com/AP7bh
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
