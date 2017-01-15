@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jgF （or） http://www.linkbucks.com/AP2xN
 <br>【百度密碼】：dc5h
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7Rue （or） http://www.linkbucks.com/APxpo
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jZB （or） http://www.linkbucks.com/AP20s
 <br>【百度密碼】：i9d1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7R5B （or） http://www.linkbucks.com/APxy5
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jnR （or） http://www.linkbucks.com/AP2uh
 <br>【百度密碼】：3jyf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7RRT （or） http://www.linkbucks.com/APxs0
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jIA （or） http://www.linkbucks.com/AP3Hd
 <br>【百度密碼】：ci1f
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7RDg （or） http://www.linkbucks.com/APxvV
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jcx （or） http://www.linkbucks.com/AP2y2
 <br>【百度密碼】：t7gb
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7RzC （or） http://www.linkbucks.com/APxov
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jNd （or） http://www.linkbucks.com/AP3C7
 <br>【百度密碼】：ftce
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7Rw5 （or） http://www.linkbucks.com/APxo9
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jSH （or） http://www.linkbucks.com/AP3AF
 <br>【百度密碼】：e1hq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7RqV （or） http://www.linkbucks.com/APxq3
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jUz （or） http://www.linkbucks.com/AP264
 <br>【百度密碼】：3y56
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7S7E （or） http://www.linkbucks.com/APxoI
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6jjh （or） http://www.linkbucks.com/AP2u3
 <br>【百度密碼】：iq7p
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7S2k （or） http://www.linkbucks.com/APxoc
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6oCn （or） http://www.linkbucks.com/AP2VA
 <br>【百度密碼】：kfwt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7RIQ （or） http://www.linkbucks.com/APxvC
 
 <br>【節目名稱】：1圈圈 (周末版)
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6xUU （or） http://www.linkbucks.com/AP1Q3
 <br>【百度密碼】：92ss
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7R9c （or） http://www.linkbucks.com/APxyQ
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i6xOt （or） http://www.linkbucks.com/AP1Rk
 <br>【百度密碼】：iu74
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7RNx （or） http://www.linkbucks.com/APxud
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -137,8 +137,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i7SJj （or） http://www.linkbucks.com/APxjc
+<br>【百度密碼】：t5zp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -148,8 +148,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i7SFB （or） http://www.linkbucks.com/APxjs
+<br>【百度密碼】：ftx8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
@@ -159,8 +159,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i7SAy （or） http://www.linkbucks.com/APxkJ
+<br>【百度密碼】：yp8a
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
