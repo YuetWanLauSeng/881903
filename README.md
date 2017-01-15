@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i7SJj （or） http://www.linkbucks.com/APxjc
 <br>【百度密碼】：t5zp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7ZcT （or） http://www.linkbucks.com/AQFUL
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i7SFB （or） http://www.linkbucks.com/APxjs
 <br>【百度密碼】：ftx8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7Zht （or） http://www.linkbucks.com/AQFMa
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1i7SAy （or） http://www.linkbucks.com/APxkJ
 <br>【百度密碼】：yp8a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1i7Zeg （or） http://www.linkbucks.com/AQFOZ
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i7ZSZ （or） http://www.linkbucks.com/AQFaO
+<br>【百度密碼】：ga9s
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -181,8 +181,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-01-15
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1i7ZO8 （or） http://www.linkbucks.com/AQFcy
+<br>【百度密碼】：tysh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
