@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-01-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iARoR （or） http://www.linkbucks.com/AQP68
+<br>【百度密碼】：denk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-01-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iASB1 （or） http://www.linkbucks.com/AQP1k
+<br>【百度密碼】：uy7u
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-01-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iAS6i （or） http://www.linkbucks.com/AQP2U
+<br>【百度密碼】：mhc2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
