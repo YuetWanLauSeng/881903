@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iARoR （or） http://www.linkbucks.com/AQP68
 <br>【百度密碼】：denk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iAyci （or） http://www.linkbucks.com/AQIGi
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iASB1 （or） http://www.linkbucks.com/AQP1k
 <br>【百度密碼】：uy7u
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iAya1 （or） http://www.linkbucks.com/AQIGt
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iAS6i （or） http://www.linkbucks.com/AQP2U
 <br>【百度密碼】：mhc2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iAyWH （or） http://www.linkbucks.com/AQIHS
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iAgZv （or） http://www.linkbucks.com/AQMDg
 <br>【百度密碼】：4a9q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iAyfN （or） http://www.linkbucks.com/AQIGM
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
