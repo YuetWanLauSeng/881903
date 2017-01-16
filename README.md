@@ -93,9 +93,9 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-01-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1iA9Zi （or） http://www.linkbucks.com/Akf9Z
+<br>【百度密碼】：h8ja
+<br>【MediaFire】：http://adf.ly/1iA9sy （or） http://www.linkbucks.com/Akf8s
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -104,9 +104,9 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-01-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1iA9oI （or） http://www.linkbucks.com/Akf87
+<br>【百度密碼】：h32i
+<br>【MediaFire】：http://adf.ly/1iAA0o （or） http://www.linkbucks.com/Akf8X
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -115,9 +115,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-01-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1iA9kq （or） http://www.linkbucks.com/Akf9J
+<br>【百度密碼】：mfgq
+<br>【MediaFire】：http://adf.ly/1iA9xT （or） http://www.linkbucks.com/Akf8g
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
