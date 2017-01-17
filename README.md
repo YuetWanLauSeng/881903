@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iET0I （or） http://www.linkbucks.com/AQX5y
 <br>【百度密碼】：zg5c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iEdfE （or） http://www.linkbucks.com/AC2UF
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iET4o （or） http://www.linkbucks.com/AQX5h
 <br>【百度密碼】：rmcj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iEdZZ （or） http://www.linkbucks.com/ADMyU
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iESw2 （or） http://www.linkbucks.com/AQX6R
 <br>【百度密碼】：ukr8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iEdkQ （or） http://www.linkbucks.com/ACbGB
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -214,9 +214,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1iEdT6 （or） http://www.linkbucks.com/ADZsR
+<br>【百度密碼】：svfi
+<br>【MediaFire】：http://adf.ly/1iEeht （or） http://www.linkbucks.com/9nkj
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
