@@ -137,9 +137,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-01-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1iDvjT （or） http://www.linkbucks.com/1eBP
+<br>【百度密碼】：s4i4
+<br>【MediaFire】：http://adf.ly/1iDvcI （or） http://www.linkbucks.com/1eBn
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -148,9 +148,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-01-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1iDvo9 （or） http://www.linkbucks.com/1eBB
+<br>【百度密碼】：saae
+<br>【MediaFire】：http://adf.ly/1iDvff （or） http://www.linkbucks.com/1eBb
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
