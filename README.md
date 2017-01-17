@@ -244,8 +244,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-01-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iEwfP （or） http://www.linkbucks.com/QfYo
+<br>【百度密碼】：khry
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -255,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1iEwZp （or） http://www.linkbucks.com/QiD9
+<br>【百度密碼】：qdwt
+<br>【MediaFire】：http://adf.ly/1iF0Ib （or） http://www.linkbucks.com/C6SI
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
