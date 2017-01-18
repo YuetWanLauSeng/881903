@@ -213,8 +213,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iIY21 （or） http://www.linkbucks.com/AQ6Ld
+<br>【百度密碼】：fai6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -232,8 +232,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iIXvn （or） http://www.linkbucks.com/AQ6Ly
+<br>【百度密碼】：rytv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
