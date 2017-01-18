@@ -301,4 +301,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iGBwH （or） http://www.linkbucks.com/gftr
 <br>【百度密碼】：pptn
-<br>【MediaFire】： （or）
+<br>【MediaFire】：http://adf.ly/1iGIXR （or） http://www.linkbucks.com/CAfR8
