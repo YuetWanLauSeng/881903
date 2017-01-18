@@ -136,7 +136,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iHSYD （or） http://www.linkbucks.com/AQ1ku
 <br>【百度密碼】：wgbp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iHetQ （or） http://www.linkbucks.com/AQzRE
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -147,7 +147,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iHSTp （or） http://www.linkbucks.com/AQ1lF
 <br>【百度密碼】：9q56
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iHepk （or） http://www.linkbucks.com/AQzRU
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -158,7 +158,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iHY4u （or） http://www.linkbucks.com/AQ0dq
 <br>【百度密碼】：hx6c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iHevg （or） http://www.linkbucks.com/AQzQn
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -167,8 +167,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iHemi （or） http://www.linkbucks.com/AQzRs
+<br>【百度密碼】：11xd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
