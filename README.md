@@ -244,8 +244,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iM9xC （or） http://www.linkbucks.com/AQ1bj
+<br>【百度密碼】：sdrk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -255,8 +255,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iMA1C （or） http://www.linkbucks.com/AQ1bG
+<br>【百度密碼】：2js6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
