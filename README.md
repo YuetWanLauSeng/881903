@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iKxch （or） http://www.linkbucks.com/vp7b
 <br>【百度密碼】：623h
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iLyOb （or） http://www.linkbucks.com/AQ3Cu
 
 <br>【節目名稱】：行政長官施政答問
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iKxXF （or） http://www.linkbucks.com/vp7p
 <br>【百度密碼】：mxc2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iLyDJ （or） http://www.linkbucks.com/AQ3D3
 
 <br>【節目名稱】：田式生活
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iKxtT （or） http://www.linkbucks.com/vpfh
 <br>【百度密碼】：sbsx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iLy8Y （or） http://www.linkbucks.com/AQ3Ea
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iKyEY （or） http://www.linkbucks.com/vhlp
 <br>【百度密碼】：bwsm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iLygM （or） http://www.linkbucks.com/AQ3B0
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iLFLh （or） http://www.linkbucks.com/Szcd
 <br>【百度密碼】：vb52
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iLyMW （or） http://www.linkbucks.com/AQ3DE
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iLFOf （or） http://www.linkbucks.com/Sx0a
 <br>【百度密碼】：q8h3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iLyHf （or） http://www.linkbucks.com/AQ3DZ
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iLJNO （or） http://www.linkbucks.com/DPaz
 <br>【百度密碼】：nc4u
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iLyVq （or） http://www.linkbucks.com/AQ3Cd
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
