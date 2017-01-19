@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iKxnm （or） http://www.linkbucks.com/vpio
 <br>【百度密碼】：kzng
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：因版權原因無法提供
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iM5oA （or） http://www.linkbucks.com/AQ18l
+<br>【百度密碼】：psge
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -192,8 +192,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iM595 （or） http://www.linkbucks.com/AQ2C5
+<br>【百度密碼】：jbnh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -211,8 +211,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：FUN E.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iM5Ji （or） http://www.linkbucks.com/AQ2B9
+<br>【百度密碼】：ut8m
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -222,8 +222,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iM5Tv （or） http://www.linkbucks.com/AQ2Ax
+<br>【百度密碼】：hjmn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -233,8 +233,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iM4vJ （or） http://www.linkbucks.com/AQ2Dg
+<br>【百度密碼】：vb8j
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
