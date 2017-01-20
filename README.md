@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iKx94 （or） http://www.linkbucks.com/wVjN
 <br>【百度密碼】：5scf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNY2R （or） http://www.linkbucks.com/ARFxj
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iKvb3 （or） http://www.linkbucks.com/zRk8
 <br>【百度密碼】：9dqt
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNYFS （or） http://www.linkbucks.com/ARFvv
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iKy7G （or） http://www.linkbucks.com/vol7
 <br>【百度密碼】：rsc4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNY03 （or） http://www.linkbucks.com/ARFxz
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iL4zC （or） http://www.linkbucks.com/ibkX
 <br>【百度密碼】：ggz6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNYSm （or） http://www.linkbucks.com/ARFta
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iL55a （or） http://www.linkbucks.com/fvqq
 <br>【百度密碼】：vecv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNZ0e （or） http://www.linkbucks.com/ARFpk
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iL525 （or） http://www.linkbucks.com/iOC5
 <br>【百度密碼】：kfk2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNYAP （or） http://www.linkbucks.com/ARFwL
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iL8Or （or） http://www.linkbucks.com/YJZS
 <br>【百度密碼】：m6xq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNXqF （or） http://www.linkbucks.com/ARFzK
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iM5oA （or） http://www.linkbucks.com/AQ18l
 <br>【百度密碼】：psge
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNYJe （or） http://www.linkbucks.com/ARFvQ
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iM595 （or） http://www.linkbucks.com/AQ2C5
 <br>【百度密碼】：jbnh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNXvo （or） http://www.linkbucks.com/ARFym
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -213,7 +213,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iM5Ji （or） http://www.linkbucks.com/AQ2B9
 <br>【百度密碼】：ut8m
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNYO4 （or） http://www.linkbucks.com/ARFtx
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -246,7 +246,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iM9xC （or） http://www.linkbucks.com/AQ1bj
 <br>【百度密碼】：sdrk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNY5j （or） http://www.linkbucks.com/ARFwR
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -257,7 +257,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iMA1C （or） http://www.linkbucks.com/AQ1bG
 <br>【百度密碼】：2js6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iNZ6T （or） http://www.linkbucks.com/ARFpM
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -277,9 +277,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1iNXF3 （or） http://www.linkbucks.com/ARF2e
+<br>【百度密碼】：3krv
+<br>【MediaFire】：http://adf.ly/1iNXm6 （or） http://www.linkbucks.com/ARFz7
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -288,8 +288,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iNXQ9 （or） http://www.linkbucks.com/ARF2K
+<br>【百度密碼】：mmhf
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -298,10 +298,7 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-01-19
-<br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【節目暫停】：改播『雲妮鍾情』
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -310,6 +307,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-01-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iNXa0 （or） http://www.linkbucks.com/ARF1V
+<br>【百度密碼】：p9v4
 <br>【MediaFire】： （or）
