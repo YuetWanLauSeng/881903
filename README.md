@@ -104,8 +104,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iWhaA （or） http://www.linkbucks.com/ARylP
+<br>【百度密碼】：1iji
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -115,8 +115,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iWhjV （or） http://www.linkbucks.com/ARyib
+<br>【百度密碼】：nfzq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
@@ -126,8 +126,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iWhfd （or） http://www.linkbucks.com/ARyjW
+<br>【百度密碼】：7b4c
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
