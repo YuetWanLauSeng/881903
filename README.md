@@ -5,8 +5,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：Reading Time.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1iVVvB （or） http://www.linkbucks.com/ARnls
-<br>【百度密碼】：d93d
+<br>【百度雲盤】：http://adf.ly/1iVblh （or） http://www.linkbucks.com/ARkrl
+<br>【百度密碼】：5kxk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一周紅人館
@@ -16,8 +16,8 @@
 <br>【節目時間】：06:00 - 09:00
 <br>【檔案名稱】：Star House.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1iVXo4 （or） http://www.linkbucks.com/ARmzH
-<br>【百度密碼】：pdbg
+<br>【百度雲盤】：http://adf.ly/1iVbfR （or） http://www.linkbucks.com/ARk0D
+<br>【百度密碼】：1xjm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：政好星期天
@@ -27,8 +27,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Beautiful Sunday.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1iVVQt （or） http://www.linkbucks.com/ARnz0
-<br>【百度密碼】：imtw
+<br>【百度雲盤】：http://adf.ly/1iVbq0 （or） http://www.linkbucks.com/ARko4
+<br>【百度密碼】：iz1s
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Urban Touch
@@ -38,8 +38,8 @@
 <br>【節目時間】：09:00 - 11:00
 <br>【檔案名稱】：Urban Touch.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1iVZGr （or） http://www.linkbucks.com/ARmQT
-<br>【百度密碼】：bwka
+<br>【百度雲盤】：http://adf.ly/1iVbYC （or） http://www.linkbucks.com/ARk2D
+<br>【百度密碼】：bfm1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：馬路的事我哋的事
@@ -49,8 +49,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Road Co-op.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1iVVyh （or） http://www.linkbucks.com/ARnki
-<br>【百度密碼】：ph4p
+<br>【百度雲盤】：http://adf.ly/1iVbhn （or） http://www.linkbucks.com/ARkt8
+<br>【百度密碼】：3ttx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：同途有心人
