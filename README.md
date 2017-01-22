@@ -60,8 +60,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：The Way We Are.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iVdf4 （or） http://www.linkbucks.com/ARjkz
+<br>【百度密碼】：guu6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀賣Sunday
@@ -71,8 +71,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2017-01-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iVeV8 （or） http://www.linkbucks.com/ARi6I
+<br>【百度密碼】：cg7a
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：無定向喪煲病狂
