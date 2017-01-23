@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iVblh （or） http://www.linkbucks.com/ARkrl
 <br>【百度密碼】：5kxk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iYUOH （or） http://www.linkbucks.com/ARpvk
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iVbfR （or） http://www.linkbucks.com/ARk0D
 <br>【百度密碼】：1xjm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iYUhb （or） http://www.linkbucks.com/ARpuA
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iVbhn （or） http://www.linkbucks.com/ARkt8
 <br>【百度密碼】：3ttx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iYUvt （or） http://www.linkbucks.com/ARps6
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iVdf4 （or） http://www.linkbucks.com/ARjkz
 <br>【百度密碼】：guu6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iYUFF （or） http://www.linkbucks.com/ARpwe
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iVeV8 （or） http://www.linkbucks.com/ARi6I
 <br>【百度密碼】：cg7a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】： 
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iWhjV （or） http://www.linkbucks.com/ARyib
 <br>【百度密碼】：nfzq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iYUHq （or） http://www.linkbucks.com/ARpwS
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iWuRt （or） http://www.linkbucks.com/ARp9e
 <br>【百度密碼】：acu5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iYUU7 （or） http://www.linkbucks.com/ARpvI
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iWuWv （or） http://www.linkbucks.com/ARrGL
 <br>【百度密碼】：wbax
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iYU6b （or） http://www.linkbucks.com/ARpxJ
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iXCg4 （or） http://www.linkbucks.com/ARg85
 <br>【百度密碼】：d972
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iYULv （or） http://www.linkbucks.com/ARpwA
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
