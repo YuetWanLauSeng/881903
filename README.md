@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iZGVv （or） http://www.linkbucks.com/ARsGP
 <br>【百度密碼】：anby
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iaebd （or） http://www.linkbucks.com/ARyUG
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ia7Sc （or） http://www.linkbucks.com/P4te
 <br>【百度密碼】：cv73
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iaeWm （or） http://www.linkbucks.com/ARyUU
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ia7H1 （or） http://www.linkbucks.com/P4t1
 <br>【百度密碼】：iw3a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1iaeN3 （or） http://www.linkbucks.com/ARyaQ
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -191,6 +191,14 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-01-23
+<br>【節目暫停】：改播『朱薰 E』
+
+<br>【節目名稱】：朱薰 E
+<br>【節目頻道】：903
+<br>【節目日期】：2017-01-23
+<br>【節目主持】：朱薰
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：FUN E.2017-01-23
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
@@ -214,8 +222,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iaexX （or） http://www.linkbucks.com/ARyRA
+<br>【百度密碼】：y93c
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -247,8 +255,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1iaf12 （or） http://www.linkbucks.com/ARyQa
+<br>【百度密碼】：8pcg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
