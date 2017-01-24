@@ -1,26 +1,4 @@
-<br>【節目名稱】：有誰共鳴
-<br>【節目頻道】：903
-<br>【節目日期】：2017-01-24
-<br>【節目主持】：Wasabi | 嘉賓主持
-<br>【節目時間】：06:00 - 07:00 
-<br>【檔案名稱】：Share My Song.2017-01-24
-<br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1icStx （or） http://www.linkbucks.com/ASGYT
-<br>【百度密碼】：w7te
-<br>【MediaFire】：http://adf.ly/1icZ1n （or） http://www.linkbucks.com/ASFFs
 
-<br>【節目名稱】：在晴朗的一天出發
-<br>【節目頻道】：881
-<br>【節目日期】：2017-01-24
-<br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 符靜琳 | 李兆綸
-<br>【節目時間】：06:30 - 10:00
-<br>【檔案名稱】：On a Clear Day（881）.2017-01-24
-<br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1icS9y （or） http://www.linkbucks.com/ASGfO
-<br>【百度密碼】：uc88
-<br>【MediaFire】：http://adf.ly/1icaUo （or） http://www.linkbucks.com/ASEkj
-
-<br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
 <br>【節目日期】：2017-01-24
 <br>【節目主持】：西瓜
@@ -137,8 +115,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-01-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1id6fY （or） http://www.linkbucks.com/AR7c7
+<br>【百度密碼】：idex
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +126,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-01-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1id6ki （or） http://www.linkbucks.com/AR7cn
+<br>【百度密碼】：ymte
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
