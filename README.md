@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ie2NM （or） http://www.linkbucks.com/ASI85
+<br>【百度密碼】：w9ae
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -235,9 +235,17 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-01-24
+<br>【節目暫停】：改播『再創生機』
+
+<br>【節目名稱】：再創生機
+<br>【節目頻道】：881
+<br>【節目日期】：2017-01-24
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-01-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ie2K5 （or） http://www.linkbucks.com/ASI9y
+<br>【百度密碼】：5dd9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -247,8 +255,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ie2T2 （or） http://www.linkbucks.com/ASI7w
+<br>【百度密碼】：8k7c
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
