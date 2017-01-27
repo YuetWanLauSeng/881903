@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1in8Sb （or） http://www.linkbucks.com/AShKA
 <br>【百度密碼】：affj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1inHpI （or） http://www.linkbucks.com/Afuk2
 
 <br>【節目名稱】：田式生活
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1in8DG （or） http://www.linkbucks.com/AShMI
 <br>【百度密碼】：mxds
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1io9GW （or） http://www.linkbucks.com/Afuk9
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1in8cB （or） http://www.linkbucks.com/AShJB
 <br>【百度密碼】：ufyq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1io9Mt （or） http://www.linkbucks.com/Afukx
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-01-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1io95b （or） http://www.linkbucks.com/Afupi
+<br>【百度密碼】：pk4f
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-01-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1io938 （or） http://www.linkbucks.com/Afups
+<br>【百度密碼】：b5ne
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -159,9 +159,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-01-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1io99z （or） http://www.linkbucks.com/AfupY
+<br>【百度密碼】：9aqp
+<br>【MediaFire】：http://adf.ly/1io9Df （or） http://www.linkbucks.com/AfulE
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
