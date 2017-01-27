@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ioPIp （or） http://www.linkbucks.com/3qXw
+<br>【百度密碼】：gg1n
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
