@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1in8VW （or） http://www.linkbucks.com/AShJn
 <br>【百度密碼】：pivm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ioOt7 （or） http://www.linkbucks.com/5inc
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1in8Im （or） http://www.linkbucks.com/AShLs
 <br>【百度密碼】：ppud
-<br>【MediaFire】：因版權原因無法提供
+<br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1in8M1 （or） http://www.linkbucks.com/AShKp
 <br>【百度密碼】：xuw5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ioOpS （or） http://www.linkbucks.com/5ink
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1in8AN （or） http://www.linkbucks.com/AShMu
 <br>【百度密碼】：7fki
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ioOwt （or） http://www.linkbucks.com/5inS
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1inHfi （or） http://www.linkbucks.com/ASfDo
 <br>【百度密碼】：iyj5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ioOkQ （or） http://www.linkbucks.com/50tY
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1inHiq （or） http://www.linkbucks.com/ASfCG
 <br>【百度密碼】：g954
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ioOVD （or） http://www.linkbucks.com/50t6
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1inHb5 （or） http://www.linkbucks.com/ASfEf
 <br>【百度密碼】：nnai
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ioOMy （or） http://www.linkbucks.com/50uU
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1io95b （or） http://www.linkbucks.com/Afupi
 <br>【百度密碼】：pk4f
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ioOR4 （or） http://www.linkbucks.com/50uF
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1io938 （or） http://www.linkbucks.com/Afups
 <br>【百度密碼】：b5ne
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ioOLc （or） http://www.linkbucks.com/50ub
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ioO00 （or） http://www.linkbucks.com/50vb
+<br>【百度密碼】：mqp6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-01-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ioOAt （or） http://www.linkbucks.com/50u7
+<br>【百度密碼】：hkd7
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -192,9 +192,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-01-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】：因版權原因無法提供
+<br>【百度雲盤】：http://adf.ly/1ioOEJ （or） http://www.linkbucks.com/50ut
+<br>【百度密碼】：cx3g
+<br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-01-27
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ioO3u （or） http://www.linkbucks.com/50vQ
+<br>【百度密碼】：f7wv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
