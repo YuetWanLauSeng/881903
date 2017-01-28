@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1jIHk2BO
 <br>【百度密碼】：jm8s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/b8mhwgwfm2vbfdx/Morning_Glory.2017-01-28.mp3
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1kVjYyG3
 <br>【百度密碼】：s7ms
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/pe9ajpm6eta62dd/So_Sunshine.2017-01-28.mp3
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1jIAyTSU
 <br>【百度密碼】：8kef
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/raayi6tob0t3p8b/Saturday_Forum.2017-01-28.mp3
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1pK9s4zD
 <br>【百度密碼】：pd5t
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/wwym4gxlk6r41ey/J.A.L.2017-01-28.mp3
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1pKKhSuB
 <br>【百度密碼】：k8zx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/ptzfe6e9as861yr/Weekend_Lucky_Star.2017-01-28.mp3
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1dFqWnDJ
 <br>【百度密碼】：9hws
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/z80v1le9lghv9rq/Stockaeologist.2017-01-28.mp3
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1pLJciq3
 <br>【百度密碼】：bpxy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/yme07ssgiaq0i4g/903_Top_20.2017-01-28.mp3
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1slVju7z
 <br>【百度密碼】：tsdu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/v3sle6lm1oriocj/Movies.2017-01-28.mp3
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1nvuJJ3V
 <br>【百度密碼】：rvan
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/xyazc3mnitrcrg3/Mr_Chef.2017-01-28.mp3
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1eS7Pn6U
 <br>【百度密碼】：78zi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/ywnyd5w0atgu31s/903_Band_Time.2017-01-28.mp3
 
 <br>【節目名稱】：1圈圈 (周末版)
 <br>【節目頻道】：881
@@ -115,9 +115,9 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-01-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1gfdvcGj
+<br>【百度密碼】：y3dz
+<br>【MediaFire】：http://www.mediafire.com/file/v480i8na2mrl0r4/Circles.2017-01-28.mp3
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -126,9 +126,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-01-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1gfaDi5X
+<br>【百度密碼】：26th
+<br>【MediaFire】：http://www.mediafire.com/file/64k52iza1ofhyqk/Quote_Chart.2017-01-28.mp3
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -169,6 +169,14 @@
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-01-28
+<br>【節目暫停】：改播『叱咤樂壇』
+
+<br>【節目名稱】：叱咤樂壇
+<br>【節目頻道】：903
+<br>【節目日期】：2017-01-28
+<br>【節目主持】：梁文禮 | 謝茜嘉
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：903 Music.2017-01-28
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
