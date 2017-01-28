@@ -137,8 +137,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-01-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1b2ry0m
+<br>【百度密碼】：pjc1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：3號螺絲釘
@@ -148,8 +148,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-01-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1gfFoIxt
+<br>【百度密碼】：7q88
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：第三齡接觸
@@ -159,8 +159,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-01-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1bpN4vH9
+<br>【百度密碼】：i1fx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -178,8 +178,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：903 Music.2017-01-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://pan.baidu.com/s/1mhEiuV2
+<br>【百度密碼】：udj8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
