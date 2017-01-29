@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1b2ry0m
 <br>【百度密碼】：pjc1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/4d0r5uv81mroxam/The_Big_Sportsman.2017-01-28.mp3
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://pan.baidu.com/s/1gfFoIxt
 <br>【百度密碼】：7q88
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://www.mediafire.com/file/9z4u71ow4m75xb9/Screw_No.3.2017-01-28.mp3
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -222,9 +222,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-01-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1c1M6iLa
+<br>【百度密碼】：jejh
+<br>【MediaFire】：http://www.mediafire.com/file/u66zfxcekkpus7g/The_Playtoy_Mansion.2017-01-28.mp3
 
 <br>【節目名稱】：發式生活
 <br>【節目頻道】：881
@@ -244,9 +244,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-01-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://pan.baidu.com/s/1dFDqVU5
+<br>【百度密碼】：279t
+<br>【MediaFire】：http://www.mediafire.com/file/iohn7shoeer23bn/Losing_Eleven.2017-01-28.mp3
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
