@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ixNud （or） http://www.linkbucks.com/AS8ep
 <br>【百度密碼】：ywg9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ixdru （or） http://www.linkbucks.com/ATXzi
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ixOKX （or） http://www.linkbucks.com/AS8cW
 <br>【百度密碼】：cru8
-<br>【MediaFire】：因版權原因無法提供
+<br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ixNrO （or） http://www.linkbucks.com/AS8ev
 <br>【百度密碼】：2cnq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ixdlk （or） http://www.linkbucks.com/ATX0g
 
 <br>【節目名稱】：田式生活
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1ixOMt （or） http://www.linkbucks.com/AS8cO
 <br>【百度密碼】：pu9y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ixdoq （or） http://www.linkbucks.com/ATXz7
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -90,8 +90,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ixd6d （or） http://www.linkbucks.com/ATYWh
+<br>【百度密碼】：nmyr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -125,8 +125,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：蘇耀一粒鐘.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ixdBE （or） http://www.linkbucks.com/ATYVs
+<br>【百度密碼】：dwbi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
@@ -190,7 +190,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
 <br>【百度密碼】：
-<br>【MediaFire】：因版權原因無法提供
+<br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
