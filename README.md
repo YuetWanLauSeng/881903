@@ -145,8 +145,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j1pHA （or） http://www.linkbucks.com/AS6iM
+<br>【百度密碼】：h83i
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -156,8 +156,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j1pLl （or） http://www.linkbucks.com/AS6h5
+<br>【百度密碼】：deka
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：都是我的流行曲
