@@ -191,7 +191,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j2iaZ （or） http://www.linkbucks.com/ATYG5
 <br>【百度密碼】：r6qa
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j34Hg （or） http://www.linkbucks.com/ATWQw
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -202,7 +202,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j2iCt （or） http://www.linkbucks.com/ATYUb
 <br>【百度密碼】：iw2j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j34Of （or） http://www.linkbucks.com/ATWQR
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -224,7 +224,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j2i99 （or） http://www.linkbucks.com/ATYVE
 <br>【百度密碼】：698c
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j34Cv （or） http://www.linkbucks.com/ATWRG
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -235,7 +235,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j2jvu （or） http://www.linkbucks.com/ATX0F
 <br>【百度密碼】：ypve
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j34Us （or） http://www.linkbucks.com/ATWPw
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -244,9 +244,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j33LV （or） http://www.linkbucks.com/ATWWf
+<br>【百度密碼】：fxhm
+<br>【MediaFire】：http://adf.ly/1j346O （or） http://www.linkbucks.com/ATWSV
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -263,9 +263,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j33Uq （or） http://www.linkbucks.com/ATWWJ
+<br>【百度密碼】：e7vq
+<br>【MediaFire】：http://adf.ly/1j349H （or） http://www.linkbucks.com/ATWRQ
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -274,9 +274,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j33aY （or） http://www.linkbucks.com/ATWVe
+<br>【百度密碼】：ig68
+<br>【MediaFire】：http://adf.ly/1j34eq （or） http://www.linkbucks.com/ATWPV
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
