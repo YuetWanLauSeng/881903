@@ -93,9 +93,9 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j1eGw （or） http://www.linkbucks.com/AS7b2
+<br>【百度密碼】：ewz3
+<br>【MediaFire】：http://adf.ly/1j1eS8 （or） http://www.linkbucks.com/AS7a3
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -104,9 +104,9 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j1e7U （or） http://www.linkbucks.com/AS7cg
+<br>【百度密碼】：dwcx
+<br>【MediaFire】：http://adf.ly/1j1ec1 （or） http://www.linkbucks.com/AS7Ug
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -115,9 +115,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j1eCZ （or） http://www.linkbucks.com/AS7cW
+<br>【百度密碼】：2r7s
+<br>【MediaFire】：http://adf.ly/1j1eYv （or） http://www.linkbucks.com/AS7Uv
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -134,9 +134,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：蘇耀一粒鐘.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j1e3A （or） http://www.linkbucks.com/AS7c1
+<br>【百度密碼】：12r3
+<br>【MediaFire】：http://adf.ly/1j1eVG （or） http://www.linkbucks.com/AS7as
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
