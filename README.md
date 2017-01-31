@@ -147,7 +147,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j1pHA （or） http://www.linkbucks.com/AS6iM
 <br>【百度密碼】：h83i
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j21dH （or） http://www.linkbucks.com/AS4Kr
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -158,7 +158,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j1pLl （or） http://www.linkbucks.com/AS6h5
 <br>【百度密碼】：deka
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j21YL （or） http://www.linkbucks.com/AS4Lu
 
 <br>【節目名稱】：都是我的流行曲
 <br>【節目頻道】：881
@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j21IV （or） http://www.linkbucks.com/AS4MH
+<br>【百度密碼】：7ydh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -178,8 +178,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-01-31
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j21Np （or） http://www.linkbucks.com/AS4L4
+<br>【百度密碼】：c4q5
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
