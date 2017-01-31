@@ -166,8 +166,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0hYn （or） http://www.linkbucks.com/ATQ9Z
+<br>【百度密碼】：a7x4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -188,8 +188,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0hco （or） http://www.linkbucks.com/ATQ8l
+<br>【百度密碼】：a877
 <br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：杏林茶
@@ -199,8 +199,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0haZ （or） http://www.linkbucks.com/ATQ87
+<br>【百度密碼】：t2r4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -210,8 +210,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0hTW （or） http://www.linkbucks.com/ATRAA
+<br>【百度密碼】：qac8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -221,8 +221,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0htU （or） http://www.linkbucks.com/ATQ44
+<br>【百度密碼】：c1yb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -231,9 +231,17 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-01-30
+<br>【節目暫停】：改播『賀歲歌』
+
+<br>【節目名稱】：賀歲歌
+<br>【節目頻道】：881
+<br>【節目日期】：2017-01-30
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Happy New Year Song.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0hWU （or） http://www.linkbucks.com/ATQ9x
+<br>【百度密碼】：697w
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -243,8 +251,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0hHY （or） http://www.linkbucks.com/ATRAx
+<br>【百度密碼】：5478
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -254,8 +262,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0hME （or） http://www.linkbucks.com/ATRAX
+<br>【百度密碼】：pjct
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
