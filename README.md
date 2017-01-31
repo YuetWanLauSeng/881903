@@ -146,7 +146,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1iyN0h （or） http://www.linkbucks.com/ATJOL
 <br>【百度密碼】：j4ba
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j0upG （or） http://www.linkbucks.com/CxD0
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -201,7 +201,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j0haZ （or） http://www.linkbucks.com/ATQ87
 <br>【百度密碼】：t2r4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j0ugL （or） http://www.linkbucks.com/CxDm
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -212,7 +212,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j0hTW （or） http://www.linkbucks.com/ATRAA
 <br>【百度密碼】：qac8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j0udc （or） http://www.linkbucks.com/CxDb
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -253,7 +253,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j0hHY （or） http://www.linkbucks.com/ATRAx
 <br>【百度密碼】：5478
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j0uqh （or） http://www.linkbucks.com/CxD7
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -264,7 +264,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j0hME （or） http://www.linkbucks.com/ATRAX
 <br>【百度密碼】：pjct
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j0ull （or） http://www.linkbucks.com/CxDs
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -273,8 +273,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0uzQ （or） http://www.linkbucks.com/CxEG
+<br>【百度密碼】：fhjt
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -284,8 +284,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0v3L （or） http://www.linkbucks.com/CxEQ
+<br>【百度密碼】：7ifu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -295,6 +295,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-01-30
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j0v56 （or） http://www.linkbucks.com/AVhf
+<br>【百度密碼】：kfit
 <br>【MediaFire】： （or）
