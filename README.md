@@ -233,9 +233,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-02-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j72Tl （or） http://www.linkbucks.com/ATy1L
+<br>【百度密碼】：i91p
+<br>【MediaFire】：http://adf.ly/1j78ym （or） http://www.linkbucks.com/ATyJL
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -244,9 +244,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-02-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j72a5 （or） http://www.linkbucks.com/ATy0m
+<br>【百度密碼】：i6sq
+<br>【MediaFire】：http://adf.ly/1j792B （or） http://www.linkbucks.com/ATyIv
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -255,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j72Op （or） http://www.linkbucks.com/ATy1g
+<br>【百度密碼】：feqr
+<br>【MediaFire】：http://adf.ly/1j78xK （or） http://www.linkbucks.com/ATyJx
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
