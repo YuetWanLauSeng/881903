@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-02-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j60DQ （or） http://www.linkbucks.com/ATqyf
+<br>【百度密碼】：huff
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
