@@ -202,7 +202,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j6Xfz （or） http://www.linkbucks.com/AT2OE
 <br>【百度密碼】：hjma
-<br>【MediaFire】：因節目內歌曲版權原因而無法提供
+<br>【MediaFire】：http://adf.ly/1j6g93 （or） http://www.linkbucks.com/AT1Qp
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -213,7 +213,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j6XcV （or） http://www.linkbucks.com/AT2Oj
 <br>【百度密碼】：8gva
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j6g4f （or） http://www.linkbucks.com/AT1RG
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -222,9 +222,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1j6frt （or） http://www.linkbucks.com/AT1R0
+<br>【百度密碼】：5xpg
+<br>【MediaFire】：http://adf.ly/1j6fzY （or） http://www.linkbucks.com/AT1Rd
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
