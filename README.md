@@ -180,7 +180,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j6JOZ（or） http://www.linkbucks.com/ATnxm
 <br>【百度密碼】：xcas
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j6XZE （or） http://www.linkbucks.com/AT2PC
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -191,7 +191,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j6JMi （or） http://www.linkbucks.com/ATnyu
 <br>【百度密碼】：578d
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j6XW5 （or） http://www.linkbucks.com/AT2PQ
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -200,8 +200,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j6Xfz （or） http://www.linkbucks.com/AT2OE
+<br>【百度密碼】：hjma
 <br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：杏林茶
@@ -211,8 +211,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-01
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j6XcV （or） http://www.linkbucks.com/AT2Oj
+<br>【百度密碼】：8gva
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
