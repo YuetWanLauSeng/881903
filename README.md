@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9YKs （or） http://www.linkbucks.com/ALI2q
 <br>【百度密碼】：p5a7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jA7PJ （or） http://www.linkbucks.com/ATdFY
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9XsZ （or） http://www.linkbucks.com/ATsnM
 <br>【百度密碼】：9x2g
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jA7SO （or） http://www.linkbucks.com/ATdFo
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9Xwb （or） http://www.linkbucks.com/ATsmL
 <br>【百度密碼】：exe9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9Y3A （or） http://www.linkbucks.com/ATrs0
 <br>【百度密碼】：g8xq
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jA7Jn （or） http://www.linkbucks.com/ATdFB
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9boi （or） http://www.linkbucks.com/rG7l
 <br>【百度密碼】：kwbf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jA7Ys （or） http://www.linkbucks.com/ATdIN
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9bss （or） http://www.linkbucks.com/rG7X
 <br>【百度密碼】：cx25
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jA7it （or） http://www.linkbucks.com/ATdAv
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -136,7 +136,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9c56 （or） http://www.linkbucks.com/rG6J
 <br>【百度密碼】：5mmj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jA7M1 （or） http://www.linkbucks.com/ATdFK
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -147,7 +147,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9eOU （or） http://www.linkbucks.com/k9EE
 <br>【百度密碼】：fjui
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jA7fM （or） http://www.linkbucks.com/ATc9k
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -169,7 +169,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9g8G （or） http://www.linkbucks.com/kHYG
 <br>【百度密碼】：3e7d
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jA7Ug （or） http://www.linkbucks.com/ATdGu
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -197,8 +197,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jA8y8 （or） http://www.linkbucks.com/ATc6Y
+<br>【百度密碼】：v6bn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
