@@ -93,8 +93,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-02-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j9boi （or） http://www.linkbucks.com/rG7l
+<br>【百度密碼】：kwbf
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-02-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j9bvs （or） http://www.linkbucks.com/rG6U
+<br>【百度密碼】：xhtv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-02-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j9bss （or） http://www.linkbucks.com/rG7X
+<br>【百度密碼】：cx25
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
@@ -125,7 +125,7 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-02-02
-<br>【節目暫停】：蘇耀一粒鐘
+<br>【節目暫停】：改播『蘇耀一粒鐘』
 
 <br>【節目名稱】：蘇耀一粒鐘
 <br>【節目頻道】：903
@@ -134,8 +134,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：蘇耀一粒鐘.2017-02-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1j9c56 （or） http://www.linkbucks.com/rG6J
+<br>【百度密碼】：5mmj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
