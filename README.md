@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9XmB （or） http://www.linkbucks.com/ATsnf
 <br>【百度密碼】：n6a2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j9o4p （or） http://www.linkbucks.com/ATjV0
 
 <br>【節目名稱】：田式生活
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9XuA （or） http://www.linkbucks.com/ATsnH
 <br>【百度密碼】：4dea
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j9oFF （or） http://www.linkbucks.com/ATjRZ
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9XzR （or） http://www.linkbucks.com/ATrwh
 <br>【百度密碼】：vbsd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j9nx6 （or） http://www.linkbucks.com/ATjWO
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9Y5z （or） http://www.linkbucks.com/ATrqB
 <br>【百度密碼】：c3sd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j9oCb （or） http://www.linkbucks.com/ATjVF
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9bvs （or） http://www.linkbucks.com/rG6U
 <br>【百度密碼】：xhtv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j9o89 （or） http://www.linkbucks.com/ATjVl
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -158,7 +158,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1j9f6k （or） http://www.linkbucks.com/kHhR
 <br>【百度密碼】：qrvy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1j9o1N （or） http://www.linkbucks.com/ATjWE
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
