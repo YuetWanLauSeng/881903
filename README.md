@@ -199,7 +199,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jA8y8 （or） http://www.linkbucks.com/ATc6Y
 <br>【百度密碼】：v6bn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -224,8 +224,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-02-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jAbPk （or） http://www.linkbucks.com/qjNG
+<br>【百度密碼】：9xtk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -243,9 +243,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jAbKt （or） http://www.linkbucks.com/t2qG
+<br>【百度密碼】：caf3
+<br>【MediaFire】：http://adf.ly/1jAgv7 （or） http://www.linkbucks.com/c5mi
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
