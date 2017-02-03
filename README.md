@@ -189,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-02-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jDvWP （or） http://www.linkbucks.com/AUBTh
+<br>【百度密碼】：wwyu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -200,8 +200,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jDvbQ （or） http://www.linkbucks.com/AUBS0
+<br>【百度密碼】：arve
 <br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：杏林茶
@@ -211,8 +211,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jDvQF （or） http://www.linkbucks.com/AUBT0
+<br>【百度密碼】：qkih
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
