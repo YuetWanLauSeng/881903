@@ -254,8 +254,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jCFh9 （or） http://www.linkbucks.com/ATz6R
+<br>【百度密碼】：wub3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
