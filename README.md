@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-02-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jGxVi （or） http://www.linkbucks.com/ABxpJ
+<br>【百度密碼】：epxc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：豁達推介
@@ -126,8 +126,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-02-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jGxMV （or） http://www.linkbucks.com/AFZof
+<br>【百度密碼】：ttk8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
@@ -137,8 +137,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-02-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jGxHE （or） http://www.linkbucks.com/AFZos
+<br>【百度密碼】：vkyc
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：3號螺絲釘
