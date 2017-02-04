@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jGxMV （or） http://www.linkbucks.com/AFZof
 <br>【百度密碼】：ttk8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jH95a （or） http://www.linkbucks.com/uGOr
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jGxHE （or） http://www.linkbucks.com/AFZos
 <br>【百度密碼】：vkyc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jH91M （or） http://www.linkbucks.com/uGPF
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jH4eX （or） http://www.linkbucks.com/w6Zk
 <br>【百度密碼】：t1xr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jH8xn （or） http://www.linkbucks.com/uGPe
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -159,8 +159,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-02-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jHNXq （or） http://www.linkbucks.com/AUCfc
+<br>【百度密碼】：4yg1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -170,8 +170,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-02-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jHNbF （or） http://www.linkbucks.com/AUCfO
+<br>【百度密碼】：wmqb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
