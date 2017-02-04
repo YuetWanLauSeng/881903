@@ -295,7 +295,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jFWw1 （or） http://www.linkbucks.com/AUKE1
 <br>【百度密碼】：tyba
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jFpEE （or） http://www.linkbucks.com/AUVko
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -315,6 +315,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or）
+<br>【百度雲盤】：http://adf.ly/1jFpgi （or） http://www.linkbucks.com/AUVcM
+<br>【百度密碼】：2cnc
+<br>【MediaFire】：http://adf.ly/1jFpAt （or） http://www.linkbucks.com/AUVlM
