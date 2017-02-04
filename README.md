@@ -166,16 +166,13 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-02-03
-<br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：稍後補充
-<br>【MediaFire】： （or） 
+<br>【節目暫停】：改播『集雜志』
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
 <br>【節目日期】：2017-02-03
 <br>【節目主持】：急急子
-<br>【節目時間】：18:00 - 19:00
+<br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Zine.2017-02-03
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
@@ -243,7 +240,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jED4A （or） http://www.linkbucks.com/AT7tr
 <br>【百度密碼】：cs98
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jFXUd （or） http://www.linkbucks.com/AUJ38
 
 <br>【節目名稱】：My 當奴
 <br>【節目頻道】：903
@@ -254,7 +251,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jED9P （or） http://www.linkbucks.com/AT7s0
 <br>【百度密碼】：r5b2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jFX34 （or） http://www.linkbucks.com/AUKDm
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -265,7 +262,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jEDDh （or） http://www.linkbucks.com/AT7sS
 <br>【百度密碼】：cf3s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jFXWx （or） http://www.linkbucks.com/AUJ1v
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -285,9 +282,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jFWqT （or） http://www.linkbucks.com/AUKFS
+<br>【百度密碼】：y9tf
+<br>【MediaFire】：http://adf.ly/1jFXN0 （or） http://www.linkbucks.com/AUJ7m
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -296,8 +293,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-02-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jFWw1 （or） http://www.linkbucks.com/AUKE1
+<br>【百度密碼】：tyba
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -305,11 +302,11 @@
 <br>【節目日期】：2017-02-03
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Canto Pop.2017-02-03
+<br>【檔案名稱】：Canto Pop(2-2).2017-02-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jFWyx （or） http://www.linkbucks.com/AUKEb
+<br>【百度密碼】：9jtj
+<br>【MediaFire】：http://adf.ly/1jFXS4 （or） http://www.linkbucks.com/AUJ49
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
