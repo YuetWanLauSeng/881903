@@ -148,8 +148,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-02-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1jH41y （or） http://www.linkbucks.com/w66R
-<br>【百度密碼】：171v
+<br>【百度雲盤】：http://adf.ly/1jH4eX （or） http://www.linkbucks.com/w6Zk
+<br>【百度密碼】：t1xr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：第三齡接觸
