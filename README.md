@@ -82,8 +82,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jKF2G （or） http://www.linkbucks.com/AUIst
+<br>【百度密碼】：s44j
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：兒童適宜
