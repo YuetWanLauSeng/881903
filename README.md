@@ -214,8 +214,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-02-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jJdhI （or） http://www.linkbucks.com/AURxZ
+<br>【百度密碼】：qw25
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
@@ -236,8 +236,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-02-04
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jJdjR （or） http://www.linkbucks.com/AURxM
+<br>【百度密碼】：h8ay
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
