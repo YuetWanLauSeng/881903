@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jKr3x （or） http://www.linkbucks.com/AT6JM
 <br>【百度密碼】：xq97
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jL3iP （or） http://www.linkbucks.com/AT3BG
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -115,9 +115,9 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jL24j （or） http://www.linkbucks.com/AT4A6
+<br>【百度密碼】：em13
+<br>【MediaFire】：http://adf.ly/1jL3mV （or） http://www.linkbucks.com/AT3Ab
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -126,9 +126,9 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jL2AL （or） http://www.linkbucks.com/AT4At
+<br>【百度密碼】：x8ta
+<br>【MediaFire】：http://adf.ly/1jL3ec （or） http://www.linkbucks.com/AT3Bk
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
