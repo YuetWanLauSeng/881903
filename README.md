@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jK4lC （or） http://www.linkbucks.com/AUKdk
 <br>【百度密碼】：8nn2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKrHy （or） http://www.linkbucks.com/AT6IC
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jK4hN （or） http://www.linkbucks.com/AUKdy
 <br>【百度密碼】：u5ua
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKr9y （or） http://www.linkbucks.com/AT6Ir
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jKS9s （or） http://www.linkbucks.com/AUEZ1
 <br>【百度密碼】：a5a1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKrE0 （or） http://www.linkbucks.com/AT6IV
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -104,8 +104,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jKr3x （or） http://www.linkbucks.com/AT6JM
+<br>【百度密碼】：xq97
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
