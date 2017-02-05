@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jK4vC （or） http://www.linkbucks.com/AUKdG
 <br>【百度密碼】：p5ww
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKT8C （or） http://www.linkbucks.com/AUEUy
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jK5Hz （or） http://www.linkbucks.com/AUKb4
 <br>【百度密碼】：vntj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKSL6 （or） http://www.linkbucks.com/AUEZD
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jK4qS （or） http://www.linkbucks.com/AUKdS
 <br>【百度密碼】：7rg2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKTEV （or） http://www.linkbucks.com/AUEUo
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jK53m （or） http://www.linkbucks.com/AUKci
 <br>【百度密碼】：3ey8
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKSys （or） http://www.linkbucks.com/AUEVS
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jK4yz （or） http://www.linkbucks.com/AUKc8
 <br>【百度密碼】：8dfu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKSGO （or） http://www.linkbucks.com/AUEZX
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -84,17 +84,17 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jKF2G （or） http://www.linkbucks.com/AUIst
 <br>【百度密碼】：s44j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jKSdy （or） http://www.linkbucks.com/AUEXP
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
 <br>【節目日期】：2017-02-05
-<br>【節目主持】：朱薰 | 陸永
+<br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jKS9s （or） http://www.linkbucks.com/AUEZ1
+<br>【百度密碼】：a5a1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
