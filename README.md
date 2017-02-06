@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jOUmJ （or） http://www.linkbucks.com/AUzCP
+<br>【百度密碼】：8tmz
 <br>【MediaFire】：因節目內歌曲版權原因而無法提供
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jOUgp （or） http://www.linkbucks.com/AUzCp
+<br>【百度密碼】：3mwf
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
