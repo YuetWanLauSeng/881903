@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jNqXw （or） http://www.linkbucks.com/AUp65
 <br>【百度密碼】：eymj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jOsqe （or） http://www.linkbucks.com/AUv6l
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jNqyO （or） http://www.linkbucks.com/AUpy8
 <br>【百度密碼】：8xdd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jOsk8 （or） http://www.linkbucks.com/AUv8s
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jOPyl （or） http://www.linkbucks.com/AUz5Y
 <br>【百度密碼】：d5ar
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jOsmn （or） http://www.linkbucks.com/AUv70
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jOPGK （or） http://www.linkbucks.com/AU0Bo
 <br>【百度密碼】：c2a6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jOsge （or） http://www.linkbucks.com/AUv9P
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jOPLk （or） http://www.linkbucks.com/AU0BS
 <br>【百度密碼】：nefp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jOsdH （or） http://www.linkbucks.com/AUwAP
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jOUgp （or） http://www.linkbucks.com/AUzCp
 <br>【百度密碼】：3mwf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jOstf （or） http://www.linkbucks.com/AUv43
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jOXzs （or） http://www.linkbucks.com/AUyoz
 <br>【百度密碼】：4cf4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jOsoz （or） http://www.linkbucks.com/AUv7n
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,9 +225,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-02-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jOrOL （or） http://www.linkbucks.com/AUwVC
+<br>【百度密碼】：4xat
+<br>【MediaFire】：http://adf.ly/1jOsW5 （or） http://www.linkbucks.com/AUwB2
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -236,9 +236,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-02-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jOrSK （or） http://www.linkbucks.com/AUwU1
+<br>【百度密碼】：y2h3
+<br>【MediaFire】：http://adf.ly/1jOsZy （or） http://www.linkbucks.com/AUwBC
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jOrKC （or） http://www.linkbucks.com/AUwVW
+<br>【百度密碼】：tp6h
+<br>【MediaFire】：http://adf.ly/1jOt79 （or） http://www.linkbucks.com/AUv1i
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
