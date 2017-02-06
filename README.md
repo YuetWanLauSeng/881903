@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jLdd1 （or） http://www.linkbucks.com/AUPju
 <br>【百度密碼】：vbzf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jMvDx （or） http://www.linkbucks.com/AUeeZ
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jLdjI （or） http://www.linkbucks.com/AUPi7
 <br>【百度密碼】：g55n
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jMvAl （or） http://www.linkbucks.com/AUefh
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -203,8 +203,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jMuhd （or） http://www.linkbucks.com/AUesM
+<br>【百度密碼】：iciu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：心靈料理
@@ -214,8 +214,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jMumV （or） http://www.linkbucks.com/AUeq4
+<br>【百度密碼】：7qvd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：寫生活
@@ -225,8 +225,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jMuse （or） http://www.linkbucks.com/AUepj
+<br>【百度密碼】：8hs1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -236,6 +236,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-05
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jMupc （or） http://www.linkbucks.com/AUeqE
+<br>【百度密碼】：2492
 <br>【MediaFire】： （or）
