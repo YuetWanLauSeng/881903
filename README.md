@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-06
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jOXzs （or） http://www.linkbucks.com/AUyoz
+<br>【百度密碼】：4cf4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
