@@ -260,7 +260,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jQ29s （or） http://www.linkbucks.com/AUWsj
 <br>【百度密碼】：pqyy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jQ5Oc （or） http://www.linkbucks.com/ATFcn
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -271,7 +271,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jQ2DK （or） http://www.linkbucks.com/AUWq9
 <br>【百度密碼】：19ud
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jQBUF （or） http://www.linkbucks.com/AUtpu
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -282,7 +282,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jQ2RW （or） http://www.linkbucks.com/AUWnL
 <br>【百度密碼】：a36x
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jQBRl （or） http://www.linkbucks.com/AUtp9
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -293,4 +293,4 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jQ26H （or） http://www.linkbucks.com/AUWuE
 <br>【百度密碼】：2xry
-<br>【MediaFire】： （or）
+<br>【MediaFire】：http://adf.ly/1jQBPZ （or） http://www.linkbucks.com/AUtqH
