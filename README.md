@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jRvaF （or） http://www.linkbucks.com/4aEm
 <br>【百度密碼】：s7ne
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jSBWy （or） http://www.linkbucks.com/XeBh
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jRvhb （or） http://www.linkbucks.com/4aEL
 <br>【百度密碼】：sd14
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jSBeK （or） http://www.linkbucks.com/XeBW
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jRvlP （or） http://www.linkbucks.com/4aEE
 <br>【百度密碼】：2gzu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jSBaF （or） http://www.linkbucks.com/XeBb
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -244,8 +244,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-02-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jSA5q （or） http://www.linkbucks.com/ZLNy
+<br>【百度密碼】：mmps
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -255,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jSA3Y （or） http://www.linkbucks.com/ZLN7
+<br>【百度密碼】：m3s1
+<br>【MediaFire】：http://adf.ly/1jSBUS （or） http://www.linkbucks.com/XeBo
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
