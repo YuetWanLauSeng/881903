@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jRINy （or） http://www.linkbucks.com/AUuZy
 <br>【百度密碼】：uajm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jRwL0 （or） http://www.linkbucks.com/1AJi
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jRIZB （or） http://www.linkbucks.com/AUuZH
 <br>【百度密碼】：2ir5
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jRwDO （or） http://www.linkbucks.com/1AJ2
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jRI3B （or） http://www.linkbucks.com/AUuap
 <br>【百度密碼】：4rq2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jRwNE （or） http://www.linkbucks.com/1AJc
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jRbVX （or） http://www.linkbucks.com/B2Uf
 <br>【百度密碼】：bs6y
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jRwH9 （or） http://www.linkbucks.com/1AJr
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jRatk （or） http://www.linkbucks.com/CYZm
 <br>【百度密碼】：ngth
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jRwAA （or） http://www.linkbucks.com/1AKA
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -192,9 +192,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】：因節目內歌曲版權原因而無法提供
+<br>【百度雲盤】：http://adf.ly/1jRvaF （or） http://www.linkbucks.com/4aEm
+<br>【百度密碼】：s7ne
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jRvhb （or） http://www.linkbucks.com/4aEL
+<br>【百度密碼】：sd14
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-07
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jRvlP （or） http://www.linkbucks.com/4aEE
+<br>【百度密碼】：2gzu
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
