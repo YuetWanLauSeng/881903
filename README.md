@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-02-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jXZ3T （or） http://www.linkbucks.com/AQ7gE
+<br>【百度密碼】：pu1d
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-02-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jXq7o （or） http://www.linkbucks.com/AU4NK
+<br>【百度密碼】：drsn
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-02-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jXpzD （or） http://www.linkbucks.com/AU4Nq
+<br>【百度密碼】：59f8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
