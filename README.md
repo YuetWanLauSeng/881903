@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jbjfI （or） http://www.linkbucks.com/AVKak
 <br>【百度密碼】：bm3b
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jcCYB （or） http://www.linkbucks.com/AVICB
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jbjuE （or） http://www.linkbucks.com/AVKZu
 <br>【百度密碼】：fgnv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jcCV6 （or） http://www.linkbucks.com/AVICJ
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jbjxo （or） http://www.linkbucks.com/AVKZP
 <br>【百度密碼】：ky7a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jcCbZ （or） http://www.linkbucks.com/AVIB1
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -205,7 +205,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jbjlU （or） http://www.linkbucks.com/AVKaQ
 <br>【百度密碼】：jbzr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jcCeA （or） http://www.linkbucks.com/AVIBv
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -214,9 +214,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jbpnH （or） http://www.linkbucks.com/AVJ74
+<br>【百度密碼】：w49f
+<br>【MediaFire】：http://adf.ly/1jcCSP （or） http://www.linkbucks.com/AVICU
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,9 +225,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-02-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jcCAU （or） http://www.linkbucks.com/AVIH0
+<br>【百度密碼】：jtdn
+<br>【MediaFire】：http://adf.ly/1jcCMK （or） http://www.linkbucks.com/AVIG7
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -236,9 +236,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-02-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jcCF5 （or） http://www.linkbucks.com/AVIHn
+<br>【百度密碼】：6mrw
+<br>【MediaFire】：http://adf.ly/1jcCPE （or） http://www.linkbucks.com/AVICj
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -247,9 +247,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jcC5x （or） http://www.linkbucks.com/AVIIJ
+<br>【百度密碼】：tfbs
+<br>【MediaFire】：http://adf.ly/1jcCK8 （or） http://www.linkbucks.com/AVIHU
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
