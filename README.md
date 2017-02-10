@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jatAR （or） http://www.linkbucks.com/AVA0F
 <br>【百度密碼】：agp6
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jbkCY （or） http://www.linkbucks.com/AVKYN
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jatEj （or） http://www.linkbucks.com/AVAzs
 <br>【百度密碼】：gbde
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jbk2Y （or） http://www.linkbucks.com/AVKY5
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jayb7 （or） http://www.linkbucks.com/AVALT
 <br>【百度密碼】：dw73
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jbk7v （or） http://www.linkbucks.com/AVKYv
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-02-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jbjfI （or） http://www.linkbucks.com/AVKak
+<br>【百度密碼】：bm3b
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-02-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jbjuE （or） http://www.linkbucks.com/AVKZu
+<br>【百度密碼】：fgnv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -192,9 +192,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】：因節目內歌曲版權原因而無法提供
+<br>【百度雲盤】：http://adf.ly/1jbjxo （or） http://www.linkbucks.com/AVKZP
+<br>【百度密碼】：ky7a
+<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-10
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jbjlU （or） http://www.linkbucks.com/AVKaQ
+<br>【百度密碼】：jbzr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
