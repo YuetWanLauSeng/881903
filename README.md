@@ -172,7 +172,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jXq7o （or） http://www.linkbucks.com/AU4NK
 <br>【百度密碼】：drsn
-<br>【MediaFire】：（or）
+<br>【MediaFire】：http://adf.ly/1jZoOd （or） http://www.linkbucks.com/AU48D
+
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
 <br>【節目日期】：2017-02-09
@@ -182,7 +183,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jXpzD （or） http://www.linkbucks.com/AU4Nq
 <br>【百度密碼】：59f8
-<br>【MediaFire】：（or）
+<br>【MediaFire】：http://adf.ly/1jZoEs （or） http://www.linkbucks.com/AU486
+
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
 <br>【節目日期】：2017-02-09
@@ -214,7 +216,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jYPx9 （or） http://www.linkbucks.com/AU1EV
 <br>【百度密碼】：gmk2
-<br>【MediaFire】：（or）
+<br>【MediaFire】：http://adf.ly/1jZoR1 （or） http://www.linkbucks.com/AU48A
+
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
 <br>【節目日期】：2017-02-09
@@ -224,7 +227,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jYPpe （or） http://www.linkbucks.com/AU1Ep
 <br>【百度密碼】：uehe
-<br>【MediaFire】：（or）
+<br>【MediaFire】：http://adf.ly/1jZoMQ （or） http://www.linkbucks.com/AU48M
+
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
 <br>【節目日期】：2017-02-09
@@ -234,7 +238,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jYQ43 （or） http://www.linkbucks.com/AU1D8
 <br>【百度密碼】：xtr6
-<br>【MediaFire】：（or）
+<br>【MediaFire】：http://adf.ly/1jZovU （or） http://www.linkbucks.com/AU45o
+
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
 <br>【節目日期】：2017-02-09
@@ -245,6 +250,7 @@
 <br>【百度雲盤】：http://adf.ly/1jYPlU （or） http://www.linkbucks.com/AU1E1
 <br>【百度密碼】：wcj3
 <br>【MediaFire】：http://adf.ly/1jYRrA （or） http://www.linkbucks.com/AU08U
+
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
 <br>【節目日期】：2017-02-09
@@ -252,10 +258,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1jZkF0 （or）http://www.linkbucks.com/AU5UU
+<br>【百度雲盤】：http://adf.ly/1jZkF0 （or） http://www.linkbucks.com/AU5UU
 <br>【百度密碼】：4jkt
-<br>【MediaFire】：（or）
-
+<br>【MediaFire】：http://adf.ly/1jZoCg （or） http://www.linkbucks.com/AU49G
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -264,10 +269,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-02-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1jZkN1 （or）http://www.linkbucks.com/AU5T2
+<br>【百度雲盤】：http://adf.ly/1jZkN1 （or） http://www.linkbucks.com/AU5T2
 <br>【百度密碼】：4372
-<br>【MediaFire】：（or）
-
+<br>【MediaFire】：http://adf.ly/1jZoKO （or） http://www.linkbucks.com/AU48U
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -276,10 +280,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-02-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1jZkPb （or）http://www.linkbucks.com/AU5Tk
+<br>【百度雲盤】：http://adf.ly/1jZkPb （or） http://www.linkbucks.com/AU5Tk
 <br>【百度密碼】：6kaa
-<br>【MediaFire】：（or）
-
+<br>【MediaFire】：http://adf.ly/1jZoH7 （or） http://www.linkbucks.com/AU48r
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -288,6 +291,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-09
 <br>【檔案音質】：高清
-<br>【百度雲盤】：http://adf.ly/1jZkSJ （or）http://www.linkbucks.com/AU5Th
+<br>【百度雲盤】：http://adf.ly/1jZkSJ （or） http://www.linkbucks.com/AU5Th
 <br>【百度密碼】：hek5
-<br>【MediaFire】：（or）
+<br>【MediaFire】：http://adf.ly/1jZo9V （or） http://www.linkbucks.com/AU49O
