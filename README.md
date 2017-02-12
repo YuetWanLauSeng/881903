@@ -126,8 +126,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jj8hY （or） http://www.linkbucks.com/AVYtW
+<br>【百度密碼】：yv7q
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
@@ -137,8 +137,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jj8Po （or） http://www.linkbucks.com/AVYwU
+<br>【百度密碼】：9krs
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
