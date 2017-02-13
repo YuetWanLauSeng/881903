@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmzMh （or） http://www.linkbucks.com/AVlKi
 <br>【百度密碼】：vqkw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jnV1y （or） http://www.linkbucks.com/AVspA
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmzIe （or） http://www.linkbucks.com/AVlLF
 <br>【百度密碼】：mhrw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jnUvq （or） http://www.linkbucks.com/AVspk
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jnUnm （or） http://www.linkbucks.com/AVsrJ
+<br>【百度密碼】：nurw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,9 +203,9 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1jnUhg （or） http://www.linkbucks.com/AVsrj
+<br>【百度密碼】：dp5f
+<br>【MediaFire】：http://adf.ly/1jnUy8 （or） http://www.linkbucks.com/AVspS
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -215,7 +215,7 @@
 <br>【檔案名稱】：Canto Pop.2017-02-13
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：早上更新
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -226,7 +226,7 @@
 <br>【檔案名稱】：Sino Stream.2017-02-13
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：早上更新
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -245,7 +245,7 @@
 <br>【檔案名稱】：My Donald.2017-02-13
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：早上更新
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -256,7 +256,7 @@
 <br>【檔案名稱】：Reading Time.2017-02-13
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：早上更新
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -267,7 +267,7 @@
 <br>【檔案名稱】：Summit.2017-02-13
 <br>【檔案音質】：高清
 <br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度密碼】：早上更新
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
