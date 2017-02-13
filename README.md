@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmCBz （or） http://www.linkbucks.com/eCDJ
 <br>【百度密碼】：n1dw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jmilI （or） http://www.linkbucks.com/AVnXs
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmC8A （or） http://www.linkbucks.com/fdU5
 <br>【百度密碼】：184h
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jmioi （or） http://www.linkbucks.com/AVnXk
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmCFr （or） http://www.linkbucks.com/dyjc
 <br>【百度密碼】：gu8w
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jmij5 （or） http://www.linkbucks.com/AVnX8
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmNnS （or） http://www.linkbucks.com/AVp8D
 <br>【百度密碼】：qs4a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jmigR （or） http://www.linkbucks.com/AVnYS
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmPJs （or） http://www.linkbucks.com/AVp2c
 <br>【百度密碼】：fs45
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jmie5 （or） http://www.linkbucks.com/AVnY6
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jmiRb （or） http://www.linkbucks.com/AVnZA
+<br>【百度密碼】：y3ke
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
