@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmBwM （or） http://www.linkbucks.com/gbkl
 <br>【百度密碼】：2d8i
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jmzQD （or） http://www.linkbucks.com/AVlKH
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jmiRb （or） http://www.linkbucks.com/AVnZA
 <br>【百度密碼】：y3ke
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jmzU6 （or） http://www.linkbucks.com/AVlJn
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jmzMh （or） http://www.linkbucks.com/AVlKi
+<br>【百度密碼】：vqkw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jmzIe （or） http://www.linkbucks.com/AVlLF
+<br>【百度密碼】：mhrw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
