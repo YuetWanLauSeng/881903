@@ -170,8 +170,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSmf （or） http://www.linkbucks.com/AHbuN
+<br>【百度密碼】：n3ih
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -181,8 +181,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSiB （or） http://www.linkbucks.com/AHbuX
+<br>【百度密碼】：bic9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
@@ -192,8 +192,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSeL （or） http://www.linkbucks.com/AHbuq
+<br>【百度密碼】：neir
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
@@ -203,8 +203,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSJI （or） http://www.linkbucks.com/AHbyq
+<br>【百度密碼】：q6p6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSP8 （or） http://www.linkbucks.com/AHbvg
+<br>【百度密碼】：urnq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
@@ -225,8 +225,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSaW （or） http://www.linkbucks.com/AHbu5
+<br>【百度密碼】：ytaj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：短期租約
@@ -236,8 +236,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSDl （or） http://www.linkbucks.com/AHfRw
+<br>【百度密碼】：uy76
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：心靈料理
@@ -247,8 +247,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSWs （or） http://www.linkbucks.com/AHbvQ
+<br>【百度密碼】：vj66
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：寫生活
@@ -258,8 +258,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlSMp （or） http://www.linkbucks.com/AHbyV
+<br>【百度密碼】：kgfg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -269,6 +269,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-12
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jlQA7 （or） http://www.linkbucks.com/AJeLS
+<br>【百度密碼】：mp8f
 <br>【MediaFire】： （or）
