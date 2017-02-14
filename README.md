@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jpDPq （or） http://www.linkbucks.com/AWCoZ
 <br>【百度密碼】：yumi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jpJvA （or） http://www.linkbucks.com/AWAUc
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jpD8i （or） http://www.linkbucks.com/AWCv8
 <br>【百度密碼】：ty2h
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jpJz8 （or） http://www.linkbucks.com/AWATD
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -246,7 +246,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jpDFU （or） http://www.linkbucks.com/AWCs8
 <br>【百度密碼】：vqsh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jpJtW （or） http://www.linkbucks.com/AWAWY
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -257,7 +257,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1jpDDY （or） http://www.linkbucks.com/AWCtY
 <br>【百度密碼】：2w2h
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1jpJy6 （or） http://www.linkbucks.com/AWATy
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -277,8 +277,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jpJlW （or） http://www.linkbucks.com/AWAXY
+<br>【百度密碼】：bate
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -288,8 +288,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jpJha （or） http://www.linkbucks.com/AWAYO
+<br>【百度密碼】：q834
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -299,8 +299,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jpJeW （or） http://www.linkbucks.com/AWAZ3
+<br>【百度密碼】：r9a4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -310,6 +310,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jpJgS （or） http://www.linkbucks.com/AWAZE
+<br>【百度密碼】：tifq
 <br>【MediaFire】： （or）
