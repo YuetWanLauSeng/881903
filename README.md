@@ -214,8 +214,8 @@
 <br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Canto Pop.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：早上更新
+<br>【百度雲盤】：http://adf.ly/1jpDPq （or） http://www.linkbucks.com/AWCoZ
+<br>【百度密碼】：yumi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -225,8 +225,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：早上更新
+<br>【百度雲盤】：http://adf.ly/1jpD8i （or） http://www.linkbucks.com/AWCv8
+<br>【百度密碼】：ty2h
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -244,8 +244,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：My Donald.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：早上更新
+<br>【百度雲盤】：http://adf.ly/1jpDFU （or） http://www.linkbucks.com/AWCs8
+<br>【百度密碼】：vqsh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -255,8 +255,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：早上更新
+<br>【百度雲盤】：http://adf.ly/1jpDDY （or） http://www.linkbucks.com/AWCtY
+<br>【百度密碼】：2w2h
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -266,8 +266,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-13
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：早上更新
+<br>【百度雲盤】：http://adf.ly/1jpDVi （or） http://www.linkbucks.com/AWCmi
+<br>【百度密碼】：r425
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
