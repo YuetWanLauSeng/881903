@@ -212,10 +212,10 @@
 <br>【節目日期】：2017-02-14
 <br>【節目主持】：Colin
 <br>【節目時間】：21:00 - 22:00
-<br>【檔案名稱】：Canto Pop.2017-02-14
+<br>【檔案名稱】：Canto Pop(1-2).2017-02-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jsG00 （or） http://www.linkbucks.com/AWFmg
+<br>【百度密碼】：4fxb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -244,8 +244,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Siu Yeah Jim.2017-02-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jsFh0 （or） http://www.linkbucks.com/AWFjb
+<br>【百度密碼】：huy4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -254,9 +254,17 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-02-14
+<br>【節目暫停】改播『再創生機』
+
+<br>【節目名稱】：再創生機
+<br>【節目頻道】：881
+<br>【節目日期】：2017-02-14
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-02-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jsFst （or） http://www.linkbucks.com/AWFk7
+<br>【百度密碼】：gt5c
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -266,8 +274,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jsFJQ （or） http://www.linkbucks.com/AWF18
+<br>【百度密碼】：qcd8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -277,8 +285,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jsFNp （or） http://www.linkbucks.com/AWF4x
+<br>【百度密碼】：ry8d
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -288,8 +296,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-02-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jsFSt （or） http://www.linkbucks.com/AWFsK
+<br>【百度密碼】：qw9k
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -297,10 +305,10 @@
 <br>【節目日期】：2017-02-14
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Canto Pop.2017-02-14
+<br>【檔案名稱】：Canto Pop(2-2).2017-02-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jsFYs （or） http://www.linkbucks.com/AWFjK
+<br>【百度密碼】：yvic
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -310,6 +318,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-14
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jsFd4 （or） http://www.linkbucks.com/AWFjO
+<br>【百度密碼】：iq7n
 <br>【MediaFire】： （or）
