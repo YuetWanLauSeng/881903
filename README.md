@@ -93,8 +93,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-02-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jwXAE （or） http://www.linkbucks.com/AWZBA
+<br>【百度密碼】：s76k
 <br>【MediaFire】：http://adf.ly/1jwRPf （or） http://www.linkbucks.com/AWZxY
 
 <br>【節目名稱】：一點叮一叮
@@ -104,8 +104,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-02-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jwXFn （or） http://www.linkbucks.com/AWZAe
+<br>【百度密碼】：znqi
 <br>【MediaFire】：http://adf.ly/1jwRJf （or） http://www.linkbucks.com/AWZx0
 
 <br>【節目名稱】：人生交叉盤
@@ -115,8 +115,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-02-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jwXD1 （or） http://www.linkbucks.com/AWZAs
+<br>【百度密碼】：h9ph
 <br>【MediaFire】：http://adf.ly/1jwREY （or） http://www.linkbucks.com/AWZyW
 
 <br>【節目名稱】：你好嘢
@@ -126,8 +126,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-02-16
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jwXJc （or） http://www.linkbucks.com/AWZAQ
+<br>【百度密碼】：x547
 <br>【MediaFire】：http://adf.ly/1jwRML （or） http://www.linkbucks.com/AWZxh
 
 <br>【節目名稱】：大玩派
