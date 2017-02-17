@@ -5,8 +5,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jzxZX （or） http://www.linkbucks.com/AWcCS
+<br>【百度密碼】：yu2j
 <br>【MediaFire】：http://adf.ly/1jzoaL （or） http://www.linkbucks.com/AWdIg
 
 <br>【節目名稱】：在晴朗的一天出發
@@ -16,8 +16,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jzxl2 （or） http://www.linkbucks.com/AWcBr
+<br>【百度密碼】：549j
 <br>【MediaFire】：http://adf.ly/1jzohl （or） http://www.linkbucks.com/AWdHW
 
 <br>【節目名稱】：早安，同學早!
@@ -27,8 +27,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jzxpp （or） http://www.linkbucks.com/AWcBR
+<br>【百度密碼】：n4bu
 <br>【MediaFire】：http://adf.ly/1jzoYm （or） http://www.linkbucks.com/AWdIj
 
 <br>【節目名稱】：在晴朗的一天出發
@@ -38,8 +38,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jzxg1 （or） http://www.linkbucks.com/AWcB8
+<br>【百度密碼】：5xgr
 <br>【MediaFire】：http://adf.ly/1jzomP （or） http://www.linkbucks.com/AWdHA
 
 <br>【節目名稱】：田式生活
@@ -49,8 +49,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：James Tien & Friends.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jzxnx （or） http://www.linkbucks.com/AWcBZ
+<br>【百度密碼】：j2s6
 <br>【MediaFire】：http://adf.ly/1jzofl （or） http://www.linkbucks.com/AWdHm
 
 <br>【節目名稱】：早霸王
@@ -60,8 +60,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jzxuC （or） http://www.linkbucks.com/AWcAv
+<br>【百度密碼】：tpce
 <br>【MediaFire】：http://adf.ly/1jzojk （or） http://www.linkbucks.com/AWdHT
 
 <br>【節目名稱】：1圈圈
@@ -71,8 +71,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jzxy6 （or） http://www.linkbucks.com/AWcAS
+<br>【百度密碼】：usvu
 <br>【MediaFire】：http://adf.ly/1jzpKI （or） http://www.linkbucks.com/AWdDy
 
 <br>【節目名稱】：十八樓C座
@@ -82,8 +82,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1jzy0c （or） http://www.linkbucks.com/AWcAA
+<br>【百度密碼】：33by
 <br>【MediaFire】：http://adf.ly/1jzocP （or） http://www.linkbucks.com/AWdGq
 
 <br>【節目名稱】：叱咤樂壇
