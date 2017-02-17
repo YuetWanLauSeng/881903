@@ -200,8 +200,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：903許志安與17安士音樂會
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k1QTk （or） http://www.linkbucks.com/AWgOa
+<br>【百度密碼】：57ju
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -211,8 +211,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k1QBw （or） http://www.linkbucks.com/AWgP6
+<br>【百度密碼】：cynm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -222,8 +222,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k1QLe （or） http://www.linkbucks.com/AWgPN
+<br>【百度密碼】：f4su
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
@@ -233,8 +233,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k1R9v （or） http://www.linkbucks.com/AWgJ0
+<br>【百度密碼】：8e7a
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -244,8 +244,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k1QPF （or） http://www.linkbucks.com/AWgOz
+<br>【百度密碼】：58j6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -255,8 +255,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k1QGf （or） http://www.linkbucks.com/AWgPh
+<br>【百度密碼】：wvqv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
