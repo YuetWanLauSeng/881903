@@ -266,8 +266,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k2xZE （or） http://www.linkbucks.com/aimZ
+<br>【百度密碼】：h3fi
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -277,8 +277,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k2xQx （or） http://www.linkbucks.com/bodu
+<br>【百度密碼】：qdss
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -288,8 +288,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k2xT0 （or） http://www.linkbucks.com/bijH
+<br>【百度密碼】：4nmd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -299,6 +299,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-17
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k2xV9 （or） http://www.linkbucks.com/bhbv
+<br>【百度密碼】：5kug
 <br>【MediaFire】： （or）
