@@ -170,8 +170,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k9Fl6 （or） http://www.linkbucks.com/AW6Ah
+<br>【百度密碼】：j4k3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
@@ -181,8 +181,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k9Fdt （or） http://www.linkbucks.com/AW6BB
+<br>【百度密碼】：g7uv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
@@ -192,8 +192,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k9FaI （or） http://www.linkbucks.com/AW6BX
+<br>【百度密碼】：y485
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：短期租約
