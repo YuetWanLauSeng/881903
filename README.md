@@ -137,8 +137,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k9Ah5 （or） http://www.linkbucks.com/AW6gI
+<br>【百度密碼】：67xe
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -148,8 +148,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k9Am4 （or） http://www.linkbucks.com/AW6fw
+<br>【百度密碼】：ti3q
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強 
@@ -159,8 +159,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k9BTM （or） http://www.linkbucks.com/AW6dj
+<br>【百度密碼】：vuqm
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
