@@ -203,8 +203,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-02-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k77E9 （or） http://www.linkbucks.com/AWqgb
+<br>【百度密碼】：d9vg
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
@@ -214,8 +214,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-02-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k7721 （or） http://www.linkbucks.com/AWqhK
+<br>【百度密碼】：268k
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：發式生活
@@ -225,8 +225,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-02-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k778v （or） http://www.linkbucks.com/AWqgv
+<br>【百度密碼】：yna1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：皇牌出場
@@ -236,8 +236,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-02-18
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k773x （or） http://www.linkbucks.com/AWqhC
+<br>【百度密碼】：ava4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
