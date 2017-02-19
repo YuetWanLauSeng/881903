@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k7x3K （or） http://www.linkbucks.com/AWwpa
 <br>【百度密碼】：q1mp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1k95qj （or） http://www.linkbucks.com/AW63G
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k7x9x （or） http://www.linkbucks.com/AWwpO
 <br>【百度密碼】：rfna
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1k95cS （or） http://www.linkbucks.com/AW64I
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k7wzV （or） http://www.linkbucks.com/AWwpt
 <br>【百度密碼】：ycf2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1k95nF （or） http://www.linkbucks.com/AW63g
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k8s0j （or） http://www.linkbucks.com/AW4VP
 <br>【百度密碼】：8dzm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1k95gG （or） http://www.linkbucks.com/AW632
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k8sDl （or） http://www.linkbucks.com/AW4PB
 <br>【百度密碼】：jqwy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1k95uD （or） http://www.linkbucks.com/AW622
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k8s4p （or） http://www.linkbucks.com/AW4TN
 <br>【百度密碼】：efj2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1k95xl （or） http://www.linkbucks.com/AW62L
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k8sAC （or） http://www.linkbucks.com/AW4RG
 <br>【百度密碼】：kkah
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1k95jC （or） http://www.linkbucks.com/AW63r
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -82,8 +82,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k95RW （or） http://www.linkbucks.com/AW69q
+<br>【百度密碼】：17wp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：兒童適宜
@@ -93,8 +93,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k95VP （or） http://www.linkbucks.com/AW69a
+<br>【百度密碼】：76ec
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
@@ -104,8 +104,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k95ZY （or） http://www.linkbucks.com/AW67U
+<br>【百度密碼】：mxfs
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -115,8 +115,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k96DJ （or） http://www.linkbucks.com/AW605
+<br>【百度密碼】：hpn3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
@@ -126,8 +126,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1k965b （or） http://www.linkbucks.com/AW61j
+<br>【百度密碼】：wxdj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
