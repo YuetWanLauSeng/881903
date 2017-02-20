@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k95RW （or） http://www.linkbucks.com/AW69q
 <br>【百度密碼】：17wp
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAX8K （or） http://www.linkbucks.com/AXBJ7
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k95VP （or） http://www.linkbucks.com/AW69a
 <br>【百度密碼】：76ec
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXQY （or） http://www.linkbucks.com/AXBIy
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k95ZY （or） http://www.linkbucks.com/AW67U
 <br>【百度密碼】：mxfs
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAX5a （or） http://www.linkbucks.com/AXBKO
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k96DJ （or） http://www.linkbucks.com/AW605
 <br>【百度密碼】：hpn3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXef （or） http://www.linkbucks.com/AXBHy
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k965b （or） http://www.linkbucks.com/AW61j
 <br>【百度密碼】：wxdj
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXKN （or） http://www.linkbucks.com/AXBJe
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k9Ah5 （or） http://www.linkbucks.com/AW6gI
 <br>【百度密碼】：67xe
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXUR （or） http://www.linkbucks.com/AXBIa
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k9Am4 （or） http://www.linkbucks.com/AW6fw
 <br>【百度密碼】：ti3q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXAq （or） http://www.linkbucks.com/AXBJz
 
 <br>【節目名稱】：細路強 
 <br>【節目頻道】：881
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k9BTM （or） http://www.linkbucks.com/AW6dj
 <br>【百度密碼】：vuqm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXXR （or） http://www.linkbucks.com/AXBIQ
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k9Fl6 （or） http://www.linkbucks.com/AW6Ah
 <br>【百度密碼】：j4k3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXNc （or） http://www.linkbucks.com/AXBI4
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k9Fdt （or） http://www.linkbucks.com/AW6BB
 <br>【百度密碼】：g7uv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXDB （or） http://www.linkbucks.com/AXBJu
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1k9FaI （or） http://www.linkbucks.com/AW6BX
 <br>【百度密碼】：y485
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kAXaK （or） http://www.linkbucks.com/AXBIH
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kAWsE （or） http://www.linkbucks.com/AXBLb
+<br>【百度密碼】：d8cv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：寫生活
@@ -225,8 +225,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kAX0J （or） http://www.linkbucks.com/AXBKm
+<br>【百度密碼】：fueb
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -236,6 +236,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-19
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kAWvS （or） http://www.linkbucks.com/AXBLC
+<br>【百度密碼】：uncm
 <br>【MediaFire】： （or）
