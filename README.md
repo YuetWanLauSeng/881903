@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-02-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kCBCQ （or） http://www.linkbucks.com/AXRpl
+<br>【百度密碼】：49u8
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
