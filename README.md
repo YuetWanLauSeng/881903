@@ -192,8 +192,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kCmKR （or） http://www.linkbucks.com/AXMkP
+<br>【百度密碼】：awdp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -203,8 +203,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kCn9m （or） http://www.linkbucks.com/AXMd6
+<br>【百度密碼】：apwq
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -214,8 +214,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-20
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kCmEv （or） http://www.linkbucks.com/AXMkd
+<br>【百度密碼】：dn6r
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
