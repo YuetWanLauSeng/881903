@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kFghz （or） http://www.linkbucks.com/AXUEv
 <br>【百度密碼】：9zmm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kHiaC （or） http://www.linkbucks.com/AXSRa
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -227,7 +227,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kGMfB （or） http://www.linkbucks.com/AXM9a
 <br>【百度密碼】：j9ki
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kHiXt （or） http://www.linkbucks.com/AXSR9
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -246,7 +246,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kGMkn （or） http://www.linkbucks.com/AXM9J
 <br>【百度密碼】：72pd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kHilD （or） http://www.linkbucks.com/AXSML
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -257,7 +257,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kGMbg （or） http://www.linkbucks.com/AXM9p
 <br>【百度密碼】：cwpk
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kHihh （or） http://www.linkbucks.com/AXSMv
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -266,9 +266,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kHiJ2 （or） http://www.linkbucks.com/AXSUK
+<br>【百度密碼】：dufw
+<br>【MediaFire】：http://adf.ly/1kHide （or） http://www.linkbucks.com/AXSN0
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -277,9 +277,9 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-02-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kHiLz （or） http://www.linkbucks.com/AXSTt
+<br>【百度密碼】：ampx
+<br>【MediaFire】：http://adf.ly/1kHifF （or） http://www.linkbucks.com/AXSNR
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -288,8 +288,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-02-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kHiPl （or） http://www.linkbucks.com/AXSTH
+<br>【百度密碼】：sbfx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -299,6 +299,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-21
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kHiSW （or） http://www.linkbucks.com/AXSSi
+<br>【百度密碼】：sq7j
 <br>【MediaFire】： （or）
