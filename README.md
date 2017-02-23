@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQX1 （or） http://www.linkbucks.com/AX5mq
 <br>【百度密碼】：hc9s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYZm （or） http://www.linkbucks.com/AX2UV
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQQu （or） http://www.linkbucks.com/AX5pl
 <br>【百度密碼】：5hx1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYUS （or） http://www.linkbucks.com/AX2VZ
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQLK （or） http://www.linkbucks.com/AX5r8
 <br>【百度密碼】：e3mn
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYbo （or） http://www.linkbucks.com/AX2Ta
 
 <br>【節目名稱】：財政司司長熱線
 <br>【節目頻道】：881
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQar （or） http://www.linkbucks.com/AX5lV
 <br>【百度密碼】：7xmv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYhE （or） http://www.linkbucks.com/AX2Rk
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQTA （or） http://www.linkbucks.com/AX5oO
 <br>【百度密碼】：7ajg
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYfU （or） http://www.linkbucks.com/AX2SO
 
 <br>【節目名稱】：田式生活
 <br>【節目頻道】：881
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQOn （or） http://www.linkbucks.com/AX5qf
 <br>【百度密碼】：9di3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYis （or） http://www.linkbucks.com/AX2RK
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQIF （or） http://www.linkbucks.com/AX5te
 <br>【百度密碼】：5py4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYdb （or） http://www.linkbucks.com/AX2Sn
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQEt （or） http://www.linkbucks.com/AX5uo
 <br>【百度密碼】：3j3d
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYXL （or） http://www.linkbucks.com/AX2U4
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLQdT （or） http://www.linkbucks.com/AX5ku
 <br>【百度密碼】：ayfs
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kLYkg （or） http://www.linkbucks.com/AX2QD
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
