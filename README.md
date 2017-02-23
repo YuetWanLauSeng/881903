@@ -213,8 +213,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-02-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kKxS2 （or） http://www.linkbucks.com/AXr8n
+<br>【百度密碼】：gw9e
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -232,9 +232,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kKxUr （or） http://www.linkbucks.com/AXr8I
+<br>【百度密碼】：yivp
+<br>【MediaFire】：http://adf.ly/1kKxjB （or） http://www.linkbucks.com/AXr4T
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -243,8 +243,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kKxYF （or） http://www.linkbucks.com/AXr7r
+<br>【百度密碼】：ibhy
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -254,8 +254,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-02-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kKxbf （or） http://www.linkbucks.com/AXr6Z
+<br>【百度密碼】：ifcp
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -265,8 +265,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-02-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kKxe8 （or） http://www.linkbucks.com/AXr6A
+<br>【百度密碼】：qw9f
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -276,6 +276,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-22
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kKxgR （or） http://www.linkbucks.com/AXr4z
+<br>【百度密碼】：n3y7
 <br>【MediaFire】： （or）
