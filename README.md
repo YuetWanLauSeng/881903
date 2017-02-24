@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOYLr （or） http://www.linkbucks.com/AX5Zq
 <br>【百度密碼】：41h4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPTNt （or） http://www.linkbucks.com/Bznrr
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOYFk （or） http://www.linkbucks.com/AX5b9
 <br>【百度密碼】：uksd
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPSnU （or） http://www.linkbucks.com/B25Rn
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +29,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOY3h （or） http://www.linkbucks.com/AX5iI
 <br>【百度密碼】：3m54
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPTcr （or） http://www.linkbucks.com/BznbD
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +40,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOYJ1 （or） http://www.linkbucks.com/AX5af
 <br>【百度密碼】：za34
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPT5T （or） http://www.linkbucks.com/BzoLv
 
 <br>【節目名稱】：田式生活
 <br>【節目頻道】：881
@@ -51,7 +51,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOY6y （or） http://www.linkbucks.com/AX5gu
 <br>【百度密碼】：uecy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPTgF （or） http://www.linkbucks.com/BznXU
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +62,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOXu2 （or） http://www.linkbucks.com/AX5mG
 <br>【百度密碼】：2ucs
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPSuV （or） http://www.linkbucks.com/Bzocu
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOXs8 （or） http://www.linkbucks.com/AX5nB
 <br>【百度密碼】：hshe
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPTKC （or） http://www.linkbucks.com/Bznzg
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -84,7 +84,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOYP6 （or） http://www.linkbucks.com/AX5YE
 <br>【百度密碼】：bjmi
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPTj0 （or） http://www.linkbucks.com/BznSo
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOsMb （or） http://www.linkbucks.com/BzJAe
 <br>【百度密碼】：ng8u
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPSyW （or） http://www.linkbucks.com/BzoZZ
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOsUd （or） http://www.linkbucks.com/BzI0X
 <br>【百度密碼】：ipex
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPTa7 （or） http://www.linkbucks.com/BzngK
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOsP6 （or） http://www.linkbucks.com/BzI7o
 <br>【百度密碼】：7r8a
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPTWV （or） http://www.linkbucks.com/Bznjk
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kOsYh （or） http://www.linkbucks.com/BzIvr
 <br>【百度密碼】：yhhy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPTRs （or） http://www.linkbucks.com/BznoO
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kPE6U （or） http://www.linkbucks.com/B1wpw
 <br>【百度密碼】：kx25
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPT1C （or） http://www.linkbucks.com/BzoUP
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kPEBJ （or） http://www.linkbucks.com/B1wod
 <br>【百度密碼】：dscr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPSr9 （or） http://www.linkbucks.com/B25Nj
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kPHtf （or） http://www.linkbucks.com/B24D1
 <br>【百度密碼】：yh7j
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPT2Y （or） http://www.linkbucks.com/BzoOs
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-02-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kPVg8 （or） http://www.linkbucks.com/BztQV
+<br>【百度密碼】：5avv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-02-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kPUpa （or） http://www.linkbucks.com/BzuUB
+<br>【百度密碼】：pu2e
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
