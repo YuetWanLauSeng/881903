@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLe27 （or） http://www.linkbucks.com/AX0ef
 <br>【百度密碼】：4tf4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kMDq5 （or） http://www.linkbucks.com/CAVTZ
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLeE7 （or） http://www.linkbucks.com/AX0aY
 <br>【百度密碼】：3wvy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kMDzq （or） http://www.linkbucks.com/B90d4
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLe9d （or） http://www.linkbucks.com/AX0cN
 <br>【百度密碼】：dgng
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kMDvz （or） http://www.linkbucks.com/B90ne
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLeI3 （or） http://www.linkbucks.com/AX0Zr
 <br>【百度密碼】：sa5e
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kMDt7 （or） http://www.linkbucks.com/CAUap
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLv8K （or） http://www.linkbucks.com/AYDEc
 <br>【百度密碼】：yrf2
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kMDkR （or） http://www.linkbucks.com/CAWbH
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kLv6e （or） http://www.linkbucks.com/AYDEt
 <br>【百度密碼】：ktt1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kMDnD （or） http://www.linkbucks.com/CAV2e
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -170,19 +170,19 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kMDek （or） http://www.linkbucks.com/CBCzp
+<br>【百度密碼】：xkid
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
 <br>【節目日期】：2017-02-23
 <br>【節目主持】：急急子
-<br>【節目時間】：18:00 - 19:00
+<br>【節目時間】：18:00 - 20:00
 <br>【檔案名稱】：Zine.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5rs （or） http://www.linkbucks.com/AXzGr
+<br>【百度密碼】：7zt1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -192,8 +192,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kMOdN （or） http://www.linkbucks.com/AXoGB
+<br>【百度密碼】：r4ab
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -202,10 +202,7 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-02-23
-<br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【節目暫停】：改播『雲妮鍾情』
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -214,8 +211,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5vZ （or） http://www.linkbucks.com/AXzGU
+<br>【百度密碼】：wjcw
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -225,19 +222,19 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5cy （or） http://www.linkbucks.com/AXzIE
+<br>【百度密碼】：vrvv
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
 <br>【節目日期】：2017-02-23
 <br>【節目主持】：Vani
-<br>【節目時間】：21:00 - 23:00
+<br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5Ts （or） http://www.linkbucks.com/AXzJw
+<br>【百度密碼】：a3sd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -247,8 +244,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5gk （or） http://www.linkbucks.com/AXzH0
+<br>【百度密碼】：a549
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -258,8 +255,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5XA （or） http://www.linkbucks.com/AXzIu
+<br>【百度密碼】：v5qh
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -269,8 +266,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5a8 （or） http://www.linkbucks.com/AXzIX
+<br>【百度密碼】：s617
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -280,8 +277,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5j5 （or） http://www.linkbucks.com/AXzHm
+<br>【百度密碼】：vyh3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -291,8 +288,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5m7 （or） http://www.linkbucks.com/AXzHQ
+<br>【百度密碼】：m8k9
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -302,6 +299,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-23
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kO5oX （or） http://www.linkbucks.com/AXzG9
+<br>【百度密碼】：ypi2
 <br>【MediaFire】： （or）
