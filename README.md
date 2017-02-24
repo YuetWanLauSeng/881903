@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kMDek （or） http://www.linkbucks.com/CBCzp
 <br>【百度密碼】：xkid
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kO7zE （or） http://www.linkbucks.com/AXysH
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kO5rs （or） http://www.linkbucks.com/AXzGr
 <br>【百度密碼】：7zt1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kO7r6 （or） http://www.linkbucks.com/AXyvC
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kMOdN （or） http://www.linkbucks.com/AXoGB
 <br>【百度密碼】：r4ab
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kO7wm （or） http://www.linkbucks.com/AXysS
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -213,7 +213,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kO5vZ （or） http://www.linkbucks.com/AXzGU
 <br>【百度密碼】：wjcw
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kO7tX （or） http://www.linkbucks.com/AXyuQ
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -224,7 +224,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kO5cy （or） http://www.linkbucks.com/AXzIE
 <br>【百度密碼】：vrvv
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kO7ja （or） http://www.linkbucks.com/AXyvn
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -257,7 +257,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kO5XA （or） http://www.linkbucks.com/AXzIu
 <br>【百度密碼】：v5qh
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kO7gm （or） http://www.linkbucks.com/AXyv2
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
