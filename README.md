@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 20:00
 <br>【檔案名稱】：Zine.2017-02-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：5avv
+<br>【百度雲盤】：http://adf.ly/1kPxxR （or） http://www.linkbucks.com/AX4Pa
+<br>【百度密碼】：x4yd
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kPUpa （or） http://www.linkbucks.com/BzuUB
 <br>【百度密碼】：pu2e
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kPj4h （or） http://www.linkbucks.com/AX4Nh
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -200,8 +200,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kPy5N （or） http://www.linkbucks.com/AX4Od
+<br>【百度密碼】：i2a3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -211,8 +211,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-24
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kPyGX （or） http://www.linkbucks.com/AX4NH
+<br>【百度密碼】：ngdt
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雲妮鍾情
