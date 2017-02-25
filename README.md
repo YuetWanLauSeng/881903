@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kSGR3 （or） http://www.linkbucks.com/B09Tl
 <br>【百度密碼】：iv41
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kSSmK （or） http://www.linkbucks.com/B1Jwo
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kSGD7 （or） http://www.linkbucks.com/B09kN
 <br>【百度密碼】：g92q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kSSqg （or） http://www.linkbucks.com/B1Jss
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -148,8 +148,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-02-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kSUFP （or） http://www.linkbucks.com/B1bZC
+<br>【百度密碼】：kc8d
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：3號螺絲釘
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-02-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kSUAd （or） http://www.linkbucks.com/B1bgp
+<br>【百度密碼】：1kyx
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：第三齡接觸
