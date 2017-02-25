@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kSUFP （or） http://www.linkbucks.com/B1bZC
 <br>【百度密碼】：kc8d
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kT2CK （or） http://www.linkbucks.com/B19Mt
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kSUAd （or） http://www.linkbucks.com/B1bgp
 <br>【百度密碼】：1kyx
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kT29r （or） http://www.linkbucks.com/B19QP
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -170,9 +170,9 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-02-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kT0Oh （or） http://www.linkbucks.com/B2BiL
+<br>【百度密碼】：76uz
+<br>【MediaFire】：http://adf.ly/1kT26a （or） http://www.linkbucks.com/B19WZ
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-02-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kT0UU （or） http://www.linkbucks.com/B2Bap
+<br>【百度密碼】：n5u2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
@@ -192,8 +192,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-02-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kT1lb （or） http://www.linkbucks.com/B193J
+<br>【百度密碼】：s75f
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -203,8 +203,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-02-25
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kT0aQ （or） http://www.linkbucks.com/B2BSD
+<br>【百度密碼】：4q7p
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
