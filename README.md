@@ -73,7 +73,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kVX24 （or） http://www.linkbucks.com/B4rxD
 <br>【百度密碼】：vfxs
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kVgsV （or） http://www.linkbucks.com/B42qr
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -93,8 +93,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kVgi8 （or） http://www.linkbucks.com/B42uA
+<br>【百度密碼】：u7ri
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
@@ -104,8 +104,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kVgXM （or） http://www.linkbucks.com/B42zF
+<br>【百度密碼】：peq1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -115,8 +115,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kVgTD （or） http://www.linkbucks.com/B4205
+<br>【百度密碼】：anct
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：讀懂中國
@@ -126,8 +126,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kVhi5 （or） http://www.linkbucks.com/B42W7
+<br>【百度密碼】：v5fk
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
@@ -137,7 +137,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
+<br>【百度雲盤】：
 <br>【百度密碼】：
 <br>【MediaFire】： （or） 
 
