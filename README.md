@@ -159,8 +159,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kVxOO （or） http://www.linkbucks.com/B47vE
+<br>【百度密碼】：vmqr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
