@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kVgi8 （or） http://www.linkbucks.com/B42uA
 <br>【百度密碼】：u7ri
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kXao6 （or） http://www.linkbucks.com/B5yij
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kVxOO （or） http://www.linkbucks.com/B47vE
 <br>【百度密碼】：vmqr
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kXawc （or） http://www.linkbucks.com/B5yUW
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kW6dg （or） http://www.linkbucks.com/B5FJJ
 <br>【百度密碼】：m275
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kXayx （or） http://www.linkbucks.com/B5yQ8
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -194,7 +194,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kW6kz （or） http://www.linkbucks.com/B5FFV
 <br>【百度密碼】：79e9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kXb0q （or） http://www.linkbucks.com/B5yO3
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
@@ -203,8 +203,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kXaWz （or） http://www.linkbucks.com/B5rql
+<br>【百度密碼】：ribe
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：心靈料理
@@ -214,9 +214,9 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kXaPQ （or） http://www.linkbucks.com/B5ryD
+<br>【百度密碼】：fngp
+<br>【MediaFire】：http://adf.ly/1kXate （or） http://www.linkbucks.com/B5yet
 
 <br>【節目名稱】：寫生活
 <br>【節目頻道】：881
@@ -225,9 +225,9 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kXaT2 （or） http://www.linkbucks.com/B5rvd
+<br>【百度密碼】：bffd
+<br>【MediaFire】：http://adf.ly/1kXarM （or） http://www.linkbucks.com/B5yhC
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -236,6 +236,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-02-26
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kXaRe （or） http://www.linkbucks.com/B5rxo
+<br>【百度密碼】：u5x8
 <br>【MediaFire】： （or）
