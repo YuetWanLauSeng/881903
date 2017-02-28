@@ -172,7 +172,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kdXOa （or） http://www.linkbucks.com/B9c5I
 <br>【百度密碼】：4eu1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdknJ （or） http://www.linkbucks.com/B9oEk
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -202,7 +202,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kdXGn （or） http://www.linkbucks.com/B9dDZ
 <br>【百度密碼】：xq3v
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdkuk （or） http://www.linkbucks.com/B9oDB
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -211,9 +211,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-02-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kdiiV （or） http://www.linkbucks.com/B9i0Y
+<br>【百度密碼】：vusv
+<br>【MediaFire】：http://adf.ly/1kdkbt （or） http://www.linkbucks.com/B9oGz
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
