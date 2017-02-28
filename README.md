@@ -137,8 +137,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-02-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kdMWR （or） http://www.linkbucks.com/B9Udj
+<br>【百度密碼】：fv64
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -148,8 +148,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-02-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kdMSh （or） http://www.linkbucks.com/B9Uft
+<br>【百度密碼】：26q4
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -159,8 +159,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-02-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kdMZi （or） http://www.linkbucks.com/B9Uc0
+<br>【百度密碼】：tyms
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
