@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kcr3j （or） http://www.linkbucks.com/B8717
 <br>【百度密碼】：qb9q
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdX4r （or） http://www.linkbucks.com/B9dLm
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kcqnd （or） http://www.linkbucks.com/B88Rp
 <br>【百度密碼】：22sy
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdXE9 （or） http://www.linkbucks.com/B9dFl
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kcqw4 （or） http://www.linkbucks.com/B88BK
 <br>【百度密碼】：8i7e
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdXB4 （or） http://www.linkbucks.com/B9dHj
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kcr01 （or） http://www.linkbucks.com/B876A
 <br>【百度密碼】：qra1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdX7q （or） http://www.linkbucks.com/B9dIs
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kdMWR （or） http://www.linkbucks.com/B9Udj
 <br>【百度密碼】：fv64
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdWz6 （or） http://www.linkbucks.com/B9dQD
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -150,7 +150,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kdMSh （or） http://www.linkbucks.com/B9Uft
 <br>【百度密碼】：26q4
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdWr0 （or） http://www.linkbucks.com/B9dVL
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -161,7 +161,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kdMZi （or） http://www.linkbucks.com/B9Uc0
 <br>【百度密碼】：tyms
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdP8b （or） http://www.linkbucks.com/B9dOE
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -170,8 +170,8 @@
 <br>【節目時間】：18:00 - 20:00
 <br>【檔案名稱】：Zine.2017-02-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kdXOa （or） http://www.linkbucks.com/B9c5I
+<br>【百度密碼】：4eu1
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -183,7 +183,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kdP5W （or） http://www.linkbucks.com/B9Z4R
 <br>【百度密碼】：vd7s
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kdWvn （or） http://www.linkbucks.com/B9dSG
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -200,8 +200,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-02-28
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kdXGn （or） http://www.linkbucks.com/B9dDZ
+<br>【百度密碼】：xq3v
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
