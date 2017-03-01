@@ -139,7 +139,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kgb85 （or） http://www.linkbucks.com/CBX7R
 <br>【百度密碼】：wvhm
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kgh8q （or） http://www.linkbucks.com/CBYxN
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -169,7 +169,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kgczq （or） http://www.linkbucks.com/CBWXJ
 <br>【百度密碼】：tt6n
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kghRD （or） http://www.linkbucks.com/CBYlD
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
