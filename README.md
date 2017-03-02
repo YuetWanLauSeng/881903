@@ -208,8 +208,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-03-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1klxba （or） http://www.linkbucks.com/CEaCC
+<br>【百度密碼】：fjmj
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
