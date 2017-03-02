@@ -222,6 +222,7 @@
 <br>【百度雲盤】：http://adf.ly/1km6e2 （or） http://www.linkbucks.com/CEWh5
 <br>【百度密碼】：vf7d
 <br>【MediaFire】： （or） 
+<br>【城通雲盤】：https://yuetwanlauseng.ctfile.com/fs/tfR173478236
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -230,8 +231,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-03-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kmUy5 （or） http://www.linkbucks.com/CEnG2
+<br>【百度密碼】：ww5e
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -241,8 +242,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-03-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kmV55 （or） http://www.linkbucks.com/CEnEv
+<br>【百度密碼】：gpp2
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -252,9 +253,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-03-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kmUrl （or） http://www.linkbucks.com/CEnJ9
+<br>【百度密碼】：gpv7
 <br>【MediaFire】： （or） 
+<br>【城通雲盤】：https://yuetwanlauseng.ctfile.com/fs/wcg173480848
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
