@@ -95,7 +95,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kl49P （or） http://www.linkbucks.com/CDreL
 <br>【百度密碼】：uvk7
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1klUgi （or） http://www.linkbucks.com/CD8HU
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kl3jm （or） http://www.linkbucks.com/CDrvr
 <br>【百度密碼】：ryc1
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1klUtB （or） http://www.linkbucks.com/CD8DP
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -117,7 +117,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kl3rb （or） http://www.linkbucks.com/CDrrR
 <br>【百度密碼】：6fhc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1klUq9 （or） http://www.linkbucks.com/CD8FN
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kl3xY （or） http://www.linkbucks.com/CDrnS
 <br>【百度密碼】：cvsf
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1klUnZ （or） http://www.linkbucks.com/CD8Fc
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Mali Has A Little Lamb.2017-03-02
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1klVRi （or） http://www.linkbucks.com/CEFDd
+<br>【百度密碼】：2us6
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
