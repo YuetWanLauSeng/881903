@@ -186,7 +186,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kqDTK （or） http://www.linkbucks.com/CGccf
 <br>【百度密碼】：7z8r
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kqSJW （or） http://www.linkbucks.com/CGnzd
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -197,7 +197,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kqDHi （or） http://www.linkbucks.com/CGcpE
 <br>【百度密碼】：xmwe
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kqSMl （or） http://www.linkbucks.com/CGnwB
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -216,7 +216,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kqLHK （or） http://www.linkbucks.com/CGlFD
 <br>【百度密碼】：tpx9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kqSSN （or） http://www.linkbucks.com/CGntJ
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -225,9 +225,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kqSe9 （or） http://www.linkbucks.com/CGnmS
+<br>【百度密碼】：e77q
+<br>【MediaFire】：http://adf.ly/1kqT1s （or） http://www.linkbucks.com/CGnT9
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
