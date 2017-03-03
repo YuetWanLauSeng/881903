@@ -7,7 +7,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kowzi （or） http://www.linkbucks.com/CFwtx
 <br>【百度密碼】：jt84
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kpJSg （or） http://www.linkbucks.com/CF2XT
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -18,7 +18,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kow7P （or） http://www.linkbucks.com/CFxNb
 <br>【百度密碼】：p913
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9BQ173541480
+<br>【MediaFire】：http://adf.ly/1kpJle （or） http://www.linkbucks.com/CF2Qv
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -29,7 +30,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kox4a （or） http://www.linkbucks.com/CFwog
 <br>【百度密碼】：wvpu
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kpJbw （or） http://www.linkbucks.com/CF2Sz
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -40,7 +41,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kowLE （or） http://www.linkbucks.com/CFxKU
 <br>【百度密碼】：er5m
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/TvD173540160
+<br>【MediaFire】：http://adf.ly/1kpJXg （or） http://www.linkbucks.com/CF2Vi
 
 <br>【節目名稱】：田式生活
 <br>【節目頻道】：881
@@ -51,7 +53,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1koxAT （or） http://www.linkbucks.com/CFwjz
 <br>【百度密碼】：ygu9
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kpJgX （or） http://www.linkbucks.com/CF2RG
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -62,7 +64,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kowEF （or） http://www.linkbucks.com/CFxMV
 <br>【百度密碼】：fmwc
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bsR173540760
+<br>【MediaFire】：http://adf.ly/1kpJqh （or） http://www.linkbucks.com/CF2PZ
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -73,7 +76,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kowQt （or） http://www.linkbucks.com/CFxHX
 <br>【百度密碼】：j8rz
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kpJIj （or） http://www.linkbucks.com/CF2Z5
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -84,7 +87,8 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kow0g （or） http://www.linkbucks.com/CFxUh
 <br>【百度密碼】：4ugg
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/yFY173538700
+<br>【MediaFire】：http://adf.ly/1kpJur （or） http://www.linkbucks.com/CF2PD
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
