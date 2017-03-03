@@ -144,7 +144,7 @@
 <br>【百度雲盤】：http://adf.ly/1kpfKD （or） http://www.linkbucks.com/CGLA4
 <br>【百度密碼】：ji2y
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2jv173559572
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kq9o7 （or） http://www.linkbucks.com/CGe4E
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -156,7 +156,7 @@
 <br>【百度雲盤】：http://adf.ly/1kpeiH （or） http://www.linkbucks.com/CGC72
 <br>【百度密碼】：b4w5
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Gu5173559912
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kq9rm （or） http://www.linkbucks.com/CGett
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -175,7 +175,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kpijI （or） http://www.linkbucks.com/CGHrO
 <br>【百度密碼】：peqc
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kqAPo （or） http://www.linkbucks.com/CGeqV
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -184,8 +184,8 @@
 <br>【節目時間】：18:00 - 20:00
 <br>【檔案名稱】：Zine.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kqDTK （or） http://www.linkbucks.com/CGccf
+<br>【百度密碼】：7z8r
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -195,8 +195,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kqDHi （or） http://www.linkbucks.com/CGcpE
+<br>【百度密碼】：xmwe
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
