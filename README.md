@@ -197,6 +197,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kqDHi （or） http://www.linkbucks.com/CGcpE
 <br>【百度密碼】：xmwe
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/BOW173586444
 <br>【MediaFire】：http://adf.ly/1kqSMl （or） http://www.linkbucks.com/CGnwB
 
 <br>【節目名稱】：生活日常
@@ -216,6 +217,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kqLHK （or） http://www.linkbucks.com/CGlFD
 <br>【百度密碼】：tpx9
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/7cK173586224
 <br>【MediaFire】：http://adf.ly/1kqSSN （or） http://www.linkbucks.com/CGntJ
 
 <br>【節目名稱】：串
@@ -227,6 +229,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kqSe9 （or） http://www.linkbucks.com/CGnmS
 <br>【百度密碼】：e77q
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ea8173585756
 <br>【MediaFire】：http://adf.ly/1kqT1s （or） http://www.linkbucks.com/CGnT9
 
 <br>【節目名稱】：雲妮鍾情
@@ -236,8 +239,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1kqiUr （or） http://www.linkbucks.com/CGyNj
+<br>【百度密碼】：abz3
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -255,9 +258,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kqiXo （or） http://www.linkbucks.com/CGyMd
+<br>【百度密碼】：cw3w
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/y6X173592620
+<br>【MediaFire】：http://adf.ly/1kqkx6 （or） http://www.linkbucks.com/CGwkf
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -266,9 +270,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
-<br>【MediaFire】： （or） 
+<br>【百度雲盤】：http://adf.ly/1kqiNS （or） http://www.linkbucks.com/CGyP6
+<br>【百度密碼】：xj26
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wer173592964
+<br>【MediaFire】：http://adf.ly/1kqkvV （or） http://www.linkbucks.com/CGwlp
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
