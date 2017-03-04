@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Weekend Lucky Star.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uHq173668860
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kt2Mc （or） http://www.linkbucks.com/AYfrc
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Stockaeologist.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/vyQ173668708
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kt2s1 （or） http://www.linkbucks.com/AYfd3
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Stroke Decryption.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Q2A173676316
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kt2pD （or） http://www.linkbucks.com/AYfea
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：Movies.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/b51173676228
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kt2m4 （or） http://www.linkbucks.com/AYffo
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -125,7 +125,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2I5173678648
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
