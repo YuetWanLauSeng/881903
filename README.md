@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Morning Glory.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/agj173668040
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktDUc （or） http://www.linkbucks.com/AYa57
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：So Sunshine.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fc6173668628
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktDRj （or） http://www.linkbucks.com/AYa6Y
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Saturday Forum.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/04p173668388
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktDMu （or） http://www.linkbucks.com/AYa7J
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：J.A.L.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/pL2173667776
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktDge （or） http://www.linkbucks.com/AYa2b
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：903 Top 20.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3p8173676056
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktDPE （or） http://www.linkbucks.com/AYa6z
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Mr Chef.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qnj173676308
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktDXl （or） http://www.linkbucks.com/AYa43
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：903 Band Time.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2I5173678648
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktDVJ （or） http://www.linkbucks.com/AYa5h
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
