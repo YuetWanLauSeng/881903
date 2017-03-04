@@ -138,7 +138,7 @@
 <br>【檔案名稱】：Circles.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FFl173693104
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kuMIM （or） http://www.linkbucks.com/AYG3S
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -150,7 +150,7 @@
 <br>【檔案名稱】：Quote Chart.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OtH173693368
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kuMM7 （or） http://www.linkbucks.com/AYG2D
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Silver Age Club.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/CZx173696932
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kuMTI （or） http://www.linkbucks.com/AYG1i
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：WonderMelon !.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YOr173698532
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kuMPw （or） http://www.linkbucks.com/AYG1u
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -209,7 +209,7 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Vzu173705072
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
