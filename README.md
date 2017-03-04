@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/agj173668040
 <br>【MediaFire】：http://adf.ly/1ktDUc （or） http://www.linkbucks.com/AYa57
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kth73 （or） http://www.linkbucks.com/AYmGF
+<br>【百度密碼】：hmeb
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fc6173668628
 <br>【MediaFire】：http://adf.ly/1ktDRj （or） http://www.linkbucks.com/AYa6Y
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ktgqb （or） http://www.linkbucks.com/AYmIn
+<br>【百度密碼】：nsga
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/04p173668388
 <br>【MediaFire】：http://adf.ly/1ktDMu （or） http://www.linkbucks.com/AYa7J
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ktguD （or） http://www.linkbucks.com/AYmHw
+<br>【百度密碼】：z46i
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/pL2173667776
 <br>【MediaFire】：http://adf.ly/1ktDge （or） http://www.linkbucks.com/AYa2b
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kthCY （or） http://www.linkbucks.com/AYmFm
+<br>【百度密碼】：4fk2
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uHq173668860
 <br>【MediaFire】：http://adf.ly/1kt2Mc （or） http://www.linkbucks.com/AYfrc
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ktgeQ （or） http://www.linkbucks.com/AYmKq
+<br>【百度密碼】：4ygp
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/vyQ173668708
 <br>【MediaFire】：http://adf.ly/1kt2s1 （or） http://www.linkbucks.com/AYfd3
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ktgkJ （or） http://www.linkbucks.com/AYmJR
+<br>【百度密碼】：sg67
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3p8173676056
 <br>【MediaFire】：http://adf.ly/1ktDPE （or） http://www.linkbucks.com/AYa6z
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kthFy （or） http://www.linkbucks.com/AYmFJ
+<br>【百度密碼】：b4ij
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Q2A173676316
 <br>【MediaFire】：http://adf.ly/1kt2pD （or） http://www.linkbucks.com/AYfea
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ktggM （or） http://www.linkbucks.com/AYmJ3
+<br>【百度密碼】：x79y
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -103,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/b51173676228
 <br>【MediaFire】：http://adf.ly/1kt2m4 （or） http://www.linkbucks.com/AYffo
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kth39 （or） http://www.linkbucks.com/AYmGn
+<br>【百度密碼】：bmfn
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -115,8 +115,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qnj173676308
 <br>【MediaFire】：http://adf.ly/1ktDXl （or） http://www.linkbucks.com/AYa43
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ktgyt （or） http://www.linkbucks.com/AYmHI
+<br>【百度密碼】：4y6i
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -127,8 +127,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2I5173678648
 <br>【MediaFire】：http://adf.ly/1ktDVJ （or） http://www.linkbucks.com/AYa5h
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kthJg （or） http://www.linkbucks.com/AYmEr
+<br>【百度密碼】：92uk
 
 <br>【節目名稱】：1圈圈 (周末版)
 <br>【節目頻道】：881
@@ -137,7 +137,7 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FFl173693104
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -149,7 +149,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OtH173693368
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -161,7 +161,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9xA173693868
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -173,7 +173,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hgk173693724
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
