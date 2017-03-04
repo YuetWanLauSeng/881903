@@ -162,7 +162,7 @@
 <br>【檔案名稱】：The Big Sportsman.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9xA173693868
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktyit （or） http://www.linkbucks.com/AYi6O
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Screw No.3.2017-03-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hgk173693724
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ktyer （or） http://www.linkbucks.com/AYi60
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -185,7 +185,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/CZx173696932
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -197,7 +197,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YOr173698532
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
