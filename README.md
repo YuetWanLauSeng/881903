@@ -241,7 +241,7 @@
 <br>【檔案音質】：高清
 <br>【百度雲盤】：http://adf.ly/1kqiUr （or） http://www.linkbucks.com/CGyNj
 <br>【百度密碼】：abz3
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ksTtu （or） http://www.linkbucks.com/AYMBy
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -282,8 +282,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ksUUJ （or） http://www.linkbucks.com/AYLxZ
+<br>【百度密碼】：6t67
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -293,8 +293,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ksTnv （or） http://www.linkbucks.com/AYMCr
+<br>【百度密碼】：arqr
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -304,8 +304,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-03-03
 <br>【檔案音質】：高清
-<br>【百度雲盤】： （or） 
-<br>【百度密碼】：
+<br>【百度雲盤】：http://adf.ly/1ksTi3 （or） http://www.linkbucks.com/AYMDk
+<br>【百度密碼】：fq7s
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
