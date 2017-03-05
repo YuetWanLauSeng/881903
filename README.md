@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cqL173726788
 <br>【MediaFire】：http://adf.ly/1kwsZf （or） http://www.linkbucks.com/AYJNU
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kxJCT （or） http://www.linkbucks.com/AYS89
+<br>【百度密碼】：ydt6
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -114,9 +114,9 @@
 <br>【檔案名稱】：Mali Mali Home.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/K9f173748584
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1kxO81 （or） http://www.linkbucks.com/AYSYV
+<br>【百度網盤】：http://adf.ly/1kxJIw （or） http://www.linkbucks.com/AYS3p
+<br>【百度密碼】：t98w
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -126,9 +126,9 @@
 <br>【檔案名稱】：Sino Stream.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4qJ173748708
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1kxODn （or） http://www.linkbucks.com/AYSXx
+<br>【百度網盤】：http://adf.ly/1kxJFk （or） http://www.linkbucks.com/AYS8p
+<br>【百度密碼】：ag9w
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -137,10 +137,10 @@
 <br>【節目時間】：19:00 - 19:30
 <br>【檔案名稱】：Sino Stream - Reading.2017-03-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/7Aw173751100
+<br>【MediaFire】：http://adf.ly/1kxOAu （or） http://www.linkbucks.com/AYSX8
+<br>【百度網盤】：http://adf.ly/1kxMDq （or） http://www.linkbucks.com/AYSeY
+<br>【百度密碼】：mfuw
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
