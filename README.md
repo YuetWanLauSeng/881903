@@ -149,8 +149,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-03-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ddB173754956
+<br>【MediaFire】：http://adf.ly/1ky04o （or） http://www.linkbucks.com/AYY3f
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -158,11 +158,11 @@
 <br>【節目頻道】：881
 <br>【節目日期】：2017-03-05
 <br>【節目主持】：伍甄琪
-<br>【節目時間】：19:30 - 21:30
+<br>【節目時間】：19:30 - 21:00
 <br>【檔案名稱】：Debate for Chief Executive Candidates
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/7JX173764784
+<br>【MediaFire】：http://adf.ly/1ky00V （or） http://www.linkbucks.com/AYY4D
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -170,7 +170,7 @@
 <br>【節目頻道】：881
 <br>【節目日期】：2017-03-05
 <br>【節目主持】：伍甄琪 | 伍悅
-<br>【節目時間】：21:30 - 22:00
+<br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：
@@ -193,8 +193,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-03-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4Ir173766164
+<br>【MediaFire】：http://adf.ly/1kxzsW （or） http://www.linkbucks.com/AYY4r
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -205,7 +205,7 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-03-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/HtD173765348
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -217,8 +217,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-03-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/E9A173766952
+<br>【MediaFire】：http://adf.ly/1kxzxh （or） http://www.linkbucks.com/AYY4X
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
