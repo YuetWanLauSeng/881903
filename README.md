@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/EIy173726948
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kwkGz （or） http://www.linkbucks.com/AYKl1
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -89,7 +89,7 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-03-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sAv173732976
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
