@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Reading Time.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/RoF173725208
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kwsWX （or） http://www.linkbucks.com/AYJOB
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：Star House.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Bmy173725844
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kwsUO （or） http://www.linkbucks.com/AYJOX
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GMh173724728
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kwsYC （or） http://www.linkbucks.com/AYJNl
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：Urban Touch.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cqL173726788
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kwsZf （or） http://www.linkbucks.com/AYJNU
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Road Co-op.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sax173725368
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kwsbd （or） http://www.linkbucks.com/AYJMv
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：The Way We Are.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Mkd173726868
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kwsdO （or） http://www.linkbucks.com/AYJMU
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Binge-Watch.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sAv173732976
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1kwsSV （or） http://www.linkbucks.com/AYJOy
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
