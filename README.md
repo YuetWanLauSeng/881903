@@ -139,8 +139,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FFl173693104
 <br>【MediaFire】：http://adf.ly/1kuMIM （or） http://www.linkbucks.com/AYG3S
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kwABF （or） http://www.linkbucks.com/AYgk0
+<br>【百度密碼】：6q2h
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OtH173693368
 <br>【MediaFire】：http://adf.ly/1kuMM7 （or） http://www.linkbucks.com/AYG2D
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kwA7F （or） http://www.linkbucks.com/AYgna
+<br>【百度密碼】：jvqa
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9xA173693868
 <br>【MediaFire】：http://adf.ly/1ktyit （or） http://www.linkbucks.com/AYi6O
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kw9sX （or） http://www.linkbucks.com/AYgvC
+<br>【百度密碼】：8ufp
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -175,8 +175,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hgk173693724
 <br>【MediaFire】：http://adf.ly/1ktyer （or） http://www.linkbucks.com/AYi60
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kwA2S （or） http://www.linkbucks.com/AYgnv
+<br>【百度密碼】：uyys
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -187,8 +187,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/CZx173696932
 <br>【MediaFire】：http://adf.ly/1kuMTI （or） http://www.linkbucks.com/AYG1i
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kw9wz （or） http://www.linkbucks.com/AYgoG
+<br>【百度密碼】：xkaq
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -199,8 +199,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YOr173698532
 <br>【MediaFire】：http://adf.ly/1kuMPw （or） http://www.linkbucks.com/AYG1u
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1kw9oD （or） http://www.linkbucks.com/AYgvw
+<br>【百度密碼】：q569
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -245,7 +245,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-03-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/eLQ173720976
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
