@@ -206,7 +206,7 @@
 <br>【檔案名稱】：Readers for Riders.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/HtD173765348
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l06lK （or） http://www.linkbucks.com/AYjqW
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -230,7 +230,7 @@
 <br>【檔案名稱】：Short-term Lease.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jbW173779944
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l06hi （or） http://www.linkbucks.com/AYkAt
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -242,7 +242,7 @@
 <br>【檔案名稱】：Feed Your Soul.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/N8W173779564
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l06su （or） http://www.linkbucks.com/AYjp0
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -254,7 +254,7 @@
 <br>【檔案名稱】：Bedtime Readings.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/h4U173779464
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l06ol （or） http://www.linkbucks.com/AYjqB
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -266,6 +266,6 @@
 <br>【檔案名稱】：Begin with Music.2017-03-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/LT6173780208
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l06di （or） http://www.linkbucks.com/AYj3O
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
