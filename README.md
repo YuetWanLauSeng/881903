@@ -182,7 +182,7 @@
 <br>【檔案名稱】：Mali Has A Little Lamb.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wEL173819340
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l1wBx （or） http://www.linkbucks.com/AZBZ5
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -194,7 +194,7 @@
 <br>【檔案名稱】：Zine.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YlS173831932
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l1wCm （or） http://www.linkbucks.com/AZBYv
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -206,7 +206,7 @@
 <br>【檔案名稱】：Our Way Out.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xzQ173832432
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l1wEh （or） http://www.linkbucks.com/AZBYI
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -218,7 +218,7 @@
 <br>【檔案名稱】：My Daily Life.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ego173834376
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l1w7B （or） http://www.linkbucks.com/AZBbA
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -230,7 +230,7 @@
 <br>【檔案名稱】：Tea For You.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OMH173836528
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l1wH7 （or） http://www.linkbucks.com/AZBX3
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -241,8 +241,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-03-06
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6Ux173842184
+<br>【MediaFire】：http://adf.ly/1l1wvo （or） http://www.linkbucks.com/AZBO0
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
