@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-03-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Kld173888344
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l5HDh （or） http://www.linkbucks.com/AZI5W
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-03-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3nd173887112
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l5H9L （or） http://www.linkbucks.com/AZIw7
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -181,7 +181,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Mali Has A Little Lamb.2017-03-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/KEc174011552
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
