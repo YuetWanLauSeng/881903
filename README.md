@@ -254,7 +254,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fRr173850696
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l3i7F （or） http://www.linkbucks.com/AYrkj
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -266,7 +266,7 @@
 <br>【檔案名稱】：Reading Time.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jK2173850596
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l3iKM （or） http://www.linkbucks.com/AYrh3
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -302,7 +302,7 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jlr173857784
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l3iHC （or） http://www.linkbucks.com/AYri1
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -314,7 +314,7 @@
 <br>【檔案名稱】：Canto Pop.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cUa173857688
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l3iBl （or） http://www.linkbucks.com/AYrj0
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -326,6 +326,6 @@
 <br>【檔案名稱】：Begin with Music.2017-03-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jca173857668
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l3i3W （or） http://www.linkbucks.com/AYrmM
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
