@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/yVp173879724
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l4jse （or） http://www.linkbucks.com/AY6nG
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/APG173879500
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l4j8P （or） http://www.linkbucks.com/AY6bH
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-03-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/04g173879356
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l4j3R （or） http://www.linkbucks.com/AY6ZQ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-03-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1my173879236
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1l4j11 （or） http://www.linkbucks.com/AY6fZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
