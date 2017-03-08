@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WzK174492260
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lBJwr （or） http://www.linkbucks.com/AY1oW
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-03-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nbO174511700
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lBK2l （or） http://www.linkbucks.com/AY1ns
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -149,7 +149,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-03-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mTT174517144
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -161,7 +161,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-03-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/pRW174517424
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
