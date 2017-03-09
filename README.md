@@ -266,7 +266,7 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4lf174573588
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lDeKr （or） http://www.linkbucks.com/AZYd2
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -277,8 +277,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nIe174574686
+<br>【MediaFire】：http://adf.ly/1lDeb4 （or） http://www.linkbucks.com/AZYXG
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -289,8 +289,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-03-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/BCp174574632
+<br>【MediaFire】：http://adf.ly/1lDeQM （or） http://www.linkbucks.com/AZYYp
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -301,7 +301,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-03-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2Yv174574593
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
