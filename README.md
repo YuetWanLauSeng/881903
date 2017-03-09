@@ -206,7 +206,7 @@
 <br>【檔案名稱】：My Daily Life.2017-03-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/8HB174535744
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lDJTp （or） http://www.linkbucks.com/AZbmE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-03-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/eyu174539744
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lDJPX （or） http://www.linkbucks.com/AZbmM
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -254,7 +254,7 @@
 <br>【檔案名稱】：Summit.2017-03-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Lf7174540840
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lDIXb （or） http://www.linkbucks.com/AZbrU
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -265,7 +265,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4lf174573588
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
