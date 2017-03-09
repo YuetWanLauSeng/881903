@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jCS174588789
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lEiha （or） http://www.linkbucks.com/AZO3w
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,8 +173,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-03-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/l3o174590712
+<br>【MediaFire】：http://adf.ly/1lEm3T （or） http://www.linkbucks.com/AZOnQ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
