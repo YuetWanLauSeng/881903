@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/X4t174578520
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lE7qm （or） http://www.linkbucks.com/AZk39
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Q1a174578235
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lE7hD （or） http://www.linkbucks.com/AZk5l
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/77E174576537
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lE81d （or） http://www.linkbucks.com/AZk2p
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5JX174578415
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lE7vv （or） http://www.linkbucks.com/AZk3E
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：James Tien & Friends.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/brC174576615
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lE8Ak （or） http://www.linkbucks.com/AZk2M
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Kyl174576339
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lE7mn （or） http://www.linkbucks.com/AZk4v
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JWG174576045
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lE7c2 （or） http://www.linkbucks.com/AZk6x
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uJ3174578559
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lE8GW （or） http://www.linkbucks.com/AZk1u
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
