@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Zine.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lF8Vf （or） http://www.linkbucks.com/Dyfp
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：Our Way Out.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lF8N2 （or） http://www.linkbucks.com/ASlDH
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
