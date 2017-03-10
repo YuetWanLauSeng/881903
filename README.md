@@ -246,7 +246,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Gm5175425572
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lGDX4 （or） http://www.linkbucks.com/AYIdO
 <br>【百度網盤】：http://adf.ly/1lFitR （or） http://www.linkbucks.com/AZXUo
 <br>【百度密碼】：fecv
 
@@ -258,7 +258,7 @@
 <br>【檔案名稱】：Reading Time.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OqD175424135
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lGDYk （or） http://www.linkbucks.com/AWXkw
 <br>【百度網盤】：http://adf.ly/1lFip4 （or） http://www.linkbucks.com/AZXVG
 <br>【百度密碼】：39ut
 
@@ -270,7 +270,7 @@
 <br>【檔案名稱】：Summit.2017-03-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/CM6175425707
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lGDY6 （or） http://www.linkbucks.com/AWatw
 <br>【百度網盤】：http://adf.ly/1lFimc （or） http://www.linkbucks.com/AZXVd
 <br>【百度密碼】：92bv
 
@@ -281,7 +281,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6AV175437185
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -293,7 +293,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/p7I175437014
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -305,7 +305,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-03-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fbU175436861
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
