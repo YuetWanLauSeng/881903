@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GhU175454963
 <br>【MediaFire】：http://adf.ly/1lGm6H （or） http://www.linkbucks.com/AZdRV
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lI2ex （or） http://www.linkbucks.com/AZaRJ
+<br>【百度密碼】：y5h7
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Iki175471586
 <br>【MediaFire】：http://adf.ly/1lHfBx （or） http://www.linkbucks.com/AZjkq
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lI2Yb （or） http://www.linkbucks.com/AZaRs
+<br>【百度密碼】：hidc
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -174,9 +174,9 @@
 <br>【檔案名稱】：Dokureioukoku.2017-03-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tEt175474184
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lI2I6 （or） http://www.linkbucks.com/AZaT1
+<br>【百度網盤】：http://adf.ly/1lI2lA （or） http://www.linkbucks.com/AZaOP
+<br>【百度密碼】：i7j3
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -185,7 +185,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-03-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hO7175484684
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -197,7 +197,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-03-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/7k7175484888
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
