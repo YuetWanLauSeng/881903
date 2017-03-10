@@ -139,8 +139,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gPE175467992
 <br>【MediaFire】：http://adf.ly/1lHPDO （or） http://www.linkbucks.com/AZl9t
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lIJX9 （or） http://www.linkbucks.com/AZVHW
+<br>【百度密碼】：g936
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OpK175471931
 <br>【MediaFire】：http://adf.ly/1lHfA6 （or） http://www.linkbucks.com/AZjk3
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lIJdJ （or） http://www.linkbucks.com/AZVEs
+<br>【百度密碼】：ar9y
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -186,9 +186,9 @@
 <br>【檔案名稱】：Zine.2017-03-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hO7175484684
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lIKAQ （or） http://www.linkbucks.com/AZU0i
+<br>【百度網盤】：http://adf.ly/1lIJoZ （or） http://www.linkbucks.com/AZU1c
+<br>【百度密碼】：sxuh
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -198,9 +198,9 @@
 <br>【檔案名稱】：Our Way Out.2017-03-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/7k7175484888
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lIK0r （or） http://www.linkbucks.com/AZVHQ
+<br>【百度網盤】：http://adf.ly/1lIJwj （or） http://www.linkbucks.com/AZU1H
+<br>【百度密碼】：m8hc
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -209,7 +209,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-03-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1Pg175510262
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -221,7 +221,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-03-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9Dt175510517
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
