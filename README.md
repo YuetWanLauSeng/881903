@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/oY1175911101
 <br>【MediaFire】：http://adf.ly/1lKhAq （or） http://www.linkbucks.com/AZ1Z2
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lMOsG （or） http://www.linkbucks.com/Aabe1
+<br>【百度密碼】：a3e5
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/H7s175911437
 <br>【MediaFire】：http://adf.ly/1lKhj8 （or） http://www.linkbucks.com/AZ1Mk
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lMNeX （or） http://www.linkbucks.com/AacLt
+<br>【百度密碼】：isuh
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gkP175910891
 <br>【MediaFire】：http://adf.ly/1lKhUl （or） http://www.linkbucks.com/AZ1Ow
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lMOxC （or） http://www.linkbucks.com/AabdG
+<br>【百度密碼】：ck6y
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：http://10715768.d.yyupload.com/down/10715768/903 Top 20.2017-03-11.mp3
 <br>【MediaFire】：http://adf.ly/1lKwKR （or） http://www.linkbucks.com/AZvYx
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lMP3j （or） http://www.linkbucks.com/Aabak
+<br>【百度密碼】：yqp9
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -103,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/PTM176011952
 <br>【MediaFire】：http://adf.ly/1lKwNj （or） http://www.linkbucks.com/AZvX5
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lMOlp （or） http://www.linkbucks.com/AablD
+<br>【百度密碼】：9gb9
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -115,8 +115,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/u0T176006000
 <br>【MediaFire】：http://adf.ly/1lKwRQ （or） http://www.linkbucks.com/AZvWC
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lMORz （or） http://www.linkbucks.com/Aabwe
+<br>【百度密碼】：8vf4
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -127,8 +127,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6Ov176018756
 <br>【MediaFire】：http://adf.ly/1lKzHC （or） http://www.linkbucks.com/AZuXY
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lMP8y （or） http://www.linkbucks.com/AabZJ
+<br>【百度密碼】：bhmn
 
 <br>【節目名稱】：1圈圈 (周末版)
 <br>【節目頻道】：881
