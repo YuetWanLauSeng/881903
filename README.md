@@ -138,9 +138,9 @@
 <br>【檔案名稱】：Sino Stream - Reading.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/h0j176283819
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lNwgP （or） http://www.linkbucks.com/AZq72
+<br>【百度網盤】：http://adf.ly/1lNx2Q （or） http://www.linkbucks.com/AZqdx
+<br>【百度密碼】：vehe
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
