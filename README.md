@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Reading Time.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2Dq176194574
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNiJf （or） http://www.linkbucks.com/AacYF
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1WQ176192228
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNiHm （or） http://www.linkbucks.com/AacZ5
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：Urban Touch.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jBp176203391
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNiKe （or） http://www.linkbucks.com/AacXE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/TO6176207522
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNiGc （or） http://www.linkbucks.com/Aacbq
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Binge-Watch.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OOz176222659
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNiIc （or） http://www.linkbucks.com/AacYw
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
