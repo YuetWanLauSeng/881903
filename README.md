@@ -18,7 +18,7 @@
 <br>【檔案名稱】：Star House.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/adc176200997
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNfwU （or） http://www.linkbucks.com/AagjH
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Road Co-op.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rqa176195678
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNfx6 （or） http://www.linkbucks.com/Aaghz
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：The Way We Are.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ggV176204576
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNfxt （or） http://www.linkbucks.com/Aagg4
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -89,7 +89,7 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-03-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OOz176222659
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
