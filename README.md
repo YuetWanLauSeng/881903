@@ -149,7 +149,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-03-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sdm176300607
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -161,8 +161,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-03-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kIy176301863
+<br>【MediaFire】：http://adf.ly/1lO2pZ （or） http://www.linkbucks.com/AaFtg
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,7 +173,7 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-03-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Heq176306895
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
