@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0Gf175913144
 <br>【MediaFire】：http://adf.ly/1lKhaQ （or） http://www.linkbucks.com/AZ1Q5
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNGD0 （or） http://www.linkbucks.com/AaMlv
+<br>【百度密碼】：khr4
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QzE175913303
 <br>【MediaFire】：http://adf.ly/1lKhpD （or） http://www.linkbucks.com/AZ1In
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNFwB （or） http://www.linkbucks.com/AaMqB
+<br>【百度密碼】：vz8k
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kuO175913714
 <br>【MediaFire】：http://adf.ly/1lKhmV （or） http://www.linkbucks.com/AZ1J1
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNG9r （or） http://www.linkbucks.com/AaMmR
+<br>【百度密碼】：un67
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iL5176006285
 <br>【MediaFire】：http://adf.ly/1lKwVM （or） http://www.linkbucks.com/AZvUo
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNG60 （or） http://www.linkbucks.com/AaMnP
+<br>【百度密碼】：4r78
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -139,8 +139,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Y0P176072204
 <br>【MediaFire】：http://adf.ly/1lMEvw （or） http://www.linkbucks.com/AaiDg
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNGQp （or） http://www.linkbucks.com/AaMhd
+<br>【百度密碼】：tw9r
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WjW176072468
 <br>【MediaFire】：http://adf.ly/1lMEsK （or） http://www.linkbucks.com/AaiHi
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNGNK （or） http://www.linkbucks.com/AaMjZ
+<br>【百度密碼】：vaky
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Suh176073335
 <br>【MediaFire】：http://adf.ly/1lMF1Z （or） http://www.linkbucks.com/Aah7y
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNG34 （or） http://www.linkbucks.com/AaMoB
+<br>【百度密碼】：spgg
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -175,8 +175,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/BvP176073230
 <br>【MediaFire】：http://adf.ly/1lMC4i （or） http://www.linkbucks.com/Aaijp
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNGKX （or） http://www.linkbucks.com/AaMj7
+<br>【百度密碼】：fdri
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -187,8 +187,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cH4176078627
 <br>【MediaFire】：http://adf.ly/1lMEXO （or） http://www.linkbucks.com/Aaibk
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNGHD （or） http://www.linkbucks.com/AaMk0
+<br>【百度密碼】：5gby
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -199,8 +199,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fIG176080394
 <br>【MediaFire】：http://adf.ly/1lMEy6 （or） http://www.linkbucks.com/AaiAG
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNFsO （or） http://www.linkbucks.com/AaMsX
+<br>【百度密碼】：6vgn
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -211,8 +211,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Bp2176096279
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNGbj （or） http://www.linkbucks.com/AaMe6
+<br>【百度密碼】：fwe5
 
 <br>【節目名稱】：Chi Chung's Class
 <br>【節目頻道】：903
@@ -223,8 +223,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9GM176099279
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lNGY3 （or） http://www.linkbucks.com/AaMf7
+<br>【百度密碼】：jwha
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -245,7 +245,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-03-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/C2t176161592
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
