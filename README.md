@@ -210,7 +210,7 @@
 <br>【檔案名稱】：881 Music Station.2017-03-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Bp2176096279
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNTQI （or） http://www.linkbucks.com/AaGsL
 <br>【百度網盤】：http://adf.ly/1lNGbj （or） http://www.linkbucks.com/AaMe6
 <br>【百度密碼】：fwe5
 
@@ -222,7 +222,7 @@
 <br>【檔案名稱】：Chi Chung's Class.2017-03-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9GM176099279
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNTSl （or） http://www.linkbucks.com/AaGp5
 <br>【百度網盤】：http://adf.ly/1lNGY3 （or） http://www.linkbucks.com/AaMf7
 <br>【百度密碼】：jwha
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Education Forum.2017-03-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1Td176170619
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNTOF （or） http://www.linkbucks.com/AaGud
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -246,7 +246,7 @@
 <br>【檔案名稱】：The Playtoy Mansion.2017-03-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/C2t176161592
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNTHR （or） http://www.linkbucks.com/AaG0n
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -258,7 +258,7 @@
 <br>【檔案名稱】：Fat’s Lifestyle.2017-03-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nOd176172272
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNTK0 （or） http://www.linkbucks.com/AaGxR
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -270,7 +270,7 @@
 <br>【檔案名稱】：Losing Eleven.2017-03-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/E8t176173229
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lNTLo （or） http://www.linkbucks.com/AaGve
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
