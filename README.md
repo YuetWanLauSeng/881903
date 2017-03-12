@@ -114,9 +114,9 @@
 <br>【檔案名稱】：Mali Mali Home.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sWZ176265659
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lNvmT （or） http://www.linkbucks.com/AZtWU
+<br>【百度網盤】：http://adf.ly/1lNviK （or） http://www.linkbucks.com/AZtiA
+<br>【百度密碼】：8v6w
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -126,9 +126,9 @@
 <br>【檔案名稱】：Sino Stream.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JFG176265915
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lNvjN （or） http://www.linkbucks.com/AZteI
+<br>【百度網盤】：http://adf.ly/1lNvgu （or） http://www.linkbucks.com/AZtkg
+<br>【百度密碼】：iaux
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -137,7 +137,7 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-03-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/h0j176283819
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
