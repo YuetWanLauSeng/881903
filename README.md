@@ -1,263 +1,323 @@
-<br>【節目名稱】：書.情.歌
-<br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：葉宇澄
-<br>【節目時間】：06:00 - 08:00
-<br>【檔案名稱】：Reading Time.2017-03-12
-<br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2Dq176194574
-<br>【MediaFire】：http://adf.ly/1lNiJf （or） http://www.linkbucks.com/AacYF
-<br>【百度網盤】：http://adf.ly/1lNt32 （or） http://www.linkbucks.com/AZzJm
-<br>【百度密碼】：m5n1
-
-<br>【節目名稱】：一周紅人館
+<br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：903 DJ
-<br>【節目時間】：06:00 - 09:00
-<br>【檔案名稱】：Star House.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：Wasabi | 嘉賓主持
+<br>【節目時間】：06:00 - 07:00 
+<br>【檔案名稱】：Share My Song.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/adc176200997
-<br>【MediaFire】：http://adf.ly/1lNfwU （or） http://www.linkbucks.com/AagjH
-<br>【百度網盤】：http://adf.ly/1lNsER （or） http://www.linkbucks.com/AZ0oa
-<br>【百度密碼】：6z86
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/LTT176475531
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
-<br>【節目名稱】：政好星期天
+<br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 符靜琳 | 李兆綸
+<br>【節目時間】：06:30 - 10:00
+<br>【檔案名稱】：On a Clear Day（881）.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zVw176474087
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：早安，同學早!
+<br>【節目頻道】：903
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：西瓜
+<br>【節目時間】：07:00 - 08:00
+<br>【檔案名稱】：Hey, Learners!.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/S4Y176470543
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：在晴朗的一天出發
+<br>【節目頻道】：903
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：Beautiful Sunday.2017-03-12
+<br>【檔案名稱】：On a Clear Day（903）.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1WQ176192228
-<br>【MediaFire】：http://adf.ly/1lNiHm （or） http://www.linkbucks.com/AacZ5
-<br>【百度網盤】：http://adf.ly/1lNt7f （or） http://www.linkbucks.com/AZzFo
-<br>【百度密碼】：gc72
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/8dp176475147
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
-<br>【節目名稱】：Urban Touch
-<br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：急急子
-<br>【節目時間】：09:00 - 11:00
-<br>【檔案名稱】：Urban Touch.2017-03-12
-<br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jBp176203391
-<br>【MediaFire】：http://adf.ly/1lNiKe （or） http://www.linkbucks.com/AacXE
-<br>【百度網盤】：http://adf.ly/1lNs8F （or） http://www.linkbucks.com/AZ02u
-<br>【百度密碼】：pbfw
-
-<br>【節目名稱】：馬路的事我哋的事
+<br>【節目名稱】：田式生活
 <br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：林偉豪
-<br>【節目時間】：10:00 - 11:00
-<br>【檔案名稱】：Road Co-op.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：田北俊
+<br>【節目時間】：10:00 - 10:30
+<br>【檔案名稱】：James Tien & Friends.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rqa176195678
-<br>【MediaFire】：http://adf.ly/1lNfx6 （or） http://www.linkbucks.com/Aaghz
-<br>【百度網盤】：http://adf.ly/1lNsFu （or） http://www.linkbucks.com/AZ0kx
-<br>【百度密碼】：axdi
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1GP176471055
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
-<br>【節目名稱】：同途有心人
+<br>【節目名稱】：早霸王
+<br>【節目頻道】：903
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：森美 | 小儀
+<br>【節目時間】：10:00 - 12:00
+<br>【檔案名稱】：Good Morning King.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/b90176476107
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：麥詠宜
-<br>【節目時間】：11:00 - 12:00
-<br>【檔案名稱】：The Way We Are.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
+<br>【節目時間】：10:30 - 12:00
+<br>【檔案名稱】：Circles.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ggV176204576
-<br>【MediaFire】：http://adf.ly/1lNfxt （or） http://www.linkbucks.com/Aagg4
-<br>【百度網盤】：http://adf.ly/1lNs9R （or） http://www.linkbucks.com/AZ00Y
-<br>【百度密碼】：6h77
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5V3176469503
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
-<br>【節目名稱】：讀賣Sunday
-<br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：占 | 王貽興
-<br>【節目時間】：11:00 - 13:00
-<br>【檔案名稱】：Sunny Day Readings.2017-03-12
+<br>【節目名稱】：十八樓C座
+<br>【節目頻道】：881
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：18F Block C.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/TO6176207522
-<br>【MediaFire】：http://adf.ly/1lNiGc （or） http://www.linkbucks.com/Aacbq
-<br>【百度網盤】：http://adf.ly/1lNsAv （or） http://www.linkbucks.com/AZ0yp
-<br>【百度密碼】：gzu9
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hcC176477639
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
-<br>【節目名稱】：無定向喪煲病狂
+<br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：鄒凱光 | 檸
-<br>【節目時間】：13:00 - 15:00
-<br>【檔案名稱】：Binge-Watch.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：謝茜嘉 | 梁文禮
+<br>【節目時間】：12:00 - 14:00
+<br>【檔案名稱】：903 Music.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OOz176222659
-<br>【MediaFire】：http://adf.ly/1lNiIc （or） http://www.linkbucks.com/AacYw
-<br>【百度網盤】：http://adf.ly/1lNt5d （or） http://www.linkbucks.com/AZzG0
-<br>【百度密碼】：8vay
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
-<br>【節目名稱】：兒童適宜
+<br>【節目名稱】：一點叮一叮
+<br>【節目頻道】：881
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：何飛鳳
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Lunch Special.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：人生交叉盤
+<br>【節目頻道】：881
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Crosstrade.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：朱薰 | 泰山
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：朱薰
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：You Are The Best.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：大玩派
+<br>【節目頻道】：881
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：Kiss Kiss Kids.2017-03-12
+<br>【檔案名稱】：The Fun Box.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JcU176242535
-<br>【MediaFire】：http://adf.ly/1lNtFC （or） http://www.linkbucks.com/AZyzs
-<br>【百度網盤】：http://adf.ly/1lNt4J （or） http://www.linkbucks.com/AZzIR
-<br>【百度密碼】：zhu8
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
-<br>【節目名稱】：Mali Mali Home
+<br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：麻利亞
-<br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Mali Mali Home.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
+<br>【節目時間】：15:00 - 17:00
+<br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sWZ176265659
-<br>【MediaFire】：http://adf.ly/1lNvmT （or） http://www.linkbucks.com/AZtWU
-<br>【百度網盤】：http://adf.ly/1lNviK （or） http://www.linkbucks.com/AZtiA
-<br>【百度密碼】：8v6w
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：毒檸王國
+<br>【節目頻道】：903
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：檸
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Dokureioukoku.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：集雜志
+<br>【節目頻道】：903
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：急急子
+<br>【節目時間】：18:00 - 19:00
+<br>【檔案名稱】：Zine.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：人民大道中
+<br>【節目頻道】：881
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：黃永 | 健吾
+<br>【節目時間】：18:30 - 20:00
+<br>【檔案名稱】：Our Way Out.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：生活日常
+<br>【節目頻道】：903
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：細So
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：My Daily Life.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
+<br>【節目名稱】：杏林茶
+<br>【節目頻道】：881
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Tea For You.2017-03-13
+<br>【檔案音質】：高清
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
+<br>【節目日期】：2017-03-13
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目時間】：18:30 - 19:00
-<br>【檔案名稱】：Sino Stream.2017-03-12
+<br>【節目時間】：22:00 - 22:30
+<br>【檔案名稱】：Sino Stream.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JFG176265915
-<br>【MediaFire】：http://adf.ly/1lNvjN （or） http://www.linkbucks.com/AZteI
-<br>【百度網盤】：http://adf.ly/1lNvgu （or） http://www.linkbucks.com/AZtkg
-<br>【百度密碼】：iaux
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
-<br>【節目名稱】：讀懂中國
-<br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：潘小濤 | 何亦文
-<br>【節目時間】：19:00 - 20:00
-<br>【檔案名稱】：Sino Stream - Reading.2017-03-12
-<br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/h0j176283819
-<br>【MediaFire】：http://adf.ly/1lNwgP （or） http://www.linkbucks.com/AZq72
-<br>【百度網盤】：http://adf.ly/1lNx2Q （or） http://www.linkbucks.com/AZqdx
-<br>【百度密碼】：vehe
-
-<br>【節目名稱】：國語類
+<br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
+<br>【節目日期】：2017-03-13
 <br>【節目主持】：Vani
-<br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：Bo Po Mo Fo.2017-03-12
-<br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sdm176300607
-<br>【MediaFire】：http://adf.ly/1lPKBg （or） http://www.linkbucks.com/Aafzw
-<br>【百度網盤】：http://adf.ly/1lPKRU （or） http://www.linkbucks.com/Aafy6
-<br>【百度密碼】：1jnv
-
-<br>【節目名稱】：泡菜粉絲煲 
-<br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：伍甄琪 | 伍悅
-<br>【節目時間】：20:00 - 21:00
-<br>【檔案名稱】：Kimchi Fans Club.2017-03-12
-<br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kIy176301863
-<br>【MediaFire】：http://adf.ly/1lO2pZ （or） http://www.linkbucks.com/AaFtg
-<br>【百度網盤】：http://adf.ly/1lPKNP （or） http://www.linkbucks.com/AafzT
-<br>【百度密碼】：qf9d
-
-<br>【節目名稱】：細路強 
-<br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
-<br>【節目時間】：21:00 - 22:00 
-<br>【檔案名稱】：Mighty Kids Mighty Parents.2017-03-12
-<br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Heq176306895
-<br>【MediaFire】：http://adf.ly/1lPKEm （or） http://www.linkbucks.com/Aafzo
-<br>【百度網盤】：http://adf.ly/1lPKJA （or） http://www.linkbucks.com/Aafzc
-<br>【百度密碼】：9j9m
-
-<br>【節目名稱】：國民教育
-<br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Time's Up Pen's Down.2017-03-12
+<br>【檔案名稱】：Vanila Sky.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cJR176443003
-<br>【MediaFire】：http://adf.ly/1lPQvY （or） http://www.linkbucks.com/AZtod
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
-<br>【節目名稱】：帶一本書去旅行
+<br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：阮子健
-<br>【節目時間】：22:00 - 23:00
-<br>【檔案名稱】：Readers for Riders.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：葉宇澄
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Reading Time.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/l68176435643
-<br>【MediaFire】：http://adf.ly/1lPQtn （or） http://www.linkbucks.com/AZtuc
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
-<br>【節目名稱】：葛民教育
+<br>【節目名稱】：光明頂
 <br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：葛民輝
-<br>【節目時間】：23:00 - 23:30
-<br>【檔案名稱】：Kot’s ology.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：陶傑 | 嘉賓主持
+<br>【節目時間】：23:00 - 00:00
+<br>【檔案名稱】：Summit.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gU4176432547
-<br>【MediaFire】：http://adf.ly/1lPQww （or） http://www.linkbucks.com/AZtnx
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
-<br>【節目名稱】：短期租約
+<br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：Wasabi
-<br>【節目時間】：23:00 - 02:00
-<br>【檔案名稱】：Short-term Lease.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/TsH176440047
-<br>【MediaFire】：http://adf.ly/1lPQuQ （or） http://www.linkbucks.com/AZto9
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
-<br>【節目名稱】：心靈料理
+<br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：劉丹心 | 伍甄琪
-<br>【節目時間】：23:30 - 01:00
-<br>【檔案名稱】：Feed Your Soul.2017-03-12
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：鄔家麟
+<br>【節目時間】：00:30 - 01:30
+<br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/11m176431323
-<br>【MediaFire】：http://adf.ly/1lPQwM （or） http://www.linkbucks.com/AZtoI
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
-<br>【節目名稱】：寫生活
-<br>【節目頻道】：881
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：主持人
+<br>【節目名稱】：廣東爆谷
+<br>【節目頻道】：903
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Bedtime Readings.2017-03-12
+<br>【檔案名稱】：Canto Pop.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2T5176423787
-<br>【MediaFire】：http://adf.ly/1lPQv3 （or） http://www.linkbucks.com/AZtor
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
-<br>【節目日期】：2017-03-12
-<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
+<br>【節目日期】：2017-03-13
+<br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
-<br>【檔案名稱】：Begin with Music.2017-03-12
+<br>【檔案名稱】：Begin with Music.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xGn176430543
-<br>【MediaFire】：http://adf.ly/1lPQsy （or） http://www.linkbucks.com/AZtul
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
