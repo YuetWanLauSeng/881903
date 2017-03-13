@@ -65,8 +65,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/b90176476107
-<br>【MediaFire】：http://adf.ly/1lPWua （or） http://www.linkbucks.com/AZp2J
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -77,8 +77,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5V3176469503
-<br>【MediaFire】：http://adf.ly/1lPWx1 （or） http://www.linkbucks.com/AZp05
+<br>【城通網盤】：
+<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
