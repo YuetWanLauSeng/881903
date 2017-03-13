@@ -245,8 +245,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2H2176633972
+<br>【MediaFire】：http://adf.ly/1lQ8JM （or） http://www.linkbucks.com/396Y
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -257,8 +257,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4Fr176632092
+<br>【MediaFire】：http://adf.ly/1lQ8Kj （or） http://www.linkbucks.com/396O
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -269,8 +269,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xgN176640480
+<br>【MediaFire】：http://adf.ly/1lQ8Ib （or） http://www.linkbucks.com/396f
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
