@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Time's Up Pen's Down.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cJR176443003
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lPQvY （or） http://www.linkbucks.com/AZtod
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：Readers for Riders.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/l68176435643
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lPQtn （or） http://www.linkbucks.com/AZtuc
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -210,7 +210,7 @@
 <br>【檔案名稱】：Kot’s ology.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gU4176432547
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lPQww （or） http://www.linkbucks.com/AZtnx
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -222,7 +222,7 @@
 <br>【檔案名稱】：Short-term Lease.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/TsH176440047
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lPQuQ （or） http://www.linkbucks.com/AZto9
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Feed Your Soul.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/11m176431323
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lPQwM （or） http://www.linkbucks.com/AZtoI
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -246,7 +246,7 @@
 <br>【檔案名稱】：Bedtime Readings.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2T5176423787
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lPQv3 （or） http://www.linkbucks.com/AZtor
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -258,6 +258,6 @@
 <br>【檔案名稱】：Begin with Music.2017-03-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xGn176430543
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lPQsy （or） http://www.linkbucks.com/AZtul
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
