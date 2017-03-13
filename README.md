@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/dMg176499037
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lPaRB （or） http://www.linkbucks.com/AHl0j
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -101,7 +101,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wow176518617
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -113,7 +113,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/DZs176523373
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -125,7 +125,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xhS176520981
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -137,7 +137,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-03-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qeC176524513
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
