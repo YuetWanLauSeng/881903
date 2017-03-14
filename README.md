@@ -242,7 +242,7 @@
 <br>【檔案名稱】：Sino Stream.2017-03-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/UJ3176902980
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lRRxH （or） http://www.linkbucks.com/AaRxB
 <br>【百度網盤】：http://adf.ly/1lRMkK （or） http://www.linkbucks.com/AaV3t
 <br>【百度密碼】：wjyw
 
@@ -253,10 +253,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-03-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Tq5176907976
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lRRq1 （or） http://www.linkbucks.com/AaRyV
+<br>【百度密碼】：isvp
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -273,10 +273,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-03-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/g3J176905052
+<br>【MediaFire】：http://adf.ly/1lRRve （or） http://www.linkbucks.com/AaRxQ
+<br>【百度網盤】：http://adf.ly/1lRRrz （or） http://www.linkbucks.com/AaRx4
+<br>【百度密碼】：c6i7
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -285,10 +285,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-03-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/263176918336
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lRRuL （or） http://www.linkbucks.com/AaRxX
+<br>【百度密碼】：hfz9
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
