@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Zine.2017-03-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Eki176856588
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lRGA8 （or） http://www.linkbucks.com/AZpIP
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：Our Way Out.2017-03-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/63q176856028
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lRG9A （or） http://www.linkbucks.com/AZpIk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -209,7 +209,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-03-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/dsh176874768
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
