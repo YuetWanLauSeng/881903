@@ -173,8 +173,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-03-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fRq176831572
+<br>【MediaFire】：http://adf.ly/1lR55T （or） http://www.linkbucks.com/AZ5T2
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
