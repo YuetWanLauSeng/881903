@@ -231,8 +231,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/t4C176891568
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lRMlo （or） http://www.linkbucks.com/AaV3d
+<br>【百度密碼】：qgjx
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -241,10 +241,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-03-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/UJ3176902980
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lRMkK （or） http://www.linkbucks.com/AaV3t
+<br>【百度密碼】：wjyw
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
