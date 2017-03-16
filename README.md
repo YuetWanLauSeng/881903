@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-03-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gyw177748618
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lWA1q （or） http://www.linkbucks.com/AbASb
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-03-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/n4F177755934
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lW9vv （or） http://www.linkbucks.com/AbAXK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-03-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/eNq177745290
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lWA7N （or） http://www.linkbucks.com/AbASE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Zine.2017-03-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mPH177762942
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lW9yk （or） http://www.linkbucks.com/AbASk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：Our Way Out.2017-03-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wJZ177760778
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lWA5K （or） http://www.linkbucks.com/AbASS
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -209,7 +209,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-03-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/oLu177818998
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -221,7 +221,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-03-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/lZi177821686
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -233,7 +233,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-03-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Tiw177833298
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
