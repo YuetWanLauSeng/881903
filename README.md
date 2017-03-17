@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-03-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Rex178236834
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lYNxP （or） http://www.linkbucks.com/Aa8SF
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4SP178233898
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lYNy4 （or） http://www.linkbucks.com/Aa8R7
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-03-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Q7C178203610
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lYNzR （or） http://www.linkbucks.com/Aa8Ko
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-03-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ewU178218038
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lYO09 （or） http://www.linkbucks.com/Aa8KK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：James Tien & Friends.2017-03-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/CUo178204826
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lYO15 （or） http://www.linkbucks.com/Aa7mn
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6Fm178196074
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lYNyc （or） http://www.linkbucks.com/Aa8LL
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,8 +78,8 @@
 <br>【檔案名稱】：Circles.2017-03-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/o2s178223978
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
+<br>【MediaFire】：http://adf.ly/1lYNwV （or） http://www.linkbucks.com/Aa8SY
+<br>【百度網盤】：http://adf.ly/1lYO1x （or） http://www.linkbucks.com/Aa7mV
 <br>【百度密碼】：
 
 <br>【節目名稱】：十八樓C座
