@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Morning Glory.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sge178876716
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajoe （or） http://www.linkbucks.com/AbhAu
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：So Sunshine.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Avt178894940
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajtS （or） http://www.linkbucks.com/Abg8y
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Saturday Forum.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iiI178889088
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajnV （or） http://www.linkbucks.com/AbMui
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：J.A.L.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/j6r178886876
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajwC （or） http://www.linkbucks.com/Abg7R
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Weekend Lucky Star.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WRZ178899088
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajsl （or） http://www.linkbucks.com/Abg9V
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Stockaeologist.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FU3178897380
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajrJ （or） http://www.linkbucks.com/Abg97
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：903 Top 20.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cL4178918660
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajut （or） http://www.linkbucks.com/Abg8Q
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Stroke Decryption.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Jbu178923472
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajxo （or） http://www.linkbucks.com/Abg6P
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：Movies.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/VWA178920684
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1laju6 （or） http://www.linkbucks.com/Abg8o
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Mr Chef.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aqU178922368
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajwo （or） http://www.linkbucks.com/Abg6w
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：903 Band Time.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aXp178937348
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lajpy （or） http://www.linkbucks.com/AbhAf
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
