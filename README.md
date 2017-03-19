@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Mali Mali Home.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bXQ179102478
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcwJN （or） http://www.linkbucks.com/CHKsY
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Sino Stream.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bSp179102574
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcwNp （or） http://www.linkbucks.com/CHJAy
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -145,7 +145,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：2017 Chief Executive Election Forum.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1wy179105978
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -157,7 +157,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mQ0179107030
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
