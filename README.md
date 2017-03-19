@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Reading Time.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4k0179062276
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcnm2 （or） http://www.linkbucks.com/AbXOM
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：Star House.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/q83179063556
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcnoa （or） http://www.linkbucks.com/AbXN8
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xrJ179061772
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcniM （or） http://www.linkbucks.com/AbXOh
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：Urban Touch.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0KS179064724
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcnuU （or） http://www.linkbucks.com/AbXM9
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Road Co-op.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/o5i179062632
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcnxE （or） http://www.linkbucks.com/AbXLn
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：The Way We Are.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qQ0179063864
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lco4Q （or） http://www.linkbucks.com/AbXLM
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/lGc179065664
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcnfN （or） http://www.linkbucks.com/AbXOt
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Binge-Watch.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/r62179094276
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcnXW （or） http://www.linkbucks.com/AbZTq
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4od179095608
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lcnrC （or） http://www.linkbucks.com/AbXNk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -113,7 +113,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bXQ179102478
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -125,7 +125,7 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bSp179102574
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
