@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Education Forum.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/20W179056336
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lbs9D （or） http://www.linkbucks.com/AbUUo
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -246,7 +246,7 @@
 <br>【檔案名稱】：The Playtoy Mansion.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/8Ok179058648
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lbsCr （or） http://www.linkbucks.com/AbUUY
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -270,7 +270,7 @@
 <br>【檔案名稱】：Losing Eleven.2017-03-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YbN179057196
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lbsZc （or） http://www.linkbucks.com/AbUQk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
