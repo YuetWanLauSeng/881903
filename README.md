@@ -147,8 +147,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1wy179105978
 <br>【MediaFire】：http://adf.ly/1ld551 （or） http://www.linkbucks.com/AbsFM
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ldDm0 （or） http://www.linkbucks.com/AbobU
+<br>【百度密碼】：xx5h
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -189,10 +189,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/G0X179130690
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ldDpw （or） http://www.linkbucks.com/AboaZ
+<br>【百度密碼】：rfzi
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -201,10 +201,10 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2qK179122782
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ldDno （or） http://www.linkbucks.com/Aboax
+<br>【百度密碼】：exhm
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -213,10 +213,10 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bAK179139222
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ldDxi （or） http://www.linkbucks.com/AboYv
+<br>【百度密碼】：v6q2
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
