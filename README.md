@@ -146,7 +146,7 @@
 <br>【檔案名稱】：2017 Chief Executive Election Forum.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1wy179105978
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ld551 （or） http://www.linkbucks.com/AbsFM
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -158,7 +158,7 @@
 <br>【檔案名稱】：Bo Po Mo Fo.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mQ0179107030
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ld57s （or） http://www.linkbucks.com/AbsEK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -177,8 +177,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0iA179110550
+<br>【MediaFire】：http://adf.ly/1ld52Z （or） http://www.linkbucks.com/AbsFp
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
