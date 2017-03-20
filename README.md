@@ -226,7 +226,7 @@
 <br>【檔案名稱】：Short-term Lease.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/BoS179211446
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1leoHZ （or） http://www.linkbucks.com/AZTaE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -238,7 +238,7 @@
 <br>【檔案名稱】：Feed Your Soul.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GqX179202914
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1leoIP （or） http://www.linkbucks.com/AZTZ6
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -250,7 +250,7 @@
 <br>【檔案名稱】：Bedtime Readings.2017-03-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sBi179193098
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1leoJ5 （or） http://www.linkbucks.com/AZTZx
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -261,7 +261,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-03-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iO4179218834
+<br>【MediaFire】：http://adf.ly/1leoG4 （or） http://www.linkbucks.com/AZTaZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
