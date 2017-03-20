@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-03-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/EBd179272578
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1leshv （or） http://www.linkbucks.com/AblEz
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MuV179261498
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lesjS （or） http://www.linkbucks.com/AblEc
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-03-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/l44179263742
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1let9m （or） http://www.linkbucks.com/Abk4d
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-03-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/el7179266378
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lesli （or） http://www.linkbucks.com/AblD9
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：James Tien & Friends.2017-03-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/HIY179257230
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lesn0 （or） http://www.linkbucks.com/AblDs
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qgW179271518
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1leskS （or） http://www.linkbucks.com/AblEQ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-03-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Cl4179268758
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lesfi （or） http://www.linkbucks.com/AblFb
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-03-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/BK8179272918
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lesoD （or） http://www.linkbucks.com/AblDb
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
