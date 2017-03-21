@@ -186,9 +186,9 @@
 <br>【檔案名稱】：Zine.2017-03-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YbO184666082
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lgvo8 （or） http://www.linkbucks.com/AbuFF
+<br>【百度網盤】：http://adf.ly/1lgvpt （or） http://www.linkbucks.com/AbuEv
+<br>【百度密碼】：2xb3
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -198,9 +198,9 @@
 <br>【檔案名稱】：Our Way Out.2017-03-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nRY184664558
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lgvmT （or） http://www.linkbucks.com/AbuF7
+<br>【百度網盤】：http://adf.ly/1lgw0h （or） http://www.linkbucks.com/Abt8C
+<br>【百度密碼】：hf5u
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -209,7 +209,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-03-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZGR184673578
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -221,7 +221,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-03-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZHg184672774
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
