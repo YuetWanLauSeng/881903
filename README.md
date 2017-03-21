@@ -150,9 +150,9 @@
 <br>【檔案名稱】：The Fun Box.2017-03-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QMH184655482
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lgqa7 （or） http://www.linkbucks.com/Abyml
+<br>【百度網盤】：http://adf.ly/1lgqZV （or） http://www.linkbucks.com/Abymu
+<br>【百度密碼】：mr9b
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -162,9 +162,9 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-03-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gYP184656890
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lgqad （or） http://www.linkbucks.com/AbymZ
+<br>【百度網盤】：http://adf.ly/1lgqXi （or） http://www.linkbucks.com/AbzkJ
+<br>【百度密碼】：mm2d
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -173,7 +173,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-03-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sfD184661338
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
