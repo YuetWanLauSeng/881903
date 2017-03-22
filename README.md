@@ -266,7 +266,7 @@
 <br>【檔案名稱】：Hair Again.2017-03-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/NhZ184696270
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lhzBl （or） http://www.linkbucks.com/AcaRD
 <br>【百度網盤】：http://adf.ly/1lh6PO （or） http://www.linkbucks.com/AcA5f
 <br>【百度密碼】：52kw
 
@@ -278,7 +278,7 @@
 <br>【檔案名稱】：Summit.2017-03-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6oq184704870
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lhz88 （or） http://www.linkbucks.com/AcaSd
 <br>【百度網盤】：http://adf.ly/1lh6bg （or） http://www.linkbucks.com/AcAu9
 <br>【百度密碼】：3t79
 
@@ -289,7 +289,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qX5184755462
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
