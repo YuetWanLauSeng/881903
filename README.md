@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/X4H184922762
 <br>【MediaFire】：http://adf.ly/1lic3u （or） http://www.linkbucks.com/AcI8J
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1limN1 （or） http://www.linkbucks.com/AcCeZ
+<br>【百度密碼】：av3k
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/g9f184924386
 <br>【MediaFire】：http://adf.ly/1lic0U （or） http://www.linkbucks.com/AcI8d
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1limLg （or） http://www.linkbucks.com/AcCew
+<br>【百度密碼】：h5iv
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -187,8 +187,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/e6y184955170
 <br>【MediaFire】：http://adf.ly/1liftF （or） http://www.linkbucks.com/AcGcp
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1limFl （or） http://www.linkbucks.com/AcCgb
+<br>【百度密碼】：a4gz
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -205,10 +205,10 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-03-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/l8l184972986
+<br>【MediaFire】：http://adf.ly/1liora （or） http://www.linkbucks.com/Acaft
+<br>【百度網盤】：http://adf.ly/1lioO3 （or） http://www.linkbucks.com/H4m7
+<br>【百度密碼】：stdp
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
