@@ -210,7 +210,7 @@
 <br>【檔案名稱】：My Daily Life.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FNG185237473
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lklB2 （or） http://www.linkbucks.com/AcNsZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -222,7 +222,7 @@
 <br>【檔案名稱】：Tea For You.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Lzv185238037
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lklBl （or） http://www.linkbucks.com/AcNru
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -233,8 +233,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-03-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uOI185243110
+<br>【MediaFire】：http://adf.ly/1lklAL （or） http://www.linkbucks.com/AcNsl
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
