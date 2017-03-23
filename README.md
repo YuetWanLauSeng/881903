@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4Sb185137434
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkcoe （or） http://www.linkbucks.com/AcZKR
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YWH185122650
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkczo （or） http://www.linkbucks.com/AcZEX
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OeV185121482
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkctq （or） http://www.linkbucks.com/AcZIT
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9QU185178802
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkcw3 （or） http://www.linkbucks.com/AcZHf
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Lunch Special.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1lK185179658
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkd4w （or） http://www.linkbucks.com/AcZCc
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/frM185179246
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkd7D （or） http://www.linkbucks.com/AcYTn
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Xwk185180374
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkcr5 （or） http://www.linkbucks.com/AcZJa
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aUr185204818
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkdIM （or） http://www.linkbucks.com/AcYTN
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/pJl185208067
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkcua （or） http://www.linkbucks.com/AcZH6
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/s7W185203990
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkcsr （or） http://www.linkbucks.com/AcZIk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -185,7 +185,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-03-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/phz185225020
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -197,7 +197,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-03-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/07e185221858
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
