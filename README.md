@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Zine.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/phz185225020
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkiwU （or） http://www.linkbucks.com/AcOVh
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：Our Way Out.2017-03-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/07e185221858
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lkisd （or） http://www.linkbucks.com/AcOWH
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -209,7 +209,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-03-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FNG185237473
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -221,7 +221,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-03-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Lzv185238037
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
