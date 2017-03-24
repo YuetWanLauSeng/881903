@@ -253,10 +253,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-03-24
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kQu185520735
+<br>【MediaFire】：http://adf.ly/1lnNHC （or） http://www.linkbucks.com/AdDt2
+<br>【百度網盤】：http://adf.ly/1lnM3h （or） http://www.linkbucks.com/Actaa
+<br>【百度密碼】：zn63
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -273,10 +273,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-03-24
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6Zd185520252
+<br>【MediaFire】：http://adf.ly/1lnN8Z （or） http://www.linkbucks.com/ActP5
+<br>【百度網盤】：http://adf.ly/1lnMjY （or） http://www.linkbucks.com/ActQ1
+<br>【百度密碼】：d2tt
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -285,10 +285,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-03-24
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/far185522202
+<br>【MediaFire】：http://adf.ly/1lnOAr （or） http://www.linkbucks.com/AdDYG
+<br>【百度網盤】：http://adf.ly/1lnLoE （or） http://www.linkbucks.com/AcuT5
+<br>【百度密碼】：j5un
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
