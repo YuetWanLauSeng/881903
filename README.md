@@ -218,9 +218,9 @@
 <br>【檔案名稱】：My Daily Life.2017-03-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/htQ185513616
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1ln8o4 （or） http://www.linkbucks.com/Ac3Ur
+<br>【百度網盤】：http://adf.ly/1ln8Le （or） http://www.linkbucks.com/Ac3nr
+<br>【百度密碼】：eush
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -230,9 +230,9 @@
 <br>【檔案名稱】：Tea For You.2017-03-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Zyt185513877
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1ln9XQ （or） http://www.linkbucks.com/Ac3Tq
+<br>【百度網盤】：http://adf.ly/1ln8Fc （or） http://www.linkbucks.com/Ac3rG
+<br>【百度密碼】：r25v
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -241,10 +241,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-03-24
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MmM185518695
+<br>【MediaFire】：http://adf.ly/1ln8TM （or） http://www.linkbucks.com/Ac3l3
+<br>【百度網盤】：http://adf.ly/1ln8BQ （or） http://www.linkbucks.com/Ac3rx
+<br>【百度密碼】：3sym
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
