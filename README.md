@@ -6,9 +6,9 @@
 <br>【檔案名稱】：Morning Glory.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Pbz185558142
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe45 （or） http://www.linkbucks.com/AczKh
+<br>【百度網盤】：http://adf.ly/1lodwe （or） http://www.linkbucks.com/AczNf
+<br>【百度密碼】：29j5
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -18,9 +18,9 @@
 <br>【檔案名稱】：So Sunshine.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MfE185560113
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe4y （or） http://www.linkbucks.com/AczHL
+<br>【百度網盤】：http://adf.ly/1lodoX （or） http://www.linkbucks.com/AczPu
+<br>【百度密碼】：6uj6
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -30,9 +30,9 @@
 <br>【檔案名稱】：Saturday Forum.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/EeC185559789
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe7f （or） http://www.linkbucks.com/AczGB
+<br>【百度網盤】：http://adf.ly/1lodt3 （or） http://www.linkbucks.com/AczOn
+<br>【百度密碼】：h75d
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -42,9 +42,9 @@
 <br>【檔案名稱】：J.A.L.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2EV185557878
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe69 （or） http://www.linkbucks.com/AczGo
+<br>【百度網盤】：http://adf.ly/1lodva （or） http://www.linkbucks.com/AczOI
+<br>【百度密碼】：k9ns
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -54,9 +54,9 @@
 <br>【檔案名稱】：Weekend Lucky Star.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/EoT185556717
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe6u （or） http://www.linkbucks.com/AczGS
+<br>【百度網盤】：http://adf.ly/1lodya （or） http://www.linkbucks.com/AczNO
+<br>【百度密碼】：r77j
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -66,9 +66,9 @@
 <br>【檔案名稱】：Stockaeologist.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hQn185560224
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe8S （or） http://www.linkbucks.com/AczFy
+<br>【百度網盤】：http://adf.ly/1lodzn （or） http://www.linkbucks.com/AczMt
+<br>【百度密碼】：jbx4
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -78,9 +78,9 @@
 <br>【檔案名稱】：903 Top 20.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/A2a185562795
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe0d （or） http://www.linkbucks.com/AczMd
+<br>【百度網盤】：http://adf.ly/1lodnC （or） http://www.linkbucks.com/AczQQ
+<br>【百度密碼】：zrev
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -90,9 +90,9 @@
 <br>【檔案名稱】：Stroke Decryption.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YmP185563434
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe3M （or） http://www.linkbucks.com/AczLk
+<br>【百度網盤】：http://adf.ly/1lodiA （or） http://www.linkbucks.com/AczRZ
+<br>【百度密碼】：aqs3
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -102,9 +102,9 @@
 <br>【檔案名稱】：Movies.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Uer185562891
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe2Y （or） http://www.linkbucks.com/AczLz
+<br>【百度網盤】：http://adf.ly/1lodkz （or） http://www.linkbucks.com/AczQq
+<br>【百度密碼】：xyju
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -114,9 +114,9 @@
 <br>【檔案名稱】：Mr Chef.2017-03-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OdX185563059
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1loe1e （or） http://www.linkbucks.com/AczL8
+<br>【百度網盤】：http://adf.ly/1lodj3 （or） http://www.linkbucks.com/AczRL
+<br>【百度密碼】：t2na
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -125,8 +125,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-03-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/40L185579004
+<br>【MediaFire】：http://adf.ly/1loeTG （or） http://www.linkbucks.com/AcymJ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
