@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Reading Time.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iDn185665798
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZWv （or） http://www.linkbucks.com/AdJzS
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：Star House.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fhG185666635
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZTv （or） http://www.linkbucks.com/AdJ0j
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rz1185665471
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZYz （or） http://www.linkbucks.com/AdJyZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：Urban Touch.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Cxm185667184
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZR8 （or） http://www.linkbucks.com/AdJ2M
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Road Co-op.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nQL185665975
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZcA （or） http://www.linkbucks.com/AdIOB
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：The Way We Are.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/X6I185666764
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZaM （or） http://www.linkbucks.com/AdIPF
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IYH185667421
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZVb （or） http://www.linkbucks.com/AdJz2
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Binge-Watch.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Aje185672683
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZPd （or） http://www.linkbucks.com/AdJ3M
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/vF1185702347
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrZSa （or） http://www.linkbucks.com/AdJ1N
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
