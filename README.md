@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Mali Mali Home.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3pp185711986
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrzA0 （or） http://www.linkbucks.com/Adkpv
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Sino Stream.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ifR185721601
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrz2l （or） http://www.linkbucks.com/Adkqr
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：Sino Stream - Reading.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wEE185714287
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrzDQ （or） http://www.linkbucks.com/Adkkm
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -150,7 +150,7 @@
 <br>【檔案名稱】：Bo Po Mo Fo.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/f3C185719093
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lryzu （or） http://www.linkbucks.com/AdkrY
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：Kimchi Fans Club.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QLF185716027
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrz6s （or） http://www.linkbucks.com/AdkqD
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rPE185721445
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lrytt （or） http://www.linkbucks.com/Adkr0
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
