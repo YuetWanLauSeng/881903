@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iDn185665798
 <br>【MediaFire】：http://adf.ly/1lrZWv （or） http://www.linkbucks.com/AdJzS
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lrh85 （or） http://www.linkbucks.com/AdWbw
+<br>【百度密碼】：tin6
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fhG185666635
 <br>【MediaFire】：http://adf.ly/1lrZTv （or） http://www.linkbucks.com/AdJ0j
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lrhCJ （or） http://www.linkbucks.com/AdPV5
+<br>【百度密碼】：zc7k
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rz1185665471
 <br>【MediaFire】：http://adf.ly/1lrZYz （or） http://www.linkbucks.com/AdJyZ
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lrh15 （or） http://www.linkbucks.com/AdWmt
+<br>【百度密碼】：655y
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nQL185665975
 <br>【MediaFire】：http://adf.ly/1lrZcA （or） http://www.linkbucks.com/AdIOB
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lrhAK （or） http://www.linkbucks.com/AdWZq
+<br>【百度密碼】：k6uy
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Aje185672683
 <br>【MediaFire】：http://adf.ly/1lrZPd （or） http://www.linkbucks.com/AdJ3M
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lrh3M （or） http://www.linkbucks.com/AdWhw
+<br>【百度密碼】：gsbx
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -103,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/vF1185702347
 <br>【MediaFire】：http://adf.ly/1lrZSa （or） http://www.linkbucks.com/AdJ1N
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lrh5g （or） http://www.linkbucks.com/AdWeF
+<br>【百度密碼】：bpm8
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -113,7 +113,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3pp185711986
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -137,7 +137,7 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wEE185714287
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
