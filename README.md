@@ -211,8 +211,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mQW185601289
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lqvmq （or） http://www.linkbucks.com/AcxnM
+<br>【百度密碼】：ywuq
 
 <br>【節目名稱】：Chi Chung's Class
 <br>【節目頻道】：903
@@ -223,8 +223,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5J4185602153
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lqviJ （or） http://www.linkbucks.com/Acxnj
+<br>【百度密碼】：cbx7
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -235,8 +235,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/PsO185645440
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lqveS （or） http://www.linkbucks.com/Acxn8
+<br>【百度密碼】：iqjk
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
@@ -247,8 +247,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Z05185648641
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lqtSK （or） http://www.linkbucks.com/Acx16
+<br>【百度密碼】：zg8j
 
 <br>【節目名稱】：發式生活
 <br>【節目頻道】：881
@@ -259,8 +259,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/frl185646232
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lqtqW （or） http://www.linkbucks.com/Acxyz
+<br>【百度密碼】：3i7v
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -271,8 +271,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fOd185646892
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lqtWg （or） http://www.linkbucks.com/Acx1s
+<br>【百度密碼】：bcec
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -281,7 +281,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-03-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Hpx185665237
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lqtlR （or） http://www.linkbucks.com/Acx0e
+<br>【百度密碼】：iw29
