@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Cxm185667184
 <br>【MediaFire】：http://adf.ly/1lrZR8 （or） http://www.linkbucks.com/AdJ2M
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt2w0 （or） http://www.linkbucks.com/AdIud
+<br>【百度密碼】：1yq5
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/X6I185666764
 <br>【MediaFire】：http://adf.ly/1lrZaM （or） http://www.linkbucks.com/AdIPF
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt2xE （or） http://www.linkbucks.com/AdItf
+<br>【百度密碼】：2kmq
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IYH185667421
 <br>【MediaFire】：http://adf.ly/1lrZVb （or） http://www.linkbucks.com/AdJz2
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt2y7 （or） http://www.linkbucks.com/AdIrr
+<br>【百度密碼】：efdu
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -115,8 +115,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3pp185711986
 <br>【MediaFire】：http://adf.ly/1lrzA0 （or） http://www.linkbucks.com/Adkpv
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt31E （or） http://www.linkbucks.com/AdInm
+<br>【百度密碼】：wrk2
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -127,8 +127,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ifR185721601
 <br>【MediaFire】：http://adf.ly/1lrz2l （or） http://www.linkbucks.com/Adkqr
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt2yf （or） http://www.linkbucks.com/AdIqV
+<br>【百度密碼】：snjv
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -139,8 +139,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wEE185714287
 <br>【MediaFire】：http://adf.ly/1lrzDQ （or） http://www.linkbucks.com/Adkkm
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt2zU （or） http://www.linkbucks.com/AdIpE
+<br>【百度密碼】：xs5b
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/f3C185719093
 <br>【MediaFire】：http://adf.ly/1lryzu （or） http://www.linkbucks.com/AdkrY
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt332 （or） http://www.linkbucks.com/AdIlm
+<br>【百度密碼】：7nj3
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QLF185716027
 <br>【MediaFire】：http://adf.ly/1lrz6s （or） http://www.linkbucks.com/AdkqD
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt31z （or） http://www.linkbucks.com/AdImr
+<br>【百度密碼】：ezwf
 
 <br>【節目名稱】：細路強
 <br>【節目頻道】：881
@@ -175,8 +175,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rPE185721445
 <br>【MediaFire】：http://adf.ly/1lrytt （or） http://www.linkbucks.com/Adkr0
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lt30H （or） http://www.linkbucks.com/AdIoW
+<br>【百度密碼】：6gmg
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -185,7 +185,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1aq185818999
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -197,7 +197,7 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cyq185784601
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -209,7 +209,7 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Khx185780467
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -221,7 +221,7 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gX5185805979
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -233,7 +233,7 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Dup185779162
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -245,7 +245,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bQs185778763
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
