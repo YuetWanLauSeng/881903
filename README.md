@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5Ql186195436
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltNuP （or） http://www.linkbucks.com/AdKAu
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/oHz186204031
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltNv8 （or） http://www.linkbucks.com/AdKAE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/seQ186206806
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltNwv （or） http://www.linkbucks.com/AdJ4o
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
