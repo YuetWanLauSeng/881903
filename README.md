@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/O1C186050140
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltJWJ （or） http://www.linkbucks.com/AdVm6
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Lunch Special.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/BNH186068521
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltJgq （or） http://www.linkbucks.com/AdVbg
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OQH186053164
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltJhv （or） http://www.linkbucks.com/AdVaD
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2US186062701
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltJfe （or） http://www.linkbucks.com/AdVeV
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
