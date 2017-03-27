@@ -186,9 +186,9 @@
 <br>【檔案名稱】：Time's Up Pen's Down.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1aq185818999
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lt9pN （or） http://www.linkbucks.com/Adb5E
+<br>【百度網盤】：http://adf.ly/1lt9vS （or） http://www.linkbucks.com/AdbzK
+<br>【百度密碼】：pvw2
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -198,9 +198,9 @@
 <br>【檔案名稱】：Readers for Riders.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cyq185784601
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lt9o3 （or） http://www.linkbucks.com/Adb6V
+<br>【百度網盤】：http://adf.ly/1lt9xY （or） http://www.linkbucks.com/Adbwd
+<br>【百度密碼】：tp7e
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -210,9 +210,9 @@
 <br>【檔案名稱】：Kot’s ology.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Khx185780467
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lt9sG （or） http://www.linkbucks.com/Adb2e
+<br>【百度網盤】：http://adf.ly/1lt9yy （or） http://www.linkbucks.com/AdbvF
+<br>【百度密碼】：sepk
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
@@ -222,9 +222,9 @@
 <br>【檔案名稱】：Short-term Lease.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gX5185805979
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lt9mx （or） http://www.linkbucks.com/Adb64
+<br>【百度網盤】：http://adf.ly/1lt9ux （or） http://www.linkbucks.com/Adbzv
+<br>【百度密碼】：5k9d
 
 <br>【節目名稱】：心靈料理
 <br>【節目頻道】：881
@@ -234,9 +234,9 @@
 <br>【檔案名稱】：Feed Your Soul.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Dup185779162
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lt9r0 （or） http://www.linkbucks.com/Adb4Q
+<br>【百度網盤】：http://adf.ly/1lt9yG （or） http://www.linkbucks.com/Adbv7
+<br>【百度密碼】：hhmi
 
 <br>【節目名稱】：寫生活
 <br>【節目頻道】：881
@@ -246,9 +246,9 @@
 <br>【檔案名稱】：Bedtime Readings.2017-03-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bQs185778763
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lt9ij （or） http://www.linkbucks.com/Adilm
+<br>【百度網盤】：http://adf.ly/1lt9wD （or） http://www.linkbucks.com/Adbym
+<br>【百度密碼】：1jmn
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -257,7 +257,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-03-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/keF185834149
+<br>【MediaFire】：http://adf.ly/1lt9hU （or） http://www.linkbucks.com/Adim8
+<br>【百度網盤】：http://adf.ly/1lt9uB （or） http://www.linkbucks.com/Adb0c
+<br>【百度密碼】：k9y4
