@@ -210,7 +210,7 @@
 <br>【檔案名稱】：My Daily Life.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Dg9187075062
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltirR （or） http://www.linkbucks.com/AdV2r
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -222,7 +222,7 @@
 <br>【檔案名稱】：Tea For You.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Zl6187105992
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltitX （or） http://www.linkbucks.com/AdVzj
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Sino Stream.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/E1W187107411
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltisa （or） http://www.linkbucks.com/AdV1W
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -245,8 +245,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-03-27
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/h9A187108986
+<br>【MediaFire】：http://adf.ly/1ltiji （or） http://www.linkbucks.com/AdV7I
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -257,8 +257,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-03-27
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hVj187108815
+<br>【MediaFire】：http://adf.ly/1ltilI （or） http://www.linkbucks.com/AdV5D
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -269,8 +269,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-03-27
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/K0F187111542
+<br>【MediaFire】：http://adf.ly/1ltiik （or） http://www.linkbucks.com/AdV8B
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
