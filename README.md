@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/p8g185970226
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltErB （or） http://www.linkbucks.com/AXq5c
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/oEN185957221
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltEqU （or） http://www.linkbucks.com/AXq5p
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/u1Q185944642
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltEsY （or） http://www.linkbucks.com/AXq5D
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/icm185968963
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltEtG （or） http://www.linkbucks.com/AXq40
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：James Tien & Friends.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bg4185944840
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltEtp （or） http://www.linkbucks.com/AXq4o
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Y6f185944291
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltErk （or） http://www.linkbucks.com/AXq5P
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/oIl185942971
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltEpz （or） http://www.linkbucks.com/AU7uB
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4Ab185962201
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ltEvC （or） http://www.linkbucks.com/AXq4W
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
