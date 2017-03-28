@@ -102,9 +102,9 @@
 <br>【檔案名稱】：903 Music.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qWF187220883
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1luuMG （or） http://www.linkbucks.com/AdZFF
+<br>【百度網盤】：http://adf.ly/1luutI （or） http://www.linkbucks.com/AXda4
+<br>【百度密碼】：z9r4
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -114,9 +114,9 @@
 <br>【檔案名稱】：Lunch Special.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4wg187221789
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1luuW6 （or） http://www.linkbucks.com/AdZCt
+<br>【百度網盤】：http://adf.ly/1luuj0 （or） http://www.linkbucks.com/AcSAR
+<br>【百度密碼】：msrh
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -126,9 +126,9 @@
 <br>【檔案名稱】：Crosstrade.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Plc187221177
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1luuXZ （or） http://www.linkbucks.com/AdZCA
+<br>【百度網盤】：http://adf.ly/1luuqc （or） http://www.linkbucks.com/AacB8
+<br>【百度密碼】：9vhc
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -138,9 +138,9 @@
 <br>【檔案名稱】：You Are The Best.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6RA187222659
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1luuRb （or） http://www.linkbucks.com/AdZEM
+<br>【百度網盤】：http://adf.ly/1luuaq （or） http://www.linkbucks.com/AcVDN
+<br>【百度密碼】：7wes
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
