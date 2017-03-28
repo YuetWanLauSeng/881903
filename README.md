@@ -235,8 +235,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/duH187272432
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lvdlv （or） http://www.linkbucks.com/AdP97
+<br>【百度密碼】：8p4h
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -245,10 +245,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-03-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1PG187273887
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lvdkN （or） http://www.linkbucks.com/AdQAt
+<br>【百度密碼】：guju
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -265,10 +265,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-03-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ibw187273719
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lvdlD （or） http://www.linkbucks.com/AdQAX
+<br>【百度密碼】：csz1
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -277,10 +277,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-03-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/myT187275102
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lvdjW （or） http://www.linkbucks.com/AdQBJ
+<br>【百度密碼】：qhg4
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
