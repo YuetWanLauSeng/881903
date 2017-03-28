@@ -211,8 +211,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Dg9187075062
 <br>【MediaFire】：http://adf.ly/1ltirR （or） http://www.linkbucks.com/AdV2r
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1luUFG （or） http://www.linkbucks.com/AdUBl
+<br>【百度密碼】：tz9q
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -223,8 +223,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Zl6187105992
 <br>【MediaFire】：http://adf.ly/1ltitX （or） http://www.linkbucks.com/AdVzj
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1luU4a （or） http://www.linkbucks.com/AdUcw
+<br>【百度密碼】：2n9m
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -235,8 +235,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/E1W187107411
 <br>【MediaFire】：http://adf.ly/1ltisa （or） http://www.linkbucks.com/AdV1W
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1luUCV （or） http://www.linkbucks.com/AdUcg
+<br>【百度密碼】：7pv7
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -247,8 +247,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/h9A187108986
 <br>【MediaFire】：http://adf.ly/1ltiji （or） http://www.linkbucks.com/AdV7I
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1luTvX （or） http://www.linkbucks.com/AdUfe
+<br>【百度密碼】：rsre
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -259,8 +259,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hVj187108815
 <br>【MediaFire】：http://adf.ly/1ltilI （or） http://www.linkbucks.com/AdV5D
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1luU1u （or） http://www.linkbucks.com/AdUe3
+<br>【百度密碼】：nns3
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -271,8 +271,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/K0F187111542
 <br>【MediaFire】：http://adf.ly/1ltiik （or） http://www.linkbucks.com/AdV8B
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1luTzR （or） http://www.linkbucks.com/AdUfM
+<br>【百度密碼】：7g4e
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -282,9 +282,9 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/H1Y187184109
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1luRei （or） http://www.linkbucks.com/AdUyd
+<br>【百度網盤】：http://adf.ly/1luTnk （or） http://www.linkbucks.com/AdUgT
+<br>【百度密碼】：jr7k
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -294,9 +294,9 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/68v187183377
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1luRgW （or） http://www.linkbucks.com/AdUyD
+<br>【百度網盤】：http://adf.ly/1luTsn （or） http://www.linkbucks.com/AdUf1
+<br>【百度密碼】：7pfe
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -306,9 +306,9 @@
 <br>【檔案名稱】：Canto Pop.2017-03-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jHn187182765
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1luRiU （or） http://www.linkbucks.com/AdUxl
+<br>【百度網盤】：http://adf.ly/1luTq2 （or） http://www.linkbucks.com/AdUgB
+<br>【百度密碼】：5h8g
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -317,7 +317,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-03-27
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/KeX187186695
+<br>【MediaFire】：http://adf.ly/1luRcs （or） http://www.linkbucks.com/AdUys
+<br>【百度網盤】：http://adf.ly/1luTlC （or） http://www.linkbucks.com/AdUgi
+<br>【百度密碼】：b64i
