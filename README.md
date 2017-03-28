@@ -222,7 +222,7 @@
 <br>【檔案名稱】：Tea For You.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/oPx187269852
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lvUTC （or） http://www.linkbucks.com/AdTrs
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -233,7 +233,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-03-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/duH187272432
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
