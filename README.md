@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/u9m187201761
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lulpG （or） http://www.linkbucks.com/AdODy
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Ggn187200828
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lulg3 （or） http://www.linkbucks.com/AdMD8
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GgY187200468
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lulrK （or） http://www.linkbucks.com/AdNpp
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/u1R187201563
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lum3T （or） http://www.linkbucks.com/AdNmM
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：James Tien & Friends.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mWj187200522
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lulwM （or） http://www.linkbucks.com/AdNok
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/CTN187201317
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lum1C （or） http://www.linkbucks.com/AdNma
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/HLF187200957
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lulnM （or） http://www.linkbucks.com/AdL92
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nch187206138
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lultg （or） http://www.linkbucks.com/AdNpE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
