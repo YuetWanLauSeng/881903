@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/KiW188467035
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwYnY （or） http://www.linkbucks.com/AdpgG
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZkK188465946
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwYjU （or） http://www.linkbucks.com/Ads9I
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JN0188464056
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwYr0 （or） http://www.linkbucks.com/Adpbf
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/D0B188466390
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwYlv （or） http://www.linkbucks.com/Ads76
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：James Tien & Friends.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mP1188464242
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwYro （or） http://www.linkbucks.com/AdpbG
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nJQ188463099
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwYmq （or） http://www.linkbucks.com/Adpgx
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jzj188459298
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwYkp （or） http://www.linkbucks.com/Ads8b
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rWK188469921
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwYpw （or） http://www.linkbucks.com/AdpdM
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
