@@ -210,7 +210,7 @@
 <br>【檔案名稱】：My Daily Life.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hwf187269516
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwQhJ （or） http://www.linkbucks.com/Ad9w6
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Sino Stream.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/duH187272432
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwQgW （or） http://www.linkbucks.com/Ad9y6
 <br>【百度網盤】：http://adf.ly/1lvdlv （or） http://www.linkbucks.com/AdP97
 <br>【百度密碼】：8p4h
 
@@ -246,7 +246,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1PG187273887
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwQdb （or） http://www.linkbucks.com/Ad904
 <br>【百度網盤】：http://adf.ly/1lvdkN （or） http://www.linkbucks.com/AdQAt
 <br>【百度密碼】：guju
 
@@ -266,7 +266,7 @@
 <br>【檔案名稱】：Hair Again.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ibw187273719
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwQf4 （or） http://www.linkbucks.com/Ad9z3
 <br>【百度網盤】：http://adf.ly/1lvdlD （or） http://www.linkbucks.com/AdQAX
 <br>【百度密碼】：csz1
 
@@ -278,7 +278,7 @@
 <br>【檔案名稱】：Summit.2017-03-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/myT187275102
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwQcM （or） http://www.linkbucks.com/Ad915
 <br>【百度網盤】：http://adf.ly/1lvdjW （or） http://www.linkbucks.com/AdQBJ
 <br>【百度密碼】：qhg4
 
@@ -289,7 +289,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9ob188386299
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -301,7 +301,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/69l188382441
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -313,7 +313,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-03-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Kh5188381565
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -325,7 +325,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-03-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5QU188380770
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
