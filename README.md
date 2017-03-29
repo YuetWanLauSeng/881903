@@ -150,9 +150,9 @@
 <br>【檔案名稱】：The Fun Box.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9H8188561412
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lwuUB （or） http://www.linkbucks.com/Ad7gR
+<br>【百度網盤】：http://adf.ly/1lwuF2 （or） http://www.linkbucks.com/Ad7jU
+<br>【百度密碼】：764u
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -162,8 +162,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2V5188559897
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
+<br>【MediaFire】：http://adf.ly/1lwty3 （or） http://www.linkbucks.com/Ad7hp
+<br>【百度網盤】：http://adf.ly/1lwu85 （or） http://www.linkbucks.com/Ad7lF
 <br>【百度密碼】：ba2y
 
 <br>【節目名稱】：毒檸王國
@@ -174,9 +174,9 @@
 <br>【檔案名稱】：Dokureioukoku.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GhX188616606
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lwuaD （or） http://www.linkbucks.com/Ad7e0
+<br>【百度網盤】：http://adf.ly/1lwuLl （or） http://www.linkbucks.com/Ad7iW
+<br>【百度密碼】：ydw9
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
