@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/V6z189919068
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lyB5a （or） http://www.linkbucks.com/Ad6wW
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/yFY189916467
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lyB6D （or） http://www.linkbucks.com/Ad6vE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5JW189912924
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lyB79 （or） http://www.linkbucks.com/Ad6uc
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/N96189918222
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lyB9n （or） http://www.linkbucks.com/Ad6tO
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：James Tien & Friends.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uwK189913158
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lyBAg （or） http://www.linkbucks.com/Ad6sp
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JfG189908943
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lyB7y （or） http://www.linkbucks.com/Ad6ty
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QR4189906876
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lyB35 （or） http://www.linkbucks.com/Ad6yD
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0DL189919530
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lyBBQ （or） http://www.linkbucks.com/Ad6sU
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
