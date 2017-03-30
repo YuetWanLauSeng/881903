@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Zine.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gNa188665440
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ly4tg （or） http://www.linkbucks.com/Adn8P
 <br>【百度網盤】：http://adf.ly/1lx0Ud （or） http://www.linkbucks.com/AeCWf
 <br>【百度密碼】：m9ip
 
@@ -206,7 +206,7 @@
 <br>【檔案名稱】：My Daily Life.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/RQh188662980
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ly4q0 （or） http://www.linkbucks.com/Adn8b
 <br>【百度網盤】：http://adf.ly/1lx0VP （or） http://www.linkbucks.com/AeCVV
 <br>【百度密碼】：h43e
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/OAN188701185
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ly4o3 （or） http://www.linkbucks.com/Adn9M
 <br>【百度網盤】：http://adf.ly/1lx0Ti （or） http://www.linkbucks.com/AeCYP
 <br>【百度密碼】：5zb5
 
@@ -254,7 +254,7 @@
 <br>【檔案名稱】：Summit.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tNz188725764
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1ly4jU （or） http://www.linkbucks.com/Adn97
 <br>【百度網盤】：http://adf.ly/1lx0Sd （or） http://www.linkbucks.com/AeCY1
 <br>【百度密碼】：irrc
 
@@ -266,9 +266,9 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Dpe188927400
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1ly33z （or） http://www.linkbucks.com/AeJM8
+<br>【百度網盤】：http://adf.ly/1ly2SU （or） http://www.linkbucks.com/AeJRw
+<br>【百度密碼】：s2uu
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -278,9 +278,9 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1kX188923191
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1ly3Zz （or） http://www.linkbucks.com/Ad5QP
+<br>【百度網盤】：http://adf.ly/1ly2Wx （or） http://www.linkbucks.com/AeJQ6
+<br>【百度密碼】：873r
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -290,9 +290,9 @@
 <br>【檔案名稱】：Canto Pop.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZTP188922483
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1ly4fU （or） http://www.linkbucks.com/AdoAi
+<br>【百度網盤】：http://adf.ly/1ly2bQ （or） http://www.linkbucks.com/AeJQd
+<br>【百度密碼】：qrxr
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -302,6 +302,6 @@
 <br>【檔案名稱】：Begin with Music.2017-03-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/XlF188921889
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1ly2kh （or） http://www.linkbucks.com/AeJPL
+<br>【百度網盤】：http://adf.ly/1ly2eg （or） http://www.linkbucks.com/AeJQB
+<br>【百度密碼】：d57m
