@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hAG190153593
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lz07D （or） http://www.linkbucks.com/AeIQK
 <br>【百度網盤】：http://adf.ly/1lyblR （or） http://www.linkbucks.com/AdzXK
 <br>【百度密碼】：gkg6
 
@@ -174,9 +174,9 @@
 <br>【檔案名稱】：Dokureioukoku.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/u3p190137921
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lz09G （or） http://www.linkbucks.com/AeIPA
+<br>【百度網盤】：http://pan.baidu.com/s/1eRRVkWi （or） http://www.linkbucks.com/AeILK
+<br>【百度密碼】：eq79
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -186,9 +186,9 @@
 <br>【檔案名稱】：Zine.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Ygc190160952
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lz08z （or） http://www.linkbucks.com/AeIPf
+<br>【百度網盤】：http://adf.ly/1lz0Go （or） http://www.linkbucks.com/AeILb
+<br>【百度密碼】：i4dc
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -198,9 +198,9 @@
 <br>【檔案名稱】：Our Way Out.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/eLg190145871
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lz084 （or） http://www.linkbucks.com/AeIPy
+<br>【百度網盤】：http://adf.ly/1lz0G2 （or） http://www.linkbucks.com/AeILv
+<br>【百度密碼】：1854
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -210,9 +210,9 @@
 <br>【檔案名稱】：My Daily Life.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fHj190142616
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lz06Y （or） http://www.linkbucks.com/AeIQq
+<br>【百度網盤】：http://adf.ly/1lz0FV （or） http://www.linkbucks.com/AeIMC
+<br>【百度密碼】：8mts
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -222,9 +222,9 @@
 <br>【檔案名稱】：Tea For You.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Be8190149561
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lz0AV （or） http://www.linkbucks.com/AeIOY
+<br>【百度網盤】：http://adf.ly/1lz0IY （or） http://www.linkbucks.com/AeDp1
+<br>【百度密碼】：6mqe
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Sino Stream.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hXB190147314
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lz0Bo （or） http://www.linkbucks.com/AeINt
 <br>【百度網盤】：http://adf.ly/1lybf5 （or） http://www.linkbucks.com/AdzwO
 <br>【百度密碼】：jkui
 
@@ -247,8 +247,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/RWV190177311
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lz0Eq （or） http://www.linkbucks.com/AeIMf
+<br>【百度密碼】：hgxn
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -258,9 +258,9 @@
 <br>【檔案名稱】：Reading Time.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tpS190170213
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lz0B2 （or） http://www.linkbucks.com/AeIOK
+<br>【百度網盤】：http://adf.ly/1lz0JG （or） http://www.linkbucks.com/AeDpI
+<br>【百度密碼】：eqtw
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -270,7 +270,7 @@
 <br>【檔案名稱】：Summit.2017-03-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rQO190180752
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1lz0A5 （or） http://www.linkbucks.com/AeIOs
 <br>【百度網盤】：http://adf.ly/1lybgo （or） http://www.linkbucks.com/AdzXj
 <br>【百度密碼】：kc77
 
@@ -281,7 +281,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/BAz190587117
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -293,7 +293,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/59O190583403
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -305,7 +305,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-03-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/B0Y190580931
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
