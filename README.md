@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5lQ190803153
 <br>【MediaFire】：http://adf.ly/1lzX4x （or） http://www.linkbucks.com/AdqKe
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lzkNE （or） http://www.linkbucks.com/AeApN
+<br>【百度密碼】：py2f
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/VwL190809588
 <br>【MediaFire】：http://adf.ly/1lzX2S （or） http://www.linkbucks.com/AdqL1
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lzkLg （or） http://www.linkbucks.com/AeAph
+<br>【百度密碼】：jtbw
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -174,9 +174,9 @@
 <br>【檔案名稱】：Dokureioukoku.2017-03-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qNK190842444
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lzjVu （or） http://www.linkbucks.com/AeDY9
+<br>【百度網盤】：http://adf.ly/1lzkPs （or） http://www.linkbucks.com/AeAoc
+<br>【百度密碼】：ndbv
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -186,9 +186,9 @@
 <br>【檔案名稱】：Zine.2017-03-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ef8190932669
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lzjU6 （or） http://www.linkbucks.com/AeDZ7
+<br>【百度網盤】：http://adf.ly/1lzkJ6 （or） http://www.linkbucks.com/AeAqd
+<br>【百度密碼】：tbp7
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -198,9 +198,9 @@
 <br>【檔案名稱】：Our Way Out.2017-03-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Rch190930095
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1lzirY （or） http://www.linkbucks.com/AeDLu
+<br>【百度網盤】：http://adf.ly/1lzkKI （or） http://www.linkbucks.com/AeAp7
+<br>【百度密碼】：vjf8
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -209,7 +209,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tAq190973247
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -221,7 +221,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Bp1190969446
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -233,7 +233,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/z2U190994367
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
