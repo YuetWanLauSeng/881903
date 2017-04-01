@@ -211,8 +211,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tAq190973247
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lzrSQ （or） http://www.linkbucks.com/Aemlx
+<br>【百度密碼】：8t3s
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -223,8 +223,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Bp1190969446
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lzrQo （or） http://www.linkbucks.com/Aemmh
+<br>【百度密碼】：gk9w
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -235,8 +235,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/z2U190994367
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lzrRa （or） http://www.linkbucks.com/AemmN
+<br>【百度密碼】：fspk
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -245,10 +245,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Fut191027397
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lzrNm （or） http://www.linkbucks.com/AemnU
+<br>【百度密碼】：em1j
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -256,11 +256,19 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-03-31
+<br>【節目暫停】：改播『全世界嚮導』
+
+<br>【節目名稱】：全世界嚮導
+<br>【節目頻道】：881
+<br>【節目日期】：2017-03-31
+<br>【節目主持】：項明生 | 馮志豐
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：The Explorer.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/NvC191023296
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lzrPc （or） http://www.linkbucks.com/Aemm9
+<br>【百度密碼】：8iji
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -269,10 +277,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/VcZ191054937
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1lzrLg （or） http://www.linkbucks.com/Aemn5
+<br>【百度密碼】：t5hj
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -281,7 +289,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JeY191312042
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -293,7 +301,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/vWg191307140
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -305,7 +313,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JKv191305229
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -317,7 +325,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-03-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/XRc191303198
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
