@@ -78,7 +78,7 @@
 <br>【檔案名稱】：903 Top 20.2017-04-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kEQ191549513
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m0ScD （or） http://www.linkbucks.com/Aei2a
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Stroke Decryption.2017-04-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/t8n191555447
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m0Sh3 （or） http://www.linkbucks.com/AeizS
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：Movies.2017-04-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/BHs191552774
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m0Sdg （or） http://www.linkbucks.com/Aei1R
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Mr Chef.2017-04-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xzg191554493
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m0SeL （or） http://www.linkbucks.com/Aei0z
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：903 Band Time.2017-04-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kjv191558378
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m0SgH （or） http://www.linkbucks.com/Aeiz1
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
