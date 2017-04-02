@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Reading Time.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aIY192225380
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m1QtY （or） http://www.linkbucks.com/8BQ5
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -17,8 +17,8 @@
 <br>【節目時間】：06:00 - 09:00
 <br>【檔案名稱】：Star House.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/b5m192307037
+<br>【MediaFire】：http://adf.ly/1m1UUl （or） http://www.linkbucks.com/Aefmq
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WBZ192216086
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m1Qws （or） http://www.linkbucks.com/67yc
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：Urban Touch.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/F0c192235904
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m1QvR （or） http://www.linkbucks.com/7cqH
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Road Co-op.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/s5I192228938
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m1Qxl （or） http://www.linkbucks.com/6wcc
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：The Way We Are.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/LIi192238964
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m1QwK （or） http://www.linkbucks.com/7Px8
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zIz192247496
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m1QuA （or） http://www.linkbucks.com/7sZR
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -89,8 +89,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IIE192352250
+<br>【MediaFire】：http://adf.ly/1m1UTr （or） http://www.linkbucks.com/Aefmz
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
