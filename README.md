@@ -102,9 +102,9 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZsK192534332
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m1kR4 （or） http://www.linkbucks.com/Ael9b
+<br>【百度網盤】：http://adf.ly/1m1kUu （or） http://www.linkbucks.com/AeZTZ
+<br>【百度密碼】：uyqh
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -114,9 +114,9 @@
 <br>【檔案名稱】：Mali Mali Home.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/keo192526178
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m1kPA （or） http://www.linkbucks.com/AemAM
+<br>【百度網盤】：http://adf.ly/1m1kSX （or） http://www.linkbucks.com/AeeYl
+<br>【百度密碼】：nif3
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -126,9 +126,9 @@
 <br>【檔案名稱】：Sino Stream.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/orj192552590
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m1kQ8 （or） http://www.linkbucks.com/Ael9n
+<br>【百度網盤】：http://adf.ly/1m1kU2 （or） http://www.linkbucks.com/AeZT0
+<br>【百度密碼】：s535
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -138,9 +138,9 @@
 <br>【檔案名稱】：Sino Stream - Reading.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tqf192550991
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m1kOa （or） http://www.linkbucks.com/AemAm
+<br>【百度網盤】：http://adf.ly/1m1kTO （or） http://www.linkbucks.com/AeeYY
+<br>【百度密碼】：u3hx
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -149,7 +149,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Rb9192601430
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -161,7 +161,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gXZ192604523
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -173,7 +173,7 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Zw3192615794
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
