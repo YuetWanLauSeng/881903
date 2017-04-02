@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aIY192225380
 <br>【MediaFire】：http://adf.ly/1m1QtY （or） http://www.linkbucks.com/8BQ5
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m1gEs （or） http://www.linkbucks.com/AeRMI
+<br>【百度密碼】：wi1d
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/b5m192307037
 <br>【MediaFire】：http://adf.ly/1m1UUl （or） http://www.linkbucks.com/Aefmq
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m1g9d （or） http://www.linkbucks.com/AeRNN
+<br>【百度密碼】：bqrg
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WBZ192216086
 <br>【MediaFire】：http://adf.ly/1m1Qws （or） http://www.linkbucks.com/67yc
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m1gGz （or） http://www.linkbucks.com/AeRLr
+<br>【百度密碼】：snkc
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/F0c192235904
 <br>【MediaFire】：http://adf.ly/1m1QvR （or） http://www.linkbucks.com/7cqH
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m1g1D （or） http://www.linkbucks.com/AeRP7
+<br>【百度密碼】：sgsm
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/s5I192228938
 <br>【MediaFire】：http://adf.ly/1m1Qxl （or） http://www.linkbucks.com/6wcc
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m1gDt （or） http://www.linkbucks.com/AeRMS
+<br>【百度密碼】：j97t
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/LIi192238964
 <br>【MediaFire】：http://adf.ly/1m1QwK （or） http://www.linkbucks.com/7Px8
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m1g6j （or） http://www.linkbucks.com/AeRON
+<br>【百度密碼】：rr7g
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zIz192247496
 <br>【MediaFire】：http://adf.ly/1m1QuA （or） http://www.linkbucks.com/7sZR
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m1g8Y （or） http://www.linkbucks.com/AeRNk
+<br>【百度密碼】：qu8m
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IIE192352250
 <br>【MediaFire】：http://adf.ly/1m1UTr （or） http://www.linkbucks.com/Aefmz
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m1gAz （or） http://www.linkbucks.com/AeRM6
+<br>【百度密碼】：a6vr
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -125,7 +125,7 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/orj192552590
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -137,7 +137,7 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tqf192550991
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
