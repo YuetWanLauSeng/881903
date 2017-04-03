@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Rb9192601430
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m2GJM （or） http://www.linkbucks.com/AeXSl
+<br>【百度密碼】：nr39
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -162,9 +162,9 @@
 <br>【檔案名稱】：Kimchi Fans Club.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gXZ192604523
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m2F83 （or） http://www.linkbucks.com/AedSf
+<br>【百度網盤】：http://adf.ly/1m2GIM （or） http://www.linkbucks.com/AeXS4
+<br>【百度密碼】：t2yy
 
 <br>【節目名稱】：細路強
 <br>【節目頻道】：881
@@ -174,9 +174,9 @@
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-04-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Zw3192615794
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m2FAf （or） http://www.linkbucks.com/AedQe
+<br>【百度網盤】：http://adf.ly/1m2GFv （or） http://www.linkbucks.com/AeXTo
+<br>【百度密碼】：qkmp
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -185,7 +185,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JJ0193122050
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -197,7 +197,7 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mu7193106195
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -209,7 +209,7 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/XpC193103075
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -221,7 +221,7 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5eK193115492
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -233,7 +233,7 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Bfe193101950
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -245,7 +245,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6qm193085597
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -257,7 +257,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-04-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/h09193099346
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
