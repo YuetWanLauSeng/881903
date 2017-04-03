@@ -1,5 +1,3 @@
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
-
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2017-04-03
@@ -8,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fiY193254461
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m2QRV （or） http://www.linkbucks.com/AfDaM
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -20,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/p9F193272416
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m2QQe （or） http://www.linkbucks.com/AfDcE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -32,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YoB193242218
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m2QTc （or） http://www.linkbucks.com/AfDYr
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -44,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ncf193249670
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m2QSz （or） http://www.linkbucks.com/AfDZR
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -56,7 +54,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/irg193243733
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m2QUl （or） http://www.linkbucks.com/AfDYH
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -68,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1zQ193239005
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m2QSM （or） http://www.linkbucks.com/AfDZm
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -80,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MAb193277237
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m2QPp （or） http://www.linkbucks.com/AfDck
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -92,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FEr193279997
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m2QVN （or） http://www.linkbucks.com/AfDXz
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
