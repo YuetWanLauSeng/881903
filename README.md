@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/n3h194133878
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3ieN （or） http://www.linkbucks.com/AfDKA
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Ntw194134832
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3igv （or） http://www.linkbucks.com/AfDJt
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,8 +173,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2017-04-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JJf194139365
+<br>【MediaFire】：http://adf.ly/1m3ibW （or） http://www.linkbucks.com/AfDKr
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -185,8 +185,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-04-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xHn194139164
+<br>【MediaFire】：http://adf.ly/1m3iXB （or） http://www.linkbucks.com/AfDK3
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
