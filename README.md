@@ -222,7 +222,7 @@
 <br>【檔案名稱】：My Daily Life.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jVk194158408
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m4HgF （or） http://www.linkbucks.com/Ae0I4
 <br>【百度網盤】：http://adf.ly/1m4Aam （or） http://www.linkbucks.com/AfGP2
 <br>【百度密碼】：h8z2
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Tea For You.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Iuj194158696
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m4Hhk （or） http://www.linkbucks.com/Ae0If
 <br>【百度網盤】：http://adf.ly/1m4AYO （or） http://www.linkbucks.com/AfGZg
 <br>【百度密碼】：a2um
 
@@ -246,7 +246,7 @@
 <br>【檔案名稱】：Sino Stream.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uRl194165305
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m4Hgp （or） http://www.linkbucks.com/Ae0Ip
 <br>【百度網盤】：http://adf.ly/1m4Aby （or） http://www.linkbucks.com/AfGPl
 <br>【百度密碼】：v4qx
 
@@ -258,9 +258,9 @@
 <br>【檔案名稱】：Vanila Sky.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m4Hem （or） http://www.linkbucks.com/Ae0JI
+<br>【百度網盤】：http://adf.ly/1m4HYE （or） http://www.linkbucks.com/AeyIh
+<br>【百度密碼】：xk49
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -279,8 +279,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4HZZ （or） http://www.linkbucks.com/AeyIT
+<br>【百度密碼】：6f73
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -289,10 +289,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3kr194346401
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4HXU （or） http://www.linkbucks.com/AeyIw
+<br>【百度密碼】：d2hj
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
