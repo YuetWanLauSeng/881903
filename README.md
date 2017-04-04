@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/7p4194116646
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3XGf （or） http://www.linkbucks.com/xlV0
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/THF194115881
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3XCC （or） http://www.linkbucks.com/yw2h
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YFK194115134
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3XEX （or） http://www.linkbucks.com/yMFw
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Bpj194116439
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3XDv （or） http://www.linkbucks.com/ydwL
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Z8p194115218
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3XHn （or） http://www.linkbucks.com/xD0o
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GCl194114966
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3XD8 （or） http://www.linkbucks.com/yjAG
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1DE194114636
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3XFm （or） http://www.linkbucks.com/xpmy
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-04-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GdJ194118359
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m3XFD （or） http://www.linkbucks.com/xz84
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
