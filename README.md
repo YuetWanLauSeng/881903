@@ -223,8 +223,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jVk194158408
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4Aam （or） http://www.linkbucks.com/AfGP2
+<br>【百度密碼】：h8z2
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -235,8 +235,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Iuj194158696
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4AYO （or） http://www.linkbucks.com/AfGZg
+<br>【百度密碼】：a2um
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -245,10 +245,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-04-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uRl194165305
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4Aby （or） http://www.linkbucks.com/AfGPl
+<br>【百度密碼】：v4qx
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
