@@ -282,9 +282,9 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Svv194106164
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m3SQl （or） http://www.linkbucks.com/AewN4
+<br>【百度網盤】：http://adf.ly/1m3SJU （or） http://www.linkbucks.com/AewPN
+<br>【百度密碼】：628v
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -294,9 +294,9 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hLU194105522
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m3SSp （or） http://www.linkbucks.com/AewNW
+<br>【百度網盤】：http://adf.ly/1m3SMb （or） http://www.linkbucks.com/AewOt
+<br>【百度密碼】：rph8
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -306,9 +306,9 @@
 <br>【檔案名稱】：Canto Pop.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FSh194105333
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m3SRj （or） http://www.linkbucks.com/AewNl
+<br>【百度網盤】：http://adf.ly/1m3SLE （or） http://www.linkbucks.com/AewO9
+<br>【百度密碼】：4skk
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -318,6 +318,6 @@
 <br>【檔案名稱】：Begin with Music.2017-04-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6Wh194105081
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m3SXj （or） http://www.linkbucks.com/AewMg
+<br>【百度網盤】：http://adf.ly/1m3SIA （or） http://www.linkbucks.com/AewPd
+<br>【百度密碼】：ufcn
