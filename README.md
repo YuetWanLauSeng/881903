@@ -5,7 +5,7 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Haj194385060
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4pEZ （or） http://www.linkbucks.com/AezXO
 <br>【百度密碼】：4twk
@@ -17,7 +17,7 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GMs194385968
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4p5P （or） http://www.linkbucks.com/Aezab
 <br>【百度密碼】：w65a
@@ -29,7 +29,7 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3Yf194384355
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4p72 （or） http://www.linkbucks.com/AezZw
 <br>【百度密碼】：nzuv
@@ -41,7 +41,7 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3Yf194384355
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4p4X （or） http://www.linkbucks.com/Aezax
 <br>【百度密碼】：bd82
@@ -53,7 +53,7 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Oh! Master Bear.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Elc194372933
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4p6N （or） http://www.linkbucks.com/AezaH
 <br>【百度密碼】：29uk
@@ -65,7 +65,7 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/TYw194381024
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4p7R （or） http://www.linkbucks.com/AezZk
 <br>【百度密碼】：6z5b
@@ -77,7 +77,7 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MkP194373191
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4p8k （or） http://www.linkbucks.com/AezY8
 <br>【百度密碼】：gb4d
@@ -89,7 +89,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jm5194380064
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4pKv （or） http://www.linkbucks.com/AezVa
 <br>【百度密碼】：vuew
@@ -101,7 +101,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rKH194387535
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4uXl （or） http://www.linkbucks.com/AfHhO
 <br>【百度密碼】：tj9p
@@ -113,7 +113,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hLY194388122
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4uWH （or） http://www.linkbucks.com/AfHh5
 <br>【百度密碼】：9b3a
@@ -125,7 +125,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zrw194387894
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4uXD （or） http://www.linkbucks.com/AfHhm
 <br>【百度密碼】：qtzg
@@ -137,7 +137,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bNZ194388468
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m4uYV （or） http://www.linkbucks.com/AfHhB
 <br>【百度密碼】：76rx
@@ -149,10 +149,10 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JkB194388726
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4xLM （or） http://www.linkbucks.com/AfCAW
+<br>【百度密碼】：a6bf
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -161,10 +161,10 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/o8P194388959
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4xKe （or） http://www.linkbucks.com/AfCAq
+<br>【百度密碼】：8zjf
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
