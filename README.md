@@ -303,8 +303,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4g7a （or） http://www.linkbucks.com/CNPxI
+<br>【百度密碼】：g964
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -315,8 +315,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4g9L （or） http://www.linkbucks.com/CNPtd
+<br>【百度密碼】：hjce
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -327,8 +327,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4gAg （or） http://www.linkbucks.com/CNPtN
+<br>【百度密碼】：j19q
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
