@@ -185,10 +185,10 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-04-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cYW194392715
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m51OR （or） http://www.linkbucks.com/AfRRv
+<br>【百度密碼】：ks5u
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
