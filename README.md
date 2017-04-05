@@ -103,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4uXl （or） http://www.linkbucks.com/AfHhO
+<br>【百度密碼】：tj9p
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -115,8 +115,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4uWH （or） http://www.linkbucks.com/AfHh5
+<br>【百度密碼】：9b3a
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -127,8 +127,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4uXD （or） http://www.linkbucks.com/AfHhm
+<br>【百度密碼】：qtzg
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -139,8 +139,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m4uYV （or） http://www.linkbucks.com/AfHhB
+<br>【百度密碼】：76rx
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
