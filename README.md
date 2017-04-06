@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3Yf194384355
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m5kmU （or） http://www.linkbucks.com/AcAoZ
 <br>【百度網盤】：http://adf.ly/1m4p72 （or） http://www.linkbucks.com/AezZw
 <br>【百度密碼】：nzuv
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rKH194387535
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m5kon （or） http://www.linkbucks.com/Aa987
 <br>【百度網盤】：http://adf.ly/1m4uXl （or） http://www.linkbucks.com/AfHhO
 <br>【百度密碼】：tj9p
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Lunch Special.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hLY194388122
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m5kpf （or） http://www.linkbucks.com/AatrF
 <br>【百度網盤】：http://adf.ly/1m4uWH （or） http://www.linkbucks.com/AfHh5
 <br>【百度密碼】：9b3a
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zrw194387894
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m5knY （or） http://www.linkbucks.com/AbVGC
 <br>【百度網盤】：http://adf.ly/1m4uXD （or） http://www.linkbucks.com/AfHhm
 <br>【百度密碼】：qtzg
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bNZ194388468
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m5kqv （or） http://www.linkbucks.com/AaNiM
 <br>【百度網盤】：http://adf.ly/1m4uYV （or） http://www.linkbucks.com/AfHhB
 <br>【百度密碼】：76rx
 
@@ -206,9 +206,9 @@
 <br>【檔案名稱】：My Daily Life.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Mtz194404179
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m5kqD （or） http://www.linkbucks.com/AakkS
+<br>【百度網盤】：http://adf.ly/1m5eYQ （or） http://www.linkbucks.com/Affo0
+<br>【百度密碼】：737c
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -234,8 +234,8 @@
 <br>【檔案名稱】：Vanila Sky.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/RLW194470725
-<br>【MediaFire】： （or） 
-<br>【百度網盤】：http://pan.baidu.com/s/1dF5niNJ
+<br>【MediaFire】：（or）
+<br>【百度網盤】：http://adf.ly/1m5dfP （or） http://www.linkbucks.com/AfgOX
 <br>【百度密碼】：vdad
 
 <br>【節目名稱】：書.情.歌
@@ -254,8 +254,8 @@
 <br>【檔案名稱】：Summit.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4we194482911
-<br>【MediaFire】： （or） 
-<br>【百度網盤】：http://pan.baidu.com/s/1skFxL3B
+<br>【MediaFire】：http://adf.ly/1m5ko2 （or） http://www.linkbucks.com/AbK8Z
+<br>【百度網盤】：http://adf.ly/1m5dcx （or） http://www.linkbucks.com/AfgQT
 <br>【百度密碼】：qu44
 
 <br>【節目名稱】：聖艾粒忌廉夜校
@@ -266,9 +266,9 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bkd194615149
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m5kmp （or） http://www.linkbucks.com/AbsUB
+<br>【百度網盤】：http://adf.ly/1m5ki4 （or） http://www.linkbucks.com/Ac26r
+<br>【百度密碼】：s8yv
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -278,9 +278,9 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Dvd194619782
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m5knH （or） http://www.linkbucks.com/AbaYs
+<br>【百度網盤】：http://adf.ly/1m5kj0 （or） http://www.linkbucks.com/ActtU
+<br>【百度密碼】：prvy
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -290,9 +290,9 @@
 <br>【檔案名稱】：Canto Pop.2017-04-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/we7194617438
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m5klz （or） http://www.linkbucks.com/AcPDK
+<br>【百度網盤】：http://adf.ly/1m5kk2 （or） http://www.linkbucks.com/AcokC
+<br>【百度密碼】：46jp
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -303,5 +303,5 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zMk194610677
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m5kkn （or） http://www.linkbucks.com/Acn8H
+<br>【百度密碼】：dbty
