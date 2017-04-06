@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ftU194968336
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6ELR （or） http://www.linkbucks.com/AfPjl
 <br>【百度網盤】：http://adf.ly/1m628h （or） http://www.linkbucks.com/AfTBY
 <br>【百度密碼】：xayd
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wwV194940773
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6EFK （or） http://www.linkbucks.com/AfPkC
 <br>【百度網盤】：http://adf.ly/1m62pF （or） http://www.linkbucks.com/AfRzO
 <br>【百度密碼】：13tc
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/D0u194988795
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6E6L （or） http://www.linkbucks.com/AfPkg
 <br>【百度網盤】：http://adf.ly/1m62tr （or） http://www.linkbucks.com/AfRw0
 <br>【百度密碼】：w9xi
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Dt7194993707
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6ECF （or） http://www.linkbucks.com/AfPkU
 <br>【百度網盤】：http://adf.ly/1m623i （or） http://www.linkbucks.com/AfTbJ
 <br>【百度密碼】：dgpm
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/agY195060237
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6E3k （or） http://www.linkbucks.com/AfPlZ
 <br>【百度網盤】：http://adf.ly/1m62MO （or） http://www.linkbucks.com/AfSIa
 <br>【百度密碼】：2xgh
 
@@ -187,8 +187,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/pSr195496865
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6Env （or） http://www.linkbucks.com/AfPgS
+<br>【百度密碼】：xv7q
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -199,8 +199,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0xq195492809
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6EpO （or） http://www.linkbucks.com/AfPf3
+<br>【百度密碼】：1azt
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -211,8 +211,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SQv195477556
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6EqD （or） http://www.linkbucks.com/AfPfp
+<br>【百度密碼】：mc7a
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -223,8 +223,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xW7195494808
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6Eoc （or） http://www.linkbucks.com/AfPgH
+<br>【百度密碼】：src7
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -233,10 +233,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-04-06
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iDz195578466
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6Ej1 （or） http://www.linkbucks.com/AfPgf
+<br>【百度密碼】：e5q4
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -245,10 +245,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-06
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/pPr195637856
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6Eg6 （or） http://www.linkbucks.com/AfPiS
+<br>【百度密碼】：ghrk
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -257,10 +257,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-04-06
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Ze0195634004
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6EhJ （or） http://www.linkbucks.com/AfPiB
+<br>【百度密碼】：wrbs
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -269,10 +269,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-06
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JuR195755384
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6EuC （or） http://www.linkbucks.com/AfPfH
+<br>【百度密碼】：mggx
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
