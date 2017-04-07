@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3IY196141942
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6rgY （or） http://www.linkbucks.com/AfU6e
 <br>【百度網盤】：http://adf.ly/1m6oT9 （or） http://www.linkbucks.com/AffMV
 <br>【百度密碼】：3en6
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Ogf196126875
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6rmf （or） http://www.linkbucks.com/AfU4o
 <br>【百度網盤】：http://adf.ly/1m6oW8 （or） http://www.linkbucks.com/AffLQ
 <br>【百度密碼】：2ypi
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4Pi196127781
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6rnh （or） http://www.linkbucks.com/AfU4W
 <br>【百度網盤】：http://adf.ly/1m6oTw （or） http://www.linkbucks.com/AffMC
 <br>【百度密碼】：3q9h
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/grT196144057
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6rdF （or） http://www.linkbucks.com/AfXNZ
 <br>【百度網盤】：http://adf.ly/1m6oS8 （or） http://www.linkbucks.com/AffNC
 <br>【百度密碼】：7pgd
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rPC196158245
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6roh （or） http://www.linkbucks.com/AfU4E
 <br>【百度網盤】：http://adf.ly/1m6oUd （or） http://www.linkbucks.com/AffLr
 <br>【百度密碼】：m7gq
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Lunch Special.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uEH196224292
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6re9 （or） http://www.linkbucks.com/AfXNK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bbQ196221057
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6rff （or） http://www.linkbucks.com/AfXMW
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ySL196226270
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6rf5 （or） http://www.linkbucks.com/AfXMz
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -149,7 +149,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SHy196261822
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -161,7 +161,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/lt0196262986
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
