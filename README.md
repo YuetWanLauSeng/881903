@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/l1i196136678
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6vtO （or） http://www.linkbucks.com/AfQGn
 <br>【百度網盤】：http://adf.ly/1m6oNC （or） http://www.linkbucks.com/AffTS
 <br>【百度密碼】：urss
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zp7196218949
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6w2D （or） http://www.linkbucks.com/AfQFE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SHy196261822
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6vuq （or） http://www.linkbucks.com/AfQGf
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/lt0196262986
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6vrc （or） http://www.linkbucks.com/AfQG4
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Fp7196274602
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6w0s （or） http://www.linkbucks.com/AfQFT
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
