@@ -103,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zp7196218949
 <br>【MediaFire】：http://adf.ly/1m6w2D （or） http://www.linkbucks.com/AfQFE
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6wGU （or） http://www.linkbucks.com/AfP78
+<br>【百度密碼】：n7xk
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -115,8 +115,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uEH196224292
 <br>【MediaFire】：http://adf.ly/1m6re9 （or） http://www.linkbucks.com/AfXNK
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6wCU （or） http://www.linkbucks.com/AfQBf
+<br>【百度密碼】：99nn
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -127,8 +127,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bbQ196221057
 <br>【MediaFire】：http://adf.ly/1m6rff （or） http://www.linkbucks.com/AfXMW
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6wEL （or） http://www.linkbucks.com/AfP9D
+<br>【百度密碼】：ephc
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -139,8 +139,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ySL196226270
 <br>【MediaFire】：http://adf.ly/1m6rf5 （or） http://www.linkbucks.com/AfXMz
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m6w7e （or） http://www.linkbucks.com/AfQCh
+<br>【百度密碼】：7mxm
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SHy196261822
 <br>【MediaFire】：http://adf.ly/1m6vuq （or） http://www.linkbucks.com/AfQGf
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m71wQ （or） http://www.linkbucks.com/CNvl5
+<br>【百度密碼】：tg8w
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/lt0196262986
 <br>【MediaFire】：http://adf.ly/1m6vrc （or） http://www.linkbucks.com/AfQG4
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m71uZ （or） http://www.linkbucks.com/CNvmU
+<br>【百度密碼】：en23
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -175,8 +175,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Fp7196274602
 <br>【MediaFire】：http://adf.ly/1m6w0s （or） http://www.linkbucks.com/AfQFT
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m71y3 （or） http://www.linkbucks.com/CNvlh
+<br>【百度密碼】：v77m
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -185,7 +185,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kJG196516597
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -197,7 +197,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/O3z196511301
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
