@@ -221,10 +221,10 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/oJ5196562764
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m78pB （or） http://www.linkbucks.com/Afwht
+<br>【百度密碼】：wy8u
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -235,8 +235,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m78vU （or） http://www.linkbucks.com/Afwgy
+<br>【百度密碼】：65bn
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -265,10 +265,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Sdv196560715
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m78o2 （or） http://www.linkbucks.com/AfwkL
+<br>【百度密碼】：2yxv
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -279,8 +279,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m7922 （or） http://www.linkbucks.com/Afwd3
+<br>【百度密碼】：t894
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
