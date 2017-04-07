@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Zine.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/pSr195496865
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6cS4 （or） http://www.linkbucks.com/AfSrt
 <br>【百度網盤】：http://adf.ly/1m6Env （or） http://www.linkbucks.com/AfPgS
 <br>【百度密碼】：xv7q
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：Our Way Out.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0xq195492809
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6cPk （or） http://www.linkbucks.com/AfSsa
 <br>【百度網盤】：http://adf.ly/1m6EpO （or） http://www.linkbucks.com/AfPf3
 <br>【百度密碼】：1azt
 
@@ -210,7 +210,7 @@
 <br>【檔案名稱】：My Daily Life.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SQv195477556
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6cRH （or） http://www.linkbucks.com/AfSsE
 <br>【百度網盤】：http://adf.ly/1m6EqD （or） http://www.linkbucks.com/AfPfp
 <br>【百度密碼】：mc7a
 
@@ -222,7 +222,7 @@
 <br>【檔案名稱】：Tea For You.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/xW7195494808
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6cTB （or） http://www.linkbucks.com/AfSrG
 <br>【百度網盤】：http://adf.ly/1m6Eoc （or） http://www.linkbucks.com/AfPgH
 <br>【百度密碼】：src7
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Sino Stream.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iDz195578466
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6cSN （or） http://www.linkbucks.com/AfSrj
 <br>【百度網盤】：http://adf.ly/1m6Ej1 （or） http://www.linkbucks.com/AfPgf
 <br>【百度密碼】：e5q4
 
@@ -246,7 +246,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/pPr195637856
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6cRf （or） http://www.linkbucks.com/AfSr5
 <br>【百度網盤】：http://adf.ly/1m6Eg6 （or） http://www.linkbucks.com/AfPiS
 <br>【百度密碼】：ghrk
 
@@ -258,7 +258,7 @@
 <br>【檔案名稱】：Reading Time.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Ze0195634004
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6cTo （or） http://www.linkbucks.com/AfSq1
 <br>【百度網盤】：http://adf.ly/1m6EhJ （or） http://www.linkbucks.com/AfPiB
 <br>【百度密碼】：wrbs
 
@@ -270,7 +270,7 @@
 <br>【檔案名稱】：Summit.2017-04-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JuR195755384
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6cSo （or） http://www.linkbucks.com/AfSrR
 <br>【百度網盤】：http://adf.ly/1m6EuC （or） http://www.linkbucks.com/AfPfH
 <br>【百度密碼】：mggx
 
@@ -317,7 +317,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-04-06
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/p4a196058374
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
