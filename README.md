@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9X9196139872
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6t0W （or） http://www.linkbucks.com/AfUg7
 <br>【百度網盤】：http://adf.ly/1m6oR1 （or） http://www.linkbucks.com/AffNu
 <br>【百度密碼】：kzvk
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-04-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QkK196146796
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m6szC （or） http://www.linkbucks.com/AfUhY
 <br>【百度網盤】：http://adf.ly/1m6oPN （or） http://www.linkbucks.com/AffOl
 <br>【百度密碼】：kbti
 
@@ -173,7 +173,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Fp7196274602
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
