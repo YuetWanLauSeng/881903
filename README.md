@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Silver Age Club.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ENt197230330
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m7ygN （or） http://www.linkbucks.com/Af3dn
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：WonderMelon !.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QRt197230536
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m7ye3 （or） http://www.linkbucks.com/Af3fI
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -209,7 +209,7 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-04-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Z7N197238953
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -221,7 +221,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-04-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/B8D197239548
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
