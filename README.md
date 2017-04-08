@@ -209,7 +209,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ijX196896897
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -245,7 +245,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4R9196900754
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -277,7 +277,7 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/V8F196908709
 <br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1m7922 （or） http://www.linkbucks.com/Afwd3
 <br>【百度密碼】：t894
@@ -289,7 +289,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/scy196908152
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -301,7 +301,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0hZ196904461
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -313,7 +313,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-04-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kmo196902725
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
