@@ -162,7 +162,7 @@
 <br>【檔案名稱】：The Big Sportsman.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/C5F197206061
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m7v3u （or） http://www.linkbucks.com/Af8Ha
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Screw No.3.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qwu197204135
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m7v39 （or） http://www.linkbucks.com/Af8I7
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
