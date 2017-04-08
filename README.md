@@ -185,7 +185,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-04-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ENt197230330
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -197,7 +197,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-04-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QRt197230536
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
