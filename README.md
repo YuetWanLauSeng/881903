@@ -137,8 +137,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-04-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/8PQ197152324
+<br>【MediaFire】：http://adf.ly/1m7rEy （or） http://www.linkbucks.com/Aflwz
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -149,8 +149,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-04-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jLE197156849
+<br>【MediaFire】：http://adf.ly/1m7rH8 （or） http://www.linkbucks.com/AflwI
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
