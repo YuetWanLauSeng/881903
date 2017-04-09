@@ -210,7 +210,7 @@
 <br>【檔案名稱】：881 Music Station.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Z7N197238953
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m8y0e （or） http://www.linkbucks.com/AgIfD
 <br>【百度網盤】：http://adf.ly/1m8NNm （or） http://www.linkbucks.com/AgA8L
 <br>【百度密碼】：qa1e
 
@@ -222,7 +222,7 @@
 <br>【檔案名稱】：Chi Chung's Class.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/B8D197239548
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m8y1H （or） http://www.linkbucks.com/AgIez
 <br>【百度網盤】：http://adf.ly/1m8NGM （or） http://www.linkbucks.com/AgA9J
 <br>【百度密碼】：8szj
 
@@ -235,21 +235,21 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JiG197254657
 <br>【MediaFire】：http://adf.ly/1m8OGV （or） http://www.linkbucks.com/AgAw1
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m8yBc （or） http://www.linkbucks.com/AgIbx
+<br>【百度密碼】：xpmw
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
 <br>【節目日期】：2017-04-08
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：李綺雯
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/S3u197254987
 <br>【MediaFire】：http://adf.ly/1m8OF7 （or） http://www.linkbucks.com/AgAxc
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m8y5w （or） http://www.linkbucks.com/AgIc9
+<br>【百度密碼】：5xpj
 
 <br>【節目名稱】：發式生活
 <br>【節目頻道】：881
@@ -259,9 +259,9 @@
 <br>【檔案名稱】：Fat’s Lifestyle.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qbN197254791
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m8y2B （or） http://www.linkbucks.com/AgIee
+<br>【百度網盤】：http://adf.ly/1m8yA3 （or） http://www.linkbucks.com/AgIcB
+<br>【百度密碼】：64cu
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -271,9 +271,9 @@
 <br>【檔案名稱】：Losing Eleven.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uuv197254855
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m8y3D （or） http://www.linkbucks.com/AgIeM
+<br>【百度網盤】：http://adf.ly/1m8y8v （or） http://www.linkbucks.com/AgIcZ
+<br>【百度密碼】：zehw
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -283,6 +283,6 @@
 <br>【檔案名稱】：Begin with Music.2017-04-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/kJp197254499
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1m8xzy （or） http://www.linkbucks.com/AgIfY
+<br>【百度網盤】：http://adf.ly/1m8yDg （or） http://www.linkbucks.com/AgIbV
+<br>【百度密碼】：yicx
