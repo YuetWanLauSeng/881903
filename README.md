@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/g87197378468
 <br>【MediaFire】：http://adf.ly/1m9cC1 （or） http://www.linkbucks.com/Agctg
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jra （or） http://www.linkbucks.com/Agmqg
+<br>【百度密碼】：pm9b
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4i1197377948
 <br>【MediaFire】：http://adf.ly/1m9c9L （or） http://www.linkbucks.com/AgcxU
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jsz （or） http://www.linkbucks.com/Agmn0
+<br>【百度密碼】：p55v
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tzG197377111
 <br>【MediaFire】：http://adf.ly/1m9cCP （or） http://www.linkbucks.com/AgctC
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9juP （or） http://www.linkbucks.com/Agmle
+<br>【百度密碼】：bbc1
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Uzw197378292
 <br>【MediaFire】：http://adf.ly/1m9cAo （or） http://www.linkbucks.com/AgcqP
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jsI （or） http://www.linkbucks.com/AgmpH
+<br>【百度密碼】：dq6i
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IBr197377211
 <br>【MediaFire】：http://adf.ly/1m9cDN （or） http://www.linkbucks.com/Agcrf
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jtl （or） http://www.linkbucks.com/AgmnM
+<br>【百度密碼】：7gnb
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/8sB197376922
 <br>【MediaFire】：http://adf.ly/1m9cAA （or） http://www.linkbucks.com/Agcwh
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jvN （or） http://www.linkbucks.com/Agmkl
+<br>【百度密碼】：tqns
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/idt197376661
 <br>【MediaFire】：http://adf.ly/1m9cBa （or） http://www.linkbucks.com/Agcuh
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jxQ （or） http://www.linkbucks.com/Agmh0
+<br>【百度密碼】：vft9
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0cS197376487
 <br>【MediaFire】：http://adf.ly/1m9cCj （or） http://www.linkbucks.com/Agcso
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jyc （or） http://www.linkbucks.com/Agmfs
+<br>【百度密碼】：3i2s
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -103,8 +103,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/LJH197386337
 <br>【MediaFire】：http://adf.ly/1m9cKt （or） http://www.linkbucks.com/Agchd
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jkU （or） http://www.linkbucks.com/AgmwW
+<br>【百度密碼】：vedz
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -115,8 +115,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YdA197387173
 <br>【MediaFire】：http://adf.ly/1m9c8r （or） http://www.linkbucks.com/AgcyB
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9joE （or） http://www.linkbucks.com/Agms9
+<br>【百度密碼】：p8bb
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -127,8 +127,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mQr197386616
 <br>【MediaFire】：http://adf.ly/1m9c8A （or） http://www.linkbucks.com/AgcyV
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jmU （or） http://www.linkbucks.com/Agmum
+<br>【百度密碼】：dxq6
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -139,8 +139,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4wM197387432
 <br>【MediaFire】：http://adf.ly/1m9c7m （or） http://www.linkbucks.com/AgczO
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jlZ （or） http://www.linkbucks.com/AgmvZ
+<br>【百度密碼】：388q
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -151,8 +151,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/v7z197390920
 <br>【MediaFire】：http://adf.ly/1m9dVP （or） http://www.linkbucks.com/AgbF3
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jqr （or） http://www.linkbucks.com/Agmrb
+<br>【百度密碼】：xm7b
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Y2r197391082
 <br>【MediaFire】：http://adf.ly/1m9dWg （or） http://www.linkbucks.com/AgbDq
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jpP （or） http://www.linkbucks.com/Agmr9
+<br>【百度密碼】：mi79
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -175,8 +175,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/dQO197392698
 <br>【MediaFire】：http://adf.ly/1m9f5a （or） http://www.linkbucks.com/AgrOw
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9jw0 （or） http://www.linkbucks.com/Agmjc
+<br>【百度密碼】：yzmj
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -185,7 +185,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-04-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Fap197398131
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -197,7 +197,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-04-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/EHM197397634
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
