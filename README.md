@@ -211,8 +211,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5AE197404081
 <br>【MediaFire】：http://adf.ly/1m9pxm （or） http://www.linkbucks.com/AgRCK
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9vdv （or） http://www.linkbucks.com/AgKwd
+<br>【百度密碼】：efxd
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -223,8 +223,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sox197404309
 <br>【MediaFire】：http://adf.ly/1m9py7 （or） http://www.linkbucks.com/AgQ6H
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9vd3 （or） http://www.linkbucks.com/AgKyz
+<br>【百度密碼】：cjm8
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -235,8 +235,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ha4197406887
 <br>【MediaFire】：http://adf.ly/1m9qWd （or） http://www.linkbucks.com/AgP7S
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9vcC （or） http://www.linkbucks.com/AgLDH
+<br>【百度密碼】：bmq1
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -245,10 +245,10 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tgB197408916
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9vWM （or） http://www.linkbucks.com/AgLKT
+<br>【百度密碼】：pnfy
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -257,10 +257,10 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-04-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/KAv197408616
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9vXs （or） http://www.linkbucks.com/AgLFr
+<br>【百度密碼】：najy
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -269,10 +269,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tqf197410020
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1m9vVZ （or） http://www.linkbucks.com/AgLSs
+<br>【百度密碼】：bx5u
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
