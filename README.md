@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/g87197378468
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9cC1 （or） http://www.linkbucks.com/Agctg
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4i1197377948
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9c9L （or） http://www.linkbucks.com/AgcxU
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/tzG197377111
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9cCP （or） http://www.linkbucks.com/AgctC
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Uzw197378292
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9cAo （or） http://www.linkbucks.com/AgcqP
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IBr197377211
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9cDN （or） http://www.linkbucks.com/Agcrf
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/8sB197376922
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9cAA （or） http://www.linkbucks.com/Agcwh
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/idt197376661
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9cBa （or） http://www.linkbucks.com/Agcuh
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0cS197376487
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9cCj （or） http://www.linkbucks.com/Agcso
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/LJH197386337
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9cKt （or） http://www.linkbucks.com/Agchd
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Lunch Special.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/YdA197387173
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9c8r （or） http://www.linkbucks.com/AgcyB
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mQr197386616
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9c8A （or） http://www.linkbucks.com/AgcyV
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-04-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4wM197387432
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1m9c7m （or） http://www.linkbucks.com/AgczO
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
