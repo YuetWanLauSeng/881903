@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Xg2198087617
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBnqZ （or） http://www.linkbucks.com/AhST8
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SfT198094119
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBnuy （or） http://www.linkbucks.com/AhSRZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/cpg198086816
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBnu6 （or） http://www.linkbucks.com/AhSSF
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/QJq198097102
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBnvt （or） http://www.linkbucks.com/AhSQl
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hZR198142466
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBnqZ （or） http://www.linkbucks.com/AhSTo
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Lunch Special.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/TcZ198143299
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBntB （or） http://www.linkbucks.com/AhSSo
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gib198142838
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBnsb （or） http://www.linkbucks.com/AhSTG
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Sau198143789
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBnrx （or） http://www.linkbucks.com/AhSTK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -149,7 +149,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-04-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MYs198154652
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -161,7 +161,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZRZ198155071
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
