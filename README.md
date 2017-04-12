@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/urZ198094371
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBoMR （or） http://www.linkbucks.com/AhR2P
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rCt198086512
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBoSy （or） http://www.linkbucks.com/AhR2c
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hwK198086557
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBoRl （or） http://www.linkbucks.com/AhR3A
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/UXf198086263
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mBoKc （or） http://www.linkbucks.com/AhRzB
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,7 +173,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-04-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iYD198156116
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
