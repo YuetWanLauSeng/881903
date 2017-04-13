@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/F7R198226408
 <br>【MediaFire】：http://adf.ly/1mCnAU （or） http://www.linkbucks.com/Agz9M
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mCuCN （or） http://www.linkbucks.com/Agwtu
+<br>【百度密碼】：v8v9
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aeQ198227679
 <br>【MediaFire】：http://adf.ly/1mCn7w （or） http://www.linkbucks.com/Ag0AN
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mCvMY （or） http://www.linkbucks.com/AWv5l
+<br>【百度密碼】：xh3b
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/noW198226287
 <br>【MediaFire】：http://adf.ly/1mCn6q （or） http://www.linkbucks.com/Ag0Aa
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mCuJK （or） http://www.linkbucks.com/Agwp2
+<br>【百度密碼】：2w1r
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -79,8 +79,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sYX198225549
 <br>【MediaFire】：http://adf.ly/1mCn8o （or） http://www.linkbucks.com/Agz91
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mCuN8 （or） http://www.linkbucks.com/AgwkE
+<br>【百度密碼】：ieg6
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/wq6198228011
 <br>【MediaFire】：http://adf.ly/1mCnC3 （or） http://www.linkbucks.com/Agz8m
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mCuSi （or） http://www.linkbucks.com/AgwZm
+<br>【百度密碼】：k4zy
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -163,8 +163,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GZB198340740
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mCvKe （or） http://www.linkbucks.com/AXIsK
+<br>【百度密碼】：mh82
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -245,7 +245,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/DYi198350409
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -257,7 +257,7 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-04-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WDm198347791
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -269,10 +269,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4pp198352179
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mCvTL （or） http://www.linkbucks.com/epNl
+<br>【百度密碼】：i63x
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
