@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MYs198154652
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mCPGr （or） http://www.linkbucks.com/Agui1
 <br>【百度網盤】：http://adf.ly/1mC3wx （or） http://www.linkbucks.com/AgxQB
 <br>【百度密碼】：i7qv
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZRZ198155071
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mCPFn （or） http://www.linkbucks.com/AgukU
 <br>【百度網盤】：http://adf.ly/1mC3vy （or） http://www.linkbucks.com/Agw0h
 <br>【百度密碼】：e94t
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/iYD198156116
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mCPHX （or） http://www.linkbucks.com/AgugE
 <br>【百度網盤】：http://adf.ly/1mC3xj （or） http://www.linkbucks.com/AgxK4
 <br>【百度密碼】：392x
 
@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Zine.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9Ul198163997
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mCPIa （or） http://www.linkbucks.com/Agufm
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -205,7 +205,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-04-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/32f198205979
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -233,7 +233,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fLD198207348
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -254,7 +254,7 @@
 <br>【檔案名稱】：Summit.2017-04-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ciA198185696
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mCPGX （or） http://www.linkbucks.com/Agujn
 <br>【百度網盤】：http://adf.ly/1mC3uZ （or） http://www.linkbucks.com/Agw2E
 <br>【百度密碼】：9hza
 
@@ -265,7 +265,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-04-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qou198206933
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -276,8 +276,16 @@
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-04-12
+<br>【節目暫停】：改播『甜美生活』
+
+<br>【節目名稱】：甜美生活
+<br>【節目頻道】：881
+<br>【節目日期】：2017-04-12
+<br>【節目主持】：蔡靜怡
+<br>【節目時間】：00:30 - 01:30
+<br>【檔案名稱】：Sandra's Choice.2017-04-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3pu198206111
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -297,7 +305,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Siu Yeah Jim.2017-04-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/7sO198206404
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
