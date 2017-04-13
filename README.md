@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/q8c198338594
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAdn （or） http://www.linkbucks.com/p2gr
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Lunch Special.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/rx1198339107
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAix （or） http://www.linkbucks.com/ngd0
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/x4E198338855
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAiI （or） http://www.linkbucks.com/ngd7
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MX5198341078
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAgv （or） http://www.linkbucks.com/p2fp
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Owq198339707
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAfS （or） http://www.linkbucks.com/p2f7
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GZB198340740
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAcv （or） http://www.linkbucks.com/p2g4
 <br>【百度網盤】：http://adf.ly/1mCvKe （or） http://www.linkbucks.com/AXIsK
 <br>【百度密碼】：mh82
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0Qz198344594
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAk4 （or） http://www.linkbucks.com/ngdm
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Zine.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jid198343965
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAlg （or） http://www.linkbucks.com/ngdY
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：Our Way Out.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/quR198343227
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAg9 （or） http://www.linkbucks.com/p2f0
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -210,7 +210,7 @@
 <br>【檔案名稱】：My Daily Life.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/vbH198342818
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAeH （or） http://www.linkbucks.com/p2gi
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -222,7 +222,7 @@
 <br>【檔案名稱】：Tea For You.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/gDu198343489
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAmi （or） http://www.linkbucks.com/ngdK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -234,7 +234,7 @@
 <br>【檔案名稱】：Sino Stream.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/sKX198345873
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAoH （or） http://www.linkbucks.com/ngcx
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -258,7 +258,7 @@
 <br>【檔案名稱】：Reading Time.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WDm198347791
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAnf （or） http://www.linkbucks.com/ngdD
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -270,7 +270,7 @@
 <br>【檔案名稱】：Summit.2017-04-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4pp198352179
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDAhn （or） http://www.linkbucks.com/ngeC
 <br>【百度網盤】：http://adf.ly/1mCvTL （or） http://www.linkbucks.com/epNl
 <br>【百度密碼】：i63x
 
@@ -281,7 +281,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-04-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/K8X198360808
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -293,7 +293,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-04-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/AXy198360399
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -313,7 +313,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：My Donald.2017-04-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/22a198360528
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -325,7 +325,7 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-04-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/CWO198360279
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
