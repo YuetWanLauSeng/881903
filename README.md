@@ -138,7 +138,7 @@
 <br>【檔案名稱】：You Are The Best.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/3ZN198410553
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDkjx （or） http://www.linkbucks.com/AgOkj
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -150,7 +150,7 @@
 <br>【檔案名稱】：The Fun Box.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Hr3198427629
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDkuh （or） http://www.linkbucks.com/ARj3U
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Oldies Buddy.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SMN198433933
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDkxx （or） http://www.linkbucks.com/Ahdot
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IDN198433551
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDknO （or） http://www.linkbucks.com/ACIeE
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +198,7 @@
 <br>【檔案名稱】：Zine.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Bs7198443818
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDjfj （or） http://www.linkbucks.com/AgOlZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -221,7 +221,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-04-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/yOR198452936
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -233,7 +233,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-04-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/JJ1198453048
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -245,7 +245,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-04-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4hx198462299
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
