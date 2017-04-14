@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GvI198394676
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZsv （or） http://www.linkbucks.com/AhnIg
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/GoM198392820
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZwh （or） http://www.linkbucks.com/AhnBK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZnQ198396778
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZrC （or） http://www.linkbucks.com/AhnJh
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/z5o198392991
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZxH （or） http://www.linkbucks.com/Ahm6W
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/nHK198396039
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZqM （or） http://www.linkbucks.com/AhnK2
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +78,7 @@
 <br>【檔案名稱】：Circles.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MOv198395228
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZvp （or） http://www.linkbucks.com/AhnCy
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/qQJ198394822
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZy5 （or） http://www.linkbucks.com/Ahm5W
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1Qs198407609
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZpL （or） http://www.linkbucks.com/AhnMv
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +114,7 @@
 <br>【檔案名稱】：Lunch Special.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/uJU198409767
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZvN （or） http://www.linkbucks.com/AhnFQ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Crosstrade.2017-04-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hl3198408492
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mDZuB （or） http://www.linkbucks.com/AhnHB
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,7 +173,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2017-04-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SMN198433933
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -185,7 +185,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-04-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IDN198433551
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
