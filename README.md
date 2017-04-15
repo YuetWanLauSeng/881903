@@ -6,7 +6,6 @@
 <br>【檔案名稱】：Morning Glory.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2kc198505435
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +17,6 @@
 <br>【檔案名稱】：So Sunshine.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zek198508229
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +28,6 @@
 <br>【檔案名稱】：Saturday Forum.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/8BD198506057
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +39,6 @@
 <br>【檔案名稱】：J.A.L.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6q3198505268
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +50,6 @@
 <br>【檔案名稱】：Weekend Lucky Star.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/hf5198508594
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +61,6 @@
 <br>【檔案名稱】：Stockaeologist.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5ZW198508430
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -78,7 +72,6 @@
 <br>【檔案名稱】：903 Top 20.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bB4198509476
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -90,7 +83,6 @@
 <br>【檔案名稱】：Stroke Decryption.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FzJ198509842
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +94,6 @@
 <br>【檔案名稱】：Movies.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MaK198509638
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -114,7 +105,6 @@
 <br>【檔案名稱】：Mr Chef.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/dDU198509782
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +116,6 @@
 <br>【檔案名稱】：903 Band Time.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/vCU198512657
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -138,7 +127,6 @@
 <br>【檔案名稱】：Circles.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZVw198516267
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -150,7 +138,6 @@
 <br>【檔案名稱】：Quote Chart.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/R8i198516477
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -161,8 +148,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-04-15
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bvc198537055
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,8 +159,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-04-15
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5Ye198536898
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -186,7 +171,6 @@
 <br>【檔案名稱】：Silver Age Club.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -198,7 +182,6 @@
 <br>【檔案名稱】：WonderMelon !.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -210,7 +193,6 @@
 <br>【檔案名稱】：881 Music Station.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -222,7 +204,6 @@
 <br>【檔案名稱】：Chi Chung's Class.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -234,7 +215,6 @@
 <br>【檔案名稱】：Education Forum.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -247,7 +227,6 @@
 <br>【檔案名稱】：The Playtoy Mansion.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -259,7 +238,6 @@
 <br>【檔案名稱】：Fat’s Lifestyle.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -271,7 +249,6 @@
 <br>【檔案名稱】：Losing Eleven.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -283,6 +260,5 @@
 <br>【檔案名稱】：Begin with Music.2017-04-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
