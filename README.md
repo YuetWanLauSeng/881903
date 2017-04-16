@@ -149,8 +149,8 @@
 <br>【檔案名稱】：Bo Po Mo Fo.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zNp198610520
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFZmc （or） http://www.linkbucks.com/AiLHp
+<br>【百度密碼】：kf2w
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -160,8 +160,8 @@
 <br>【檔案名稱】：Kimchi Fans Club.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aSN198610714
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFZlJ （or） http://www.linkbucks.com/AiLRL
+<br>【百度密碼】：v6nn
 
 <br>【節目名稱】：細路強
 <br>【節目頻道】：881
@@ -171,8 +171,8 @@
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aiu198610844
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFZkB （or） http://www.linkbucks.com/AiLXH
+<br>【百度密碼】：if9g
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -181,9 +181,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Jml198613536
+<br>【百度網盤】：http://adf.ly/1mFZh3 （or） http://www.linkbucks.com/AiLmg
+<br>【百度密碼】：88hv
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
@@ -192,9 +192,9 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ATs198613235
+<br>【百度網盤】：http://adf.ly/1mFZi5 （or） http://www.linkbucks.com/AiLeW
+<br>【百度密碼】：hcdt
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -203,9 +203,9 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/HZU198613127
+<br>【百度網盤】：http://adf.ly/1mFZjB （or） http://www.linkbucks.com/AiLbj
+<br>【百度密碼】：8hay
 
 <br>【節目名稱】：短期租約
 <br>【節目頻道】：903
