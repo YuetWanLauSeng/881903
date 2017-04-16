@@ -75,6 +75,17 @@
 <br>【百度網盤】：http://adf.ly/1mFEnp （or） http://www.linkbucks.com/CMcab
 <br>【百度密碼】：uygp
 
+<br>【節目名稱】：都是我的流行曲
+<br>【節目頻道】：881
+<br>【節目日期】：2017-04-16
+<br>【節目主持】：江健聰
+<br>【節目時間】：12:30 - 14:00
+<br>【檔案名稱】：Oldies Buddy.2017-04-16
+<br>【檔案音質】：高清
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/bM1198601095
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
+
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
 <br>【節目日期】：2017-04-16
@@ -94,8 +105,8 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/0jm198587240
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFOmE （or） http://www.linkbucks.com/Ah3ZE
+<br>【百度密碼】：jcav
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -104,7 +115,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9uE198600700
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -115,7 +126,7 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5zQ198601502
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
