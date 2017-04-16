@@ -137,7 +137,7 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jZ7198604757
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
