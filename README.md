@@ -116,8 +116,8 @@
 <br>【檔案名稱】：Mali Mali Home.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/9uE198600700
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFTZL （or） http://www.linkbucks.com/AiSAJ
+<br>【百度密碼】：pp3a
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -127,8 +127,8 @@
 <br>【檔案名稱】：Sino Stream.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5zQ198601502
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFTXg （or） http://www.linkbucks.com/AiSBm
+<br>【百度密碼】：6f33
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -138,8 +138,8 @@
 <br>【檔案名稱】：Sino Stream - Reading.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jZ7198604757
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFTWk （or） http://www.linkbucks.com/AiSCe
+<br>【百度密碼】：wx2i
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -148,7 +148,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zNp198610520
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -159,7 +159,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aSN198610714
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -170,7 +170,7 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aiu198610844
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
