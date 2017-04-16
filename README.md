@@ -6,8 +6,8 @@
 <br>【檔案名稱】：Reading Time.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/oQS198573582
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFEqY （or） http://www.linkbucks.com/CMcaP
+<br>【百度密碼】：6we6
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：Star House.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Z1i198574233
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFEog （or） http://www.linkbucks.com/CMcaW
+<br>【百度密碼】：s6ec
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -28,8 +28,8 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Ybp198573148
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFErn （or） http://www.linkbucks.com/CMcaN
+<br>【百度密碼】：bmqe
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：Urban Touch.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/CM4198575067
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFElh （or） http://www.linkbucks.com/CMcai
+<br>【百度密碼】：dhda
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -50,8 +50,8 @@
 <br>【檔案名稱】：Road Co-op.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/e57198574483
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFEpd （or） http://www.linkbucks.com/CMcaS
+<br>【百度密碼】：udbj
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -61,8 +61,8 @@
 <br>【檔案名稱】：The Way We Are.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/XNE198575765
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFEmy （or） http://www.linkbucks.com/CMcag
+<br>【百度密碼】：59r1
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -72,8 +72,8 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-04-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/J58198576966
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mFEnp （or） http://www.linkbucks.com/CMcab
+<br>【百度密碼】：uygp
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -82,7 +82,7 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-04-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/fSq198581304
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
