@@ -181,8 +181,8 @@
 <br>【檔案名稱】：My Daily Life.2017-04-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/odJ198748027
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mGKmD （or） http://www.linkbucks.com/AiEux
+<br>【百度密碼】：z575
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -192,8 +192,8 @@
 <br>【檔案名稱】：Tea For You.2017-04-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/PUZ198748248
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mGKn1 （or） http://www.linkbucks.com/AiEub
+<br>【百度密碼】：xihf
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -202,9 +202,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/IgO198751272
+<br>【百度網盤】：http://adf.ly/1mGKvR （or） http://www.linkbucks.com/AiEqa
+<br>【百度密碼】：vfcq
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
