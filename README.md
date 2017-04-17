@@ -213,9 +213,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/G3d198760264
+<br>【百度網盤】：http://adf.ly/1mGOv6 （or） http://www.linkbucks.com/AiB1x
+<br>【百度密碼】：dj4x
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -224,9 +224,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/X9B198758284
+<br>【百度網盤】：http://adf.ly/1mGPDf （or） http://www.linkbucks.com/AiB1m
+<br>【百度密碼】：ea4a
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -235,9 +235,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/7dH198767448
+<br>【百度網盤】：http://adf.ly/1mGOpx （or） http://www.linkbucks.com/AiCAv
+<br>【百度密碼】：56ba
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
