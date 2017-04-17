@@ -118,8 +118,8 @@
 <br>【檔案名稱】：You Are The Best.2017-04-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/yF3198709755
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mGAL7 （or） http://www.linkbucks.com/Ah5hh
+<br>【百度密碼】：8evm
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -136,7 +136,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5xt198720259
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
