@@ -247,8 +247,8 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-04-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mLb198789872
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mGiuY （or） http://www.linkbucks.com/AiRKP
+<br>【百度密碼】：wkrk
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -258,8 +258,8 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-04-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WFh198788857
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mGiv2 （or） http://www.linkbucks.com/AiRKF
+<br>【百度密碼】：i4ct
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -269,8 +269,8 @@
 <br>【檔案名稱】：Canto Pop.2017-04-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2yT198788129
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mGivc （or） http://www.linkbucks.com/AiRJh
+<br>【百度密碼】：cuyt
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -279,6 +279,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/N65198809234
+<br>【百度網盤】：http://adf.ly/1mGitp （or） http://www.linkbucks.com/AiRKm
+<br>【百度密碼】：4d9k
