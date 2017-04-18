@@ -171,8 +171,8 @@
 <br>【檔案名稱】：Zine.2017-04-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/6C5198905517
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mH42C （or） http://www.linkbucks.com/AiZ0X
+<br>【百度密碼】：ar8n
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -182,8 +182,8 @@
 <br>【檔案名稱】：Our Way Out.2017-04-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1oa198893079
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mH41E （or） http://www.linkbucks.com/AiZ0l
+<br>【百度密碼】：h767
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -192,7 +192,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-04-18
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/m8j198970021
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -203,7 +203,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-04-18
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/vI9198970117
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
