@@ -246,7 +246,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/mLb198789872
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -254,10 +254,10 @@
 <br>【節目頻道】：881
 <br>【節目日期】：2017-04-17
 <br>【節目主持】：鄔家麟
-<br>【節目時間】：00:30 - 01:30
+<br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/WFh198788857
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -268,7 +268,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-04-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2yT198788129
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
