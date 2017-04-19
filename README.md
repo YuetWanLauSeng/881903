@@ -170,7 +170,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/veA199098501
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -181,7 +181,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/zxk199098351
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -192,7 +192,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/5c5199098184
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -203,7 +203,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/2up199098434
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
