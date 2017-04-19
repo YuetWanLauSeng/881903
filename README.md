@@ -6,8 +6,8 @@
 <br>【檔案名稱】：Share My Song.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/4qd199064775
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHdL7 （or） http://www.linkbucks.com/AiPvB
+<br>【百度密碼】：ihth
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/SxQ199063964
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHdQC （or） http://www.linkbucks.com/AiC5X
+<br>【百度密碼】：m4xv
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -28,8 +28,8 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/U97199063153
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHdT7 （or） http://www.linkbucks.com/Ah2vu
+<br>【百度密碼】：5mrc
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/FDY199064541
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHdM6 （or） http://www.linkbucks.com/AiMpB
+<br>【百度密碼】：78t9
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -50,8 +50,8 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aRj199063216
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHdS6 （or） http://www.linkbucks.com/Ah74F
+<br>【百度密碼】：v1qh
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -61,8 +61,8 @@
 <br>【檔案名稱】：Good Morning King.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/O0D199062996
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHdk5 （or） http://www.linkbucks.com/AgY51
+<br>【百度密碼】：izeu
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -72,8 +72,8 @@
 <br>【檔案名稱】：Circles.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/MTS199062217
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHdln （or） http://www.linkbucks.com/AgEDE
+<br>【百度密碼】：a64s
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -83,8 +83,8 @@
 <br>【檔案名稱】：18F Block C.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/L6a199064838
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHdmc （or） http://www.linkbucks.com/AfhJL
+<br>【百度密碼】：6fsi
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -93,7 +93,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1tP199072410
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -104,7 +104,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/z4z199072873
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -115,7 +115,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aw7199072648
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -126,7 +126,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/25b199073070
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
