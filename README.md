@@ -94,8 +94,8 @@
 <br>【檔案名稱】：903 Music.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/1tP199072410
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHf73 （or） http://www.linkbucks.com/AixFS
+<br>【百度密碼】：dsxy
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -105,8 +105,8 @@
 <br>【檔案名稱】：Lunch Special.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/z4z199072873
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHeyo （or） http://www.linkbucks.com/AixXV
+<br>【百度密碼】：6maz
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -116,8 +116,8 @@
 <br>【檔案名稱】：Crosstrade.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/aw7199072648
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHf48 （or） http://www.linkbucks.com/AixMJ
+<br>【百度密碼】：8y23
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -127,8 +127,8 @@
 <br>【檔案名稱】：You Are The Best.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/25b199073070
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHewY （or） http://www.linkbucks.com/AixhX
+<br>【百度密碼】：8j8g
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
