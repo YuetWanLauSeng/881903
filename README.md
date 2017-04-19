@@ -138,8 +138,8 @@
 <br>【檔案名稱】：The Fun Box.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/ZAd199079522
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHjBU （or） http://www.linkbucks.com/Ailuw
+<br>【百度密碼】：22e9
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -149,8 +149,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/jgP199079723
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mHjCE （or） http://www.linkbucks.com/Ailte
+<br>【百度密碼】：kc6s
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -159,7 +159,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-04-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/Olk199083291
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
