@@ -189,7 +189,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-04-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199182223
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -216,7 +216,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199182532
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -235,9 +235,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199182698
+<br>【百度網盤】：http://adf.ly/1mIn6X （or） http://www.linkbucks.com/R1Wx
+<br>【百度密碼】：h9xr
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
