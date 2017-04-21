@@ -160,8 +160,8 @@
 <br>【檔案名稱】：Dokureioukoku.2017-04-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199280930
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJX02 （or） http://www.linkbucks.com/Ajh9B
+<br>【百度密碼】：qrt8
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -171,8 +171,8 @@
 <br>【檔案名稱】：Zine.2017-04-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199290492
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJWxQ （or） http://www.linkbucks.com/AjinD
+<br>【百度密碼】：bdzx
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -182,8 +182,8 @@
 <br>【檔案名稱】：Our Way Out.2017-04-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199289708
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJWzD （or） http://www.linkbucks.com/Ajil9
+<br>【百度密碼】：iatz
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -193,8 +193,8 @@
 <br>【檔案名稱】：My Daily Life.2017-04-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJWwY （or） http://www.linkbucks.com/AjiEL
+<br>【百度密碼】：ey8d
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -204,8 +204,8 @@
 <br>【檔案名稱】：Tea For You.2017-04-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJWv8 （or） http://www.linkbucks.com/AjiGY
+<br>【百度密碼】：yqss
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -215,8 +215,8 @@
 <br>【檔案名稱】：Sino Stream.2017-04-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJWw2 （or） http://www.linkbucks.com/AjiGP
+<br>【百度密碼】：8nyg
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,9 +225,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199298716
+<br>【百度網盤】：http://adf.ly/1mJWte （or） http://www.linkbucks.com/AjiJ5
+<br>【百度密碼】：vy2z
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -244,9 +244,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-04-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199298456
+<br>【百度網盤】：http://adf.ly/1mJWuV （or） http://www.linkbucks.com/AjiHF
+<br>【百度密碼】：x47c
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -255,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199299410
+<br>【百度網盤】：http://adf.ly/1mJWsH （or） http://www.linkbucks.com/AjiPD
+<br>【百度密碼】：fwx3
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
