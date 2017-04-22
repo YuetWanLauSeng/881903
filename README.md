@@ -6,8 +6,8 @@
 <br>【檔案名稱】：Morning Glory.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199389122
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJyX6 （or） http://www.linkbucks.com/AjT5u
+<br>【百度密碼】：6c9f
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：So Sunshine.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199393521
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJydu （or） http://www.linkbucks.com/AjT2d
+<br>【百度密碼】：ghep
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -28,8 +28,8 @@
 <br>【檔案名稱】：Saturday Forum.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199391876
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJyZu （or） http://www.linkbucks.com/AjT4T
+<br>【百度密碼】：qqas
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：J.A.L.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199392841
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJyct （or） http://www.linkbucks.com/AjT24
+<br>【百度密碼】：hi1s
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -50,8 +50,8 @@
 <br>【檔案名稱】：Weekend Lucky Star.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199392044
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJycA （or） http://www.linkbucks.com/AjT3Q
+<br>【百度密碼】：h4wv
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -61,8 +61,8 @@
 <br>【檔案名稱】：Stockaeologist.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199393812
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mJyeo （or） http://www.linkbucks.com/AjT1t
+<br>【百度密碼】：sci9
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -93,9 +93,9 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-04-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199400969
+<br>【百度網盤】：http://adf.ly/1mJyfs （or） http://www.linkbucks.com/AjT1I
+<br>【百度密碼】：ug9m
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -104,9 +104,9 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-04-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199401291
+<br>【百度網盤】：http://adf.ly/1mJysn （or） http://www.linkbucks.com/AjTzz
+<br>【百度密碼】：tbpe
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -115,9 +115,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-04-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199403180
+<br>【百度網盤】：http://adf.ly/1mJygy （or） http://www.linkbucks.com/AjT0x
+<br>【百度密碼】：kv95
 
 <br>【節目名稱】：1圈圈 (周末版)
 <br>【節目頻道】：881
