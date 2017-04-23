@@ -94,8 +94,8 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199519840
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKv1C （or） http://www.linkbucks.com/AkGTg
+<br>【百度密碼】：2355
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -104,7 +104,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-04-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199521230
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -115,7 +115,7 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-04-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199521331
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
