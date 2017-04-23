@@ -138,8 +138,8 @@
 <br>【檔案名稱】：Bo Po Mo Fo.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199526456
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mL3gW （or） http://www.linkbucks.com/Ajkni
+<br>【百度密碼】：8bv2
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -149,8 +149,8 @@
 <br>【檔案名稱】：Kimchi Fans Club.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199526749
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mL3hZ （or） http://www.linkbucks.com/Ajkms
+<br>【百度密碼】：hycw
 
 <br>【節目名稱】：細路強
 <br>【節目頻道】：881
@@ -160,8 +160,8 @@
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199526940
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mL3jN （or） http://www.linkbucks.com/AjkmF
+<br>【百度密碼】：yd8d
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -170,9 +170,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-04-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199532890
+<br>【百度網盤】：http://adf.ly/1mL3xx （or） http://www.linkbucks.com/Ajkee
+<br>【百度密碼】：fyv6
 
 <br>【節目名稱】：帶一本書去旅行
 <br>【節目頻道】：881
