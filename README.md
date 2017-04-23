@@ -6,8 +6,8 @@
 <br>【檔案名稱】：Reading Time.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199494627
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKuTH （or） http://www.linkbucks.com/AkHq8
+<br>【百度密碼】：vq4u
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：Star House.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199495834
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKuGr （or） http://www.linkbucks.com/AkHt3
+<br>【百度密碼】：efr6
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -28,8 +28,8 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199493714
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKuVL （or） http://www.linkbucks.com/AkHlt
+<br>【百度密碼】：ek25
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：Urban Touch.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199497042
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKuBX （or） http://www.linkbucks.com/AkIJX
+<br>【百度密碼】：w3as
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -50,8 +50,8 @@
 <br>【檔案名稱】：Road Co-op.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199494943
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKuIR （or） http://www.linkbucks.com/AkHwD
+<br>【百度密碼】：755y
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -61,8 +61,8 @@
 <br>【檔案名稱】：The Way We Are.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199496614
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKuEM （or） http://www.linkbucks.com/AkIGR
+<br>【百度密碼】：pewk
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -72,8 +72,8 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199496406
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKuFc （or） http://www.linkbucks.com/AkH8K
+<br>【百度密碼】：e5vn
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -83,8 +83,8 @@
 <br>【檔案名稱】：Binge-Watch.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199505875
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKuAH （or） http://www.linkbucks.com/AkH0K
+<br>【百度密碼】：xd1k
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -93,7 +93,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-04-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199519840
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
