@@ -105,8 +105,8 @@
 <br>【檔案名稱】：Mali Mali Home.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199521230
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKxOI （or） http://www.linkbucks.com/AkC0Q
+<br>【百度密碼】：u973
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -116,8 +116,8 @@
 <br>【檔案名稱】：Sino Stream.2017-04-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199521331
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKxMr （or） http://www.linkbucks.com/AkCtH
+<br>【百度密碼】：rgy6
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -126,9 +126,9 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-04-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199523987
+<br>【百度網盤】：http://adf.ly/1mKyX9 （or） http://www.linkbucks.com/AkB3s
+<br>【百度密碼】：iucs
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
