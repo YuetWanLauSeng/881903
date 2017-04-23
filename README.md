@@ -72,8 +72,8 @@
 <br>【檔案名稱】：903 Top 20.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199441814
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKI8e （or） http://www.linkbucks.com/Aje1l
+<br>【百度密碼】：86mk
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -83,8 +83,8 @@
 <br>【檔案名稱】：Stroke Decryption.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199441285
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKI4H （or） http://www.linkbucks.com/Aje3W
+<br>【百度密碼】：tiat
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -127,8 +127,8 @@
 <br>【檔案名稱】：Circles.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199440351
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKI7a （or） http://www.linkbucks.com/Aje18
+<br>【百度密碼】：9wrc
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -138,8 +138,8 @@
 <br>【檔案名稱】：Quote Chart.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199440913
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKI6Q （or） http://www.linkbucks.com/Aje2U
+<br>【百度密碼】：kjne
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -149,8 +149,8 @@
 <br>【檔案名稱】：The Big Sportsman.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199441442
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKI0G （or） http://www.linkbucks.com/Aje4A
+<br>【百度密碼】：3xv8
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -160,8 +160,8 @@
 <br>【檔案名稱】：Screw No.3.2017-04-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199441182
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mKI54 （or） http://www.linkbucks.com/Aje26
+<br>【百度密碼】：49ns
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -170,7 +170,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-04-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199481562
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -181,7 +181,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-04-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199481816
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -192,7 +192,7 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-04-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199449229
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -203,7 +203,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-04-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199449518
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
