@@ -215,8 +215,8 @@
 <br>【檔案名稱】：Sino Stream.2017-04-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199652241
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mLr6G （or） http://www.linkbucks.com/AkDEe
+<br>【百度密碼】：r39f
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
