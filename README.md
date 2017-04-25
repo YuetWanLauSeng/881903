@@ -171,8 +171,8 @@
 <br>【檔案名稱】：Zine.2017-04-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199798368
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mMbiF （or） http://www.linkbucks.com/Akq4X
+<br>【百度密碼】：31uh
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -182,8 +182,8 @@
 <br>【檔案名稱】：Our Way Out.2017-04-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199797587
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mMbk9 （or） http://www.linkbucks.com/Akqux
+<br>【百度密碼】：39fd
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -193,8 +193,8 @@
 <br>【檔案名稱】：My Daily Life.2017-04-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199797045
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mMblm （or） http://www.linkbucks.com/Akqtq
+<br>【百度密碼】：jqhn
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -204,8 +204,8 @@
 <br>【檔案名稱】：Tea For You.2017-04-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199797977
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mMbjC （or） http://www.linkbucks.com/Akqwk
+<br>【百度密碼】：xbtu
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -214,9 +214,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-04-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199801655
+<br>【百度網盤】：http://adf.ly/1mMbh1 （or） http://www.linkbucks.com/Akq6f
+<br>【百度密碼】：ss9n
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -225,9 +225,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-04-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199802458
+<br>【百度網盤】：http://adf.ly/1mMbff （or） http://www.linkbucks.com/Akq7c
+<br>【百度密碼】：hdm2
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -244,9 +244,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-04-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199803784
+<br>【百度網盤】：http://adf.ly/1mMbep （or） http://www.linkbucks.com/AkrAc
+<br>【百度密碼】：3yr5
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -255,9 +255,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-04-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199805371
+<br>【百度網盤】：http://adf.ly/1mMbdb （or） http://www.linkbucks.com/AkrA5
+<br>【百度密碼】：z9dz
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
