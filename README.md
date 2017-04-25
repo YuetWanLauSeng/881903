@@ -6,8 +6,8 @@
 <br>【檔案名稱】：Share My Song.2017-04-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199744240
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mMVjw （or） http://www.linkbucks.com/AkwRH
+<br>【百度密碼】：wqdk
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -94,8 +94,8 @@
 <br>【檔案名稱】：903 Music.2017-04-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199788631
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mMVnn （or） http://www.linkbucks.com/AkwNt
+<br>【百度密碼】：i63r
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -105,8 +105,8 @@
 <br>【檔案名稱】：Lunch Special.2017-04-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199789025
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mMVmd （or） http://www.linkbucks.com/AkwPA
+<br>【百度密碼】：86dw
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -127,8 +127,8 @@
 <br>【檔案名稱】：You Are The Best.2017-04-25
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199789495
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mMVhy （or） http://www.linkbucks.com/AkwSV
+<br>【百度密碼】：82a3
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -170,7 +170,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-04-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199798368
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -181,7 +181,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-04-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199797587
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -192,7 +192,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-04-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199797045
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -203,7 +203,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-04-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199797977
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
