@@ -72,8 +72,8 @@
 <br>【檔案名稱】：Circles.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199885667
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLia （or） http://www.linkbucks.com/AkTwZ
+<br>【百度密碼】：v87n
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -83,8 +83,8 @@
 <br>【檔案名稱】：18F Block C.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199884065
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLgB （or） http://www.linkbucks.com/AkTwl
+<br>【百度密碼】：iv7t
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -94,8 +94,8 @@
 <br>【檔案名稱】：903 Music.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199884534
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLhX （or） http://www.linkbucks.com/AkTwd
+<br>【百度密碼】：3b8s
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -105,8 +105,8 @@
 <br>【檔案名稱】：Lunch Special.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199885045
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLmB （or） http://www.linkbucks.com/AkTwE
+<br>【百度密碼】：wm3t
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -116,8 +116,8 @@
 <br>【檔案名稱】：Crosstrade.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199884796
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLjy （or） http://www.linkbucks.com/AkTwQ
+<br>【百度密碼】：je5f
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -127,8 +127,8 @@
 <br>【檔案名稱】：You Are The Best.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199885345
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLoR （or） http://www.linkbucks.com/AkTv2
+<br>【百度密碼】：y15t
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -138,8 +138,8 @@
 <br>【檔案名稱】：The Fun Box.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199885929
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLnC （or） http://www.linkbucks.com/AkTwA
+<br>【百度密碼】：h1m4
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -149,8 +149,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199886324
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLtX （or） http://www.linkbucks.com/AkTvh
+<br>【百度密碼】：wytu
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -160,8 +160,8 @@
 <br>【檔案名稱】：Dokureioukoku.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199886556
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLky （or） http://www.linkbucks.com/AkTwK
+<br>【百度密碼】：w1jv
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -171,8 +171,8 @@
 <br>【檔案名稱】：Zine.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199888277
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLsR （or） http://www.linkbucks.com/AkTvj
+<br>【百度密碼】：qit8
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,8 +190,8 @@
 <br>【檔案名稱】：My Daily Life.2017-04-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199888097
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mNLq1 （or） http://www.linkbucks.com/AkTvw
+<br>【百度密碼】：7kb4
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
