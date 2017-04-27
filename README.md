@@ -6,8 +6,8 @@
 <br>【檔案名稱】：Share My Song.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199926410
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFTj （or） http://www.linkbucks.com/Aknts
+<br>【百度密碼】：9t65
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199925653
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFQr （or） http://www.linkbucks.com/Aknu3
+<br>【百度密碼】：9835
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -28,8 +28,8 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199924764
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFOC （or） http://www.linkbucks.com/AknwJ
+<br>【百度密碼】：ug4s
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199926225
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFSR （or） http://www.linkbucks.com/AknuH
+<br>【百度密碼】：qd6w
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -50,8 +50,8 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199924861
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFPk （or） http://www.linkbucks.com/AknvF
+<br>【百度密碼】：3a4q
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -61,8 +61,8 @@
 <br>【檔案名稱】：Good Morning King.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199924619
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFN4 （or） http://www.linkbucks.com/Aknwo
+<br>【百度密碼】：jfm2
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -83,8 +83,8 @@
 <br>【檔案名稱】：18F Block C.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199959035
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFV2 （or） http://www.linkbucks.com/AkntR
+<br>【百度密碼】：3gny
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -116,8 +116,8 @@
 <br>【檔案名稱】：Crosstrade.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199960191
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFVx （or） http://www.linkbucks.com/Aknsw
+<br>【百度密碼】：ijxt
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -157,8 +157,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199961783
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFn0 （or） http://www.linkbucks.com/Aasvi
+<br>【百度密碼】：6k6j
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -168,8 +168,8 @@
 <br>【檔案名稱】：Dokureioukoku.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199962021
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFXa （or） http://www.linkbucks.com/Aknr9
+<br>【百度密碼】：88ew
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -212,8 +212,8 @@
 <br>【檔案名稱】：Tea For You.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199962999
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFbK （or） http://www.linkbucks.com/AknqB
+<br>【百度密碼】：xi8k
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -222,9 +222,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-04-27
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199963707
+<br>【百度網盤】：http://adf.ly/1mOFYj （or） http://www.linkbucks.com/AknrR
+<br>【百度密碼】：dq2f
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -244,7 +244,7 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-04-27
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-199963629
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -256,8 +256,8 @@
 <br>【檔案名稱】：Summit.2017-04-27
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOFvh （or） http://www.linkbucks.com/Aast9
+<br>【百度密碼】：khbp
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
