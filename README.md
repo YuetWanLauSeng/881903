@@ -6,8 +6,8 @@
 <br>【檔案名稱】：Share My Song.2017-04-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-200035770
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOlky （or） http://www.linkbucks.com/AlQGR
+<br>【百度密碼】：24rn
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-04-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-200035251
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOln6 （or） http://www.linkbucks.com/AlQH6
+<br>【百度密碼】：fp44
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -28,8 +28,8 @@
 <br>【檔案名稱】：Hey, Learners!.2017-04-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-200034348
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOloW （or） http://www.linkbucks.com/AlQJl
+<br>【百度密碼】：7s9u
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-04-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-200035525
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOlmM （or） http://www.linkbucks.com/AlQHK
+<br>【百度密碼】：9j5d
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -50,8 +50,8 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-04-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-200034447
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOlnm （or） http://www.linkbucks.com/AlQIa
+<br>【百度密碼】：v8p2
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -61,8 +61,8 @@
 <br>【檔案名稱】：Good Morning King.2017-04-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-200034157
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mOlpJ （or） http://www.linkbucks.com/AlQJ6
+<br>【百度密碼】：vbs8
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -71,7 +71,7 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-04-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201216679
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -82,7 +82,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-04-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201215790
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
