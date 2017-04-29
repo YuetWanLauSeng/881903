@@ -127,8 +127,8 @@
 <br>【檔案名稱】：Circles.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201324654
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPbK7 （or） http://www.linkbucks.com/AlFDA
+<br>【百度密碼】：6zsb
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -138,8 +138,8 @@
 <br>【檔案名稱】：Quote Chart.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201325042
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPbJ7 （or） http://www.linkbucks.com/AlFDW
+<br>【百度密碼】：cqx3
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -149,8 +149,8 @@
 <br>【檔案名稱】：The Big Sportsman.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201327238
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPbHj （or） http://www.linkbucks.com/AlFDy
+<br>【百度密碼】：jwdc
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -160,8 +160,8 @@
 <br>【檔案名稱】：Screw No.3.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201326937
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPbIk （or） http://www.linkbucks.com/AlFDk
+<br>【百度密碼】：8nnq
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -170,7 +170,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-04-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201336908
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -181,7 +181,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-04-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201337025
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
