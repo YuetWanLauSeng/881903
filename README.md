@@ -6,8 +6,8 @@
 <br>【檔案名稱】：Morning Glory.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201268451
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPLVM （or） http://www.linkbucks.com/Ak9MD
+<br>【百度密碼】：8dwd
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：So Sunshine.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201268932
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPLTV （or） http://www.linkbucks.com/Ak9Mx
+<br>【百度密碼】：rtdn
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -28,8 +28,8 @@
 <br>【檔案名稱】：Saturday Forum.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201268598
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPLUR （or） http://www.linkbucks.com/Ak9Mb
+<br>【百度密碼】：n3e5
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：J.A.L.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201268243
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPLZZ （or） http://www.linkbucks.com/Ak9KL
+<br>【百度密碼】：d6k4
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -50,8 +50,8 @@
 <br>【檔案名稱】：Weekend Lucky Star.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201269088
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPLRh （or） http://www.linkbucks.com/Ak9NQ
+<br>【百度密碼】：7hgw
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -61,8 +61,8 @@
 <br>【檔案名稱】：Stockaeologist.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201269251
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPLSc （or） http://www.linkbucks.com/Ak9NC
+<br>【百度密碼】：wj3p
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -71,7 +71,7 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-04-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201279952
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -82,7 +82,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-04-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201281710
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -93,7 +93,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-04-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201280138
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -104,7 +104,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-04-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201281309
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
