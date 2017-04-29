@@ -72,8 +72,8 @@
 <br>【檔案名稱】：903 Top 20.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201279952
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPNmV （or） http://www.linkbucks.com/Ak8Gj
+<br>【百度密碼】：4xmc
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -83,8 +83,8 @@
 <br>【檔案名稱】：Stroke Decryption.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201281710
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPNjm （or） http://www.linkbucks.com/Ak8Ho
+<br>【百度密碼】：za86
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -94,8 +94,8 @@
 <br>【檔案名稱】：Movies.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201280138
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPNlv （or） http://www.linkbucks.com/Ak8HA
+<br>【百度密碼】：b43c
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -105,8 +105,8 @@
 <br>【檔案名稱】：Mr Chef.2017-04-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201281309
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mPNkm （or） http://www.linkbucks.com/Ak8HP
+<br>【百度密碼】：4vr8
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -115,9 +115,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-04-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201286992
+<br>【百度網盤】：http://adf.ly/1mPNV8 （or） http://www.linkbucks.com/Ak8Li
+<br>【百度密碼】：k5vv
 
 <br>【節目名稱】：1圈圈 (周末版)
 <br>【節目頻道】：881
