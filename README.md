@@ -104,7 +104,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-04-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201376902
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -115,7 +115,7 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-04-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201376963
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
