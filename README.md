@@ -94,8 +94,8 @@
 <br>【檔案名稱】：903 Music.2017-05-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201463176
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mQeeA （or） http://www.linkbucks.com/ARCxn
+<br>【百度密碼】：f7ub
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -105,8 +105,8 @@
 <br>【檔案名稱】：Lunch Special.2017-05-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201463530
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mQed3 （or） http://www.linkbucks.com/ARHGM
+<br>【百度密碼】：ywra
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -116,8 +116,8 @@
 <br>【檔案名稱】：Crosstrade.2017-05-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201463362
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mQedq （or） http://www.linkbucks.com/ARHGE
+<br>【百度密碼】：yq8b
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -135,8 +135,8 @@
 <br>【檔案名稱】：蘇耀一粒鐘.2017-05-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201463743
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mQecY （or） http://www.linkbucks.com/ARHGX
+<br>【百度密碼】：waqv
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
