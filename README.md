@@ -275,8 +275,8 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-05-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mRuPD （or） http://www.linkbucks.com/Alfsz
+<br>【百度密碼】：ipqx
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -286,8 +286,8 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-05-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mRuQl （or） http://www.linkbucks.com/AlfoV
+<br>【百度密碼】：gjd6
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -297,8 +297,8 @@
 <br>【檔案名稱】：Canto Pop.2017-05-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mRuRx （or） http://www.linkbucks.com/Alfn5
+<br>【百度密碼】：tqks
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -308,5 +308,5 @@
 <br>【檔案名稱】：Begin with Music.2017-05-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mRuT9 （or） http://www.linkbucks.com/Alfnd
+<br>【百度密碼】：h5k9
