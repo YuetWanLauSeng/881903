@@ -72,8 +72,8 @@
 <br>【檔案名稱】：Circles.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201644121
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSMLP （or） http://www.linkbucks.com/Al7Nv
+<br>【百度密碼】：5uic
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -83,8 +83,8 @@
 <br>【檔案名稱】：18F Block C.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201643020
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSMNI （or） http://www.linkbucks.com/Al7Kb
+<br>【百度密碼】：fbkn
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -94,8 +94,8 @@
 <br>【檔案名稱】：903 Music.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201643557
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSMMN （or） http://www.linkbucks.com/Al7Lx
+<br>【百度密碼】：mks5
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -105,8 +105,8 @@
 <br>【檔案名稱】：Lunch Special.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201649443
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSMJa （or） http://www.linkbucks.com/Al7Qm
+<br>【百度密碼】：jk3h
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -115,9 +115,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-05-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：        https://yuetwanlauseng.ctfile.com/fs/10715768-201644403
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201644403
+<br>【百度網盤】：http://adf.ly/1mSMKA （or） http://www.linkbucks.com/Al7Px
+<br>【百度密碼】：qd4p
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -135,8 +135,8 @@
 <br>【檔案名稱】：蘇耀一粒鐘2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201651706
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSM87 （or） http://www.linkbucks.com/Al7WQ
+<br>【百度密碼】：8gqt
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -146,8 +146,8 @@
 <br>【檔案名稱】：The Fun Box.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201650400
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSMFr （or） http://www.linkbucks.com/Al7Tc
+<br>【百度密碼】：7ct6
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -157,8 +157,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201651201
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSMCO （or） http://www.linkbucks.com/Al7UL
+<br>【百度密碼】：xk7g
 
 <br>【節目名稱】：都是我的流行曲
 <br>【節目頻道】：881
@@ -168,8 +168,8 @@
 <br>【檔案名稱】：Oldies Buddy.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201649701
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSMIH （or） http://www.linkbucks.com/Al7SX
+<br>【百度密碼】：vr9n
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -190,8 +190,8 @@
 <br>【檔案名稱】：Zine.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201653121
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSM9O （or） http://www.linkbucks.com/Al7VR
+<br>【百度密碼】：74cn
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
