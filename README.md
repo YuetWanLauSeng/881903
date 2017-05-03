@@ -116,8 +116,8 @@
 <br>【檔案名稱】：Crosstrade.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201644403
-<br>【百度網盤】：http://adf.ly/1mSMKA （or） http://www.linkbucks.com/Al7Px
-<br>【百度密碼】：qd4p
+<br>【百度網盤】：http://adf.ly/1mSQK4 （or） http://www.linkbucks.com/AmVqk
+<br>【百度密碼】：wbvp
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -179,8 +179,8 @@
 <br>【檔案名稱】：Dokureioukoku.2017-05-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201647067
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSQIo （or） http://www.linkbucks.com/AmVs1
+<br>【百度密碼】：vycd
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -208,9 +208,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201675415
+<br>【百度網盤】：http://adf.ly/1mSQHS （or） http://www.linkbucks.com/AmVtz
+<br>【百度密碼】：bbyq
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -254,9 +254,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201677098
+<br>【百度網盤】：http://adf.ly/1mSQgO （or） http://www.linkbucks.com/AmU59
+<br>【百度密碼】：mfpr
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
