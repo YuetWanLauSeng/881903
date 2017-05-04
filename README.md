@@ -5,9 +5,9 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-05-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201743131
+<br>【百度網盤】：http://adf.ly/1mSygM （or） http://www.linkbucks.com/AmDud
+<br>【百度密碼】：mq5b
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-05-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201741288
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSyf6 （or） http://www.linkbucks.com/AmDvB
+<br>【百度密碼】：fx6i
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -27,9 +27,9 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners!.2017-05-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201742882
+<br>【百度網盤】：http://adf.ly/1mSydb （or） http://www.linkbucks.com/AmDvn
+<br>【百度密碼】：c2b3
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -39,8 +39,8 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-05-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201742331
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSyfZ （or） http://www.linkbucks.com/AmDuw
+<br>【百度密碼】：4ukt
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -50,8 +50,8 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-05-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201739227
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSyeU （or） http://www.linkbucks.com/AmDvU
+<br>【百度密碼】：hw3m
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -61,8 +61,8 @@
 <br>【檔案名稱】：Good Morning King.2017-05-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201738846
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mSycq （or） http://www.linkbucks.com/AmDwJ
+<br>【百度密碼】：x4xv
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -93,7 +93,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-05-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201820695
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -104,7 +104,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-05-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201823458
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -115,7 +115,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-05-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201822170
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -134,7 +134,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：蘇耀一粒鐘.2017-05-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201825938
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
