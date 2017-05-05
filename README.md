@@ -72,8 +72,8 @@
 <br>【檔案名稱】：Circles.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201915985
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTqwu （or） http://www.linkbucks.com/AmaMx
+<br>【百度密碼】：mxxw
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -83,8 +83,8 @@
 <br>【檔案名稱】：18F Block C.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201911735
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTqtf （or） http://www.linkbucks.com/AmaPA
+<br>【百度密碼】：hn5a
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -94,8 +94,8 @@
 <br>【檔案名稱】：903 Music.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201914369
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTqun （or） http://www.linkbucks.com/AmaOj
+<br>【百度密碼】：uq8w
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -105,8 +105,8 @@
 <br>【檔案名稱】：Lunch Special.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201917837
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTr3M （or） http://www.linkbucks.com/AmaKi
+<br>【百度密碼】：mbvf
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -116,8 +116,8 @@
 <br>【檔案名稱】：Crosstrade.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201917209
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTqyC （or） http://www.linkbucks.com/AmaLW
+<br>【百度密碼】：exax
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -135,8 +135,8 @@
 <br>【檔案名稱】：蘇耀一粒鐘.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201911293
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTrB1 （or） http://www.linkbucks.com/AmaGD
+<br>【百度密碼】：utgb
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -146,8 +146,8 @@
 <br>【檔案名稱】：The Fun Box.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201918409
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTr7v （or） http://www.linkbucks.com/AmaHF
+<br>【百度密碼】：nfw7
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -157,8 +157,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201919367
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTr91 （or） http://www.linkbucks.com/AmaGr
+<br>【百度密碼】：7h7a
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -168,8 +168,8 @@
 <br>【檔案名稱】：Dokureioukoku.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201917503
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTqyu （or） http://www.linkbucks.com/AmaK4
+<br>【百度密碼】：p8hb
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -179,8 +179,8 @@
 <br>【檔案名稱】：Zine.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201928388
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTrAL （or） http://www.linkbucks.com/AmaGb
+<br>【百度密碼】：d9q6
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,8 +190,8 @@
 <br>【檔案名稱】：Our Way Out.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201928195
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTr66 （or） http://www.linkbucks.com/AmaHw
+<br>【百度密碼】：u2xz
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -201,8 +201,8 @@
 <br>【檔案名稱】：My Daily Life.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201928036
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTr4h （or） http://www.linkbucks.com/AmaIV
+<br>【百度密碼】：xarm
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -212,8 +212,8 @@
 <br>【檔案名稱】：Tea For You.2017-05-05
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201928307
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mTr6r （or） http://www.linkbucks.com/AmaHZ
+<br>【百度密碼】：nbjx
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -222,9 +222,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201971064
+<br>【百度網盤】：http://adf.ly/1mTrFr （or） http://www.linkbucks.com/AmaEC
+<br>【百度密碼】：xxu6
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -263,9 +263,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-201971160
+<br>【百度網盤】：http://adf.ly/1mTrP7 （or） http://www.linkbucks.com/AmZ8J
+<br>【百度密碼】：xh83
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
