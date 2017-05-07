@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Reading Time.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202083487
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mV3xl （or） http://www.linkbucks.com/AmyEZ
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -16,7 +16,7 @@
 <br>【檔案名稱】：Star House.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202084823
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mV3uC （or） http://www.linkbucks.com/AmyKk
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -26,7 +26,7 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202083872
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mV3wN （or） http://www.linkbucks.com/AmyFo
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -36,7 +36,7 @@
 <br>【檔案名稱】：Urban Touch.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202084392
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mV3uX （or） http://www.linkbucks.com/AmyKe
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -46,7 +46,7 @@
 <br>【檔案名稱】：Road Co-op.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202082204
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mV3yt （or） http://www.linkbucks.com/AmyD9
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -56,7 +56,7 @@
 <br>【檔案名稱】：The Way We Are.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202081690
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mV3zo （or） http://www.linkbucks.com/AmyCK
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202085159
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mV3ut （or） http://www.linkbucks.com/AmyHi
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
