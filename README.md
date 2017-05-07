@@ -126,7 +126,7 @@
 <br>【檔案名稱】：Bo Po Mo Fo.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202131712
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVItS （or） http://www.linkbucks.com/Am0Pe
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -136,7 +136,7 @@
 <br>【檔案名稱】：Kimchi Fans Club.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202131869
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVIuH （or） http://www.linkbucks.com/Am0PT
 
 <br>【節目名稱】：細路強
 <br>【節目頻道】：881
@@ -146,7 +146,7 @@
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202132098
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVIvB （or） http://www.linkbucks.com/Am0Iw
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -155,7 +155,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-05-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202134167
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：帶一本書去旅行
@@ -165,7 +165,7 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-05-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202133991
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
