@@ -96,7 +96,7 @@
 <br>【檔案名稱】：Mali Mali Home.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202128137
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVHVu （or） http://www.linkbucks.com/Am06M
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -116,7 +116,7 @@
 <br>【檔案名稱】：Sino Stream - Reading.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202128354
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVHWW （or） http://www.linkbucks.com/Am06B
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -125,7 +125,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-05-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202131712
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -135,7 +135,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-05-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202131869
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：細路強
@@ -145,7 +145,7 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-05-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202132098
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
