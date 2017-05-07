@@ -86,7 +86,7 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-05-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202092384
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVB9M （or） http://www.linkbucks.com/AmunG
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -95,7 +95,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-05-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202128137
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -115,7 +115,7 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-05-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202128354
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國語類
