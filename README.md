@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202165622
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVsKF （or） http://www.linkbucks.com/Ad8GV
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -16,7 +16,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202164778
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVsGY （or） http://www.linkbucks.com/AileX
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -26,7 +26,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202163775
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVsKn （or） http://www.linkbucks.com/Ahi01
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -36,7 +36,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202165266
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVsJ8 （or） http://www.linkbucks.com/AiAMj
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -46,7 +46,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202163907
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVsLZ （or） http://www.linkbucks.com/Ahh0H
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -56,7 +56,7 @@
 <br>【檔案名稱】：Good Morning King.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202163552
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mVsID （or） http://www.linkbucks.com/AiZPS
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
