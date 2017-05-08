@@ -65,7 +65,7 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202205252
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -75,7 +75,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202204760
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：叱咤樂壇
@@ -85,7 +85,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202206943
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -95,7 +95,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202205956
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
@@ -105,7 +105,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202205449
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：你好嘢
@@ -115,7 +115,7 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202206192
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大玩派
@@ -125,7 +125,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202208628
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：口水多過浪花
@@ -135,7 +135,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202210036
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：毒檸王國
@@ -145,7 +145,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202210325
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：集雜志
