@@ -76,7 +76,7 @@
 <br>【檔案名稱】：18F Block C.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202204760
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW34V （or） http://www.linkbucks.com/AnN9v
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -96,7 +96,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202205956
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW319 （or） http://www.linkbucks.com/AnODB
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -106,7 +106,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202205449
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW32R （or） http://www.linkbucks.com/AnOBd
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -126,7 +126,7 @@
 <br>【檔案名稱】：The Fun Box.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202208628
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW30Z （or） http://www.linkbucks.com/AnOJR
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -136,7 +136,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202210036
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW33x （or） http://www.linkbucks.com/AnOAK
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -146,7 +146,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202210325
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW2yB （or） http://www.linkbucks.com/AnOJ5
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -156,7 +156,7 @@
 <br>【檔案名稱】：Zine.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202211021
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW31t （or） http://www.linkbucks.com/AnOB3
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -166,7 +166,7 @@
 <br>【檔案名稱】：Our Way Out.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202210910
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW2z8 （or） http://www.linkbucks.com/AnOJy
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -186,7 +186,7 @@
 <br>【檔案名稱】：Tea For You.2017-05-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202214275
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mW32z （or） http://www.linkbucks.com/AnOAn
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -195,8 +195,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202220502
+<br>【MediaFire】：http://adf.ly/1mW2xq （or） http://www.linkbucks.com/AnOK2
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -205,7 +205,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202221420
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -215,7 +215,7 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202220383
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -225,8 +225,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202222604
+<br>【MediaFire】：http://adf.ly/1mW3Dw （or） http://www.linkbucks.com/AnN08
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
