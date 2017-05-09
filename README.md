@@ -89,8 +89,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202283949
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWmFJ （or） http://www.linkbucks.com/Anj4D
+<br>【百度密碼】：3545
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -143,8 +143,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202288535
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWmCj （or） http://www.linkbucks.com/Anj9W
+<br>【百度密碼】：p8vi
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202288845
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWmBt （or） http://www.linkbucks.com/AnkDM
+<br>【百度密碼】：79dm
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202288998
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWmDM （or） http://www.linkbucks.com/Anj7R
+<br>【百度密碼】：9xr6
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -217,10 +217,10 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202293128
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWmEG （or） http://www.linkbucks.com/Anj5s
+<br>【百度密碼】：pnav
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -229,7 +229,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202293816
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -247,7 +247,7 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-05-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202293018
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -257,10 +257,10 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202296397
 <br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWmAd （or） http://www.linkbucks.com/AnkGo
+<br>【百度密碼】：v3ga
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
