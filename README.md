@@ -234,8 +234,16 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-05-08
+<br>【節目暫停】：改播『最港產』
+
+<br>【節目名稱】：最港產
+<br>【節目頻道】：903
+<br>【節目日期】：2017-05-08
+<br>【節目主持】：火火 | 陳詠燊
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The HKest.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202235572
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：月光光呵呵呵
@@ -245,7 +253,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202235459
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -255,7 +263,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-05-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202235288
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
