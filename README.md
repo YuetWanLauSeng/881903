@@ -6,7 +6,9 @@
 <br>【檔案名稱】：Share My Song.2017-05-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202247568
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mWQWH （or） http://www.linkbucks.com/AnIAb
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -16,7 +18,9 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-05-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202247131
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mWQNb （or） http://www.linkbucks.com/AnI9L
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -26,7 +30,9 @@
 <br>【檔案名稱】：Hey, Learners!.2017-05-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202246663
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mWQWm （or） http://www.linkbucks.com/AnH6d
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -36,7 +42,9 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-05-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202247412
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mWQSg （or） http://www.linkbucks.com/AnIVa
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -46,7 +54,9 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-05-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202246697
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mWQXR （or） http://www.linkbucks.com/AnH0J
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -56,7 +66,9 @@
 <br>【檔案名稱】：Good Morning King.2017-05-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202246456
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mWQPD （or） http://www.linkbucks.com/AnI7L
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -77,6 +89,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -107,6 +121,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -127,6 +143,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -137,6 +155,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -147,6 +167,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -197,6 +219,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -214,6 +238,14 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-05-09
+<br>【節目暫停】：改播『再創生機』
+
+<br>【節目名稱】：再創生機
+<br>【節目頻道】：881
+<br>【節目日期】：2017-05-09
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-05-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
@@ -227,6 +259,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：聖艾粒忌廉夜校
 <br>【節目頻道】：903
@@ -234,9 +268,19 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-05-09
+<br>【節目暫停】：改播『最港產』
+
+<br>【節目名稱】：最港產
+<br>【節目頻道】：903
+<br>【節目日期】：2017-05-09
+<br>【節目主持】：火火 | 陳詠燊
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：The HKest.2017-05-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
+<br>【百度網盤】： （or） 
+<br>【百度密碼】：
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
