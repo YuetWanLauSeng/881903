@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202247568
 <br>【MediaFire】：http://adf.ly/1mWQWH （or） http://www.linkbucks.com/AnIAb
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWSCK （or） http://www.linkbucks.com/AnF0p
+<br>【百度密碼】：fb7i
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202247131
 <br>【MediaFire】：http://adf.ly/1mWQNb （or） http://www.linkbucks.com/AnI9L
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWSEA （or） http://www.linkbucks.com/AnF0E
+<br>【百度密碼】：cydg
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202246663
 <br>【MediaFire】：http://adf.ly/1mWQWm （or） http://www.linkbucks.com/AnH6d
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWSHQ （or） http://www.linkbucks.com/AnFyT
+<br>【百度密碼】：gmr2
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202247412
 <br>【MediaFire】：http://adf.ly/1mWQSg （or） http://www.linkbucks.com/AnIVa
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWSCt （or） http://www.linkbucks.com/AnF0a
+<br>【百度密碼】：v69t
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202246697
 <br>【MediaFire】：http://adf.ly/1mWQXR （or） http://www.linkbucks.com/AnH0J
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWSGC （or） http://www.linkbucks.com/AnFz1
+<br>【百度密碼】：6udz
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202246456
 <br>【MediaFire】：http://adf.ly/1mWQPD （or） http://www.linkbucks.com/AnI7L
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mWSHl （or） http://www.linkbucks.com/AnFyE
+<br>【百度密碼】：17ch
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -77,7 +77,7 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-05-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202284143
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -87,7 +87,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-05-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202283949
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
