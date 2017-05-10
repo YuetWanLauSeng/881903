@@ -7,8 +7,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202348365
 <br>【MediaFire】：http://adf.ly/1mXFsJ （or） http://www.linkbucks.com/AnaPV
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWGe （or） http://www.linkbucks.com/AnhjN
+<br>【百度密碼】：nbks
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -19,8 +19,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202348024
 <br>【MediaFire】：http://adf.ly/1mXFqD （or） http://www.linkbucks.com/AnaP8
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWFM （or） http://www.linkbucks.com/Anhjx
+<br>【百度密碼】：tbim
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -31,8 +31,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202347471
 <br>【MediaFire】：http://adf.ly/1mXFsv （or） http://www.linkbucks.com/AnaOs
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWDa （or） http://www.linkbucks.com/Anhkf
+<br>【百度密碼】：c9j1
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -43,8 +43,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202348183
 <br>【MediaFire】：http://adf.ly/1mXFrV （or） http://www.linkbucks.com/AnaPi
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWG3 （or） http://www.linkbucks.com/Anhjj
+<br>【百度密碼】：2366
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202347565
 <br>【MediaFire】：http://adf.ly/1mXFue （or） http://www.linkbucks.com/AnaOE
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWEl （or） http://www.linkbucks.com/AnhkO
+<br>【百度密碼】：sndc
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -67,8 +67,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202347337
 <br>【MediaFire】：http://adf.ly/1mXFu0 （or） http://www.linkbucks.com/AnaOT
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWD0 （or） http://www.linkbucks.com/Anhkp
+<br>【百度密碼】：9eyg
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -89,8 +89,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202381412
 <br>【MediaFire】：http://adf.ly/1mXNOU （or） http://www.linkbucks.com/AnWUw
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWHW （or） http://www.linkbucks.com/Anhi0
+<br>【百度密碼】：crmm
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -121,8 +121,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202382982
 <br>【MediaFire】：http://adf.ly/1mXNO4 （or） http://www.linkbucks.com/AnWVE
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWIE （or） http://www.linkbucks.com/Anhik
+<br>【百度密碼】：rnee
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -143,8 +143,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202384686
 <br>【MediaFire】：http://adf.ly/1mXNM1 （or） http://www.linkbucks.com/AnWWG
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWKr （or） http://www.linkbucks.com/Anhhz
+<br>【百度密碼】：tpe4
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -155,8 +155,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202385012
 <br>【MediaFire】：http://adf.ly/1mXO2O （or） http://www.linkbucks.com/AnWM1
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWLZ （or） http://www.linkbucks.com/Anhhj
+<br>【百度密碼】：nwhw
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -167,8 +167,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202385130
 <br>【MediaFire】：http://adf.ly/1mXNN4 （or） http://www.linkbucks.com/AnWVd
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mXWJh （or） http://www.linkbucks.com/AnhiO
+<br>【百度密碼】：u2n3
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -195,7 +195,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202398835
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -221,7 +221,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202399464
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -239,8 +239,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202399877
+<br>【MediaFire】：http://adf.ly/1mXWtM （or） http://www.linkbucks.com/AnhUR
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
