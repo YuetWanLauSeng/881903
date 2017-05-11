@@ -6,7 +6,7 @@
 <br>【檔案名稱】：Share My Song.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202435594
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mXvDQ （or） http://www.linkbucks.com/Anz21
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202434965
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mXvCr （or） http://www.linkbucks.com/Anz3w
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -30,7 +30,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202434430
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mXvDi （or） http://www.linkbucks.com/Anz2G
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -42,7 +42,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202435404
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mXvCH （or） http://www.linkbucks.com/Anz5K
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -54,7 +54,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202434524
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mXvEM （or） http://www.linkbucks.com/Anz1s
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -66,7 +66,7 @@
 <br>【檔案名稱】：Good Morning King.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202434234
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mXvBf （or） http://www.linkbucks.com/Anz5s
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
