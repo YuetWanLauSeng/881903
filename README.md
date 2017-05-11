@@ -1,3 +1,5 @@
+<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
+
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2017-05-11
@@ -78,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202481749
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYBzP （or） http://www.linkbucks.com/An67x
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -100,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202481191
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYBxt （or） http://www.linkbucks.com/An69j
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -110,7 +112,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202482880
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYC1m （or） http://www.linkbucks.com/An64h
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -132,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202485767
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYC0d （or） http://www.linkbucks.com/An66D
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -142,7 +144,7 @@
 <br>【檔案名稱】：The Fun Box.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202483635
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYByd （or） http://www.linkbucks.com/An68f
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -154,7 +156,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202485118
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYC2d （or） http://www.linkbucks.com/An63x
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -178,7 +180,7 @@
 <br>【檔案名稱】：Zine.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202491914
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYC15 （or） http://www.linkbucks.com/An65e
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -188,7 +190,7 @@
 <br>【檔案名稱】：Our Way Out.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202491813
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYBzv （or） http://www.linkbucks.com/An67X
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -197,7 +199,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202495512
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -207,7 +209,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202495535
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -217,8 +219,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202495560
+<br>【MediaFire】：http://adf.ly/1mYD41 （or） http://www.linkbucks.com/An5s1
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -229,7 +231,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202495694
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -239,7 +241,7 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202495724
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -249,8 +251,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202495966
+<br>【MediaFire】：http://adf.ly/1mYD3c （or） http://www.linkbucks.com/An5tR
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
