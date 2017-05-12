@@ -210,7 +210,7 @@
 <br>【檔案名稱】：Tea For You.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202495535
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYQ4b （or） http://www.linkbucks.com/AmXkj
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -242,7 +242,7 @@
 <br>【檔案名稱】：Reading Time.2017-05-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202495724
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYQ5I （or） http://www.linkbucks.com/AmWIX
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -271,8 +271,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Hollywood in HK2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202506683
+<br>【MediaFire】：http://adf.ly/1mYQ37 （or） http://www.linkbucks.com/AmXs6
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -283,7 +283,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202505506
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -293,7 +293,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202505306
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -303,5 +303,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-05-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202505184
 <br>【MediaFire】： （or）
