@@ -179,7 +179,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202594626
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -189,7 +189,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-05-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202594542
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
