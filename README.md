@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202586077
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYqLE （or） http://www.linkbucks.com/Antmc
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -210,7 +210,7 @@
 <br>【檔案名稱】：Tea For You.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202596553
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYqJh （or） http://www.linkbucks.com/AntnJ
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -220,7 +220,7 @@
 <br>【檔案名稱】：Sino Stream.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202596578
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mYqJ3 （or） http://www.linkbucks.com/Antnk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -231,7 +231,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202597269
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -249,8 +249,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-05-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202597192
+<br>【MediaFire】：http://adf.ly/1mYqIT （or） http://www.linkbucks.com/Antnt
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -259,8 +259,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202597541
+<br>【MediaFire】：http://adf.ly/1mYqHO （or） http://www.linkbucks.com/Antn2
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
