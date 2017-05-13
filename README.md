@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202586282
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ6je （or） http://www.linkbucks.com/AoAlU
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202586760
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ6kF （or） http://www.linkbucks.com/AoAk9
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -144,7 +144,7 @@
 <br>【檔案名稱】：The Fun Box.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202588614
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ6io （or） http://www.linkbucks.com/AoAlv
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -156,7 +156,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202588879
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ6i3 （or） http://www.linkbucks.com/AoAmO
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -168,7 +168,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202588082
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ6iV （or） http://www.linkbucks.com/AoAl8
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -200,7 +200,7 @@
 <br>【檔案名稱】：My Daily Life.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202596493
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ6lc （or） http://www.linkbucks.com/AoAkV
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -232,7 +232,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202597269
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ6lN （or） http://www.linkbucks.com/AoAki
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
