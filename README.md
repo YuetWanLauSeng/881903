@@ -18,7 +18,7 @@
 <br>【檔案名稱】：So Sunshine.2017-05-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202709507
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZMt6 （or） http://www.linkbucks.com/AoBQa
 
 <br>【節目名稱】：橙咇咇
 <br>【節目頻道】：903
@@ -80,7 +80,7 @@
 <br>【檔案名稱】：903 Top 20.2017-05-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202711008
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZMs6 （or） http://www.linkbucks.com/AoBQn
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -157,7 +157,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202735273
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -167,7 +167,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202735681
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
