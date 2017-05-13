@@ -280,7 +280,7 @@
 <br>【檔案名稱】：Hollywood in HK.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ7k6 （or） http://www.linkbucks.com/AoAHF
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -292,7 +292,7 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ7gD （or） http://www.linkbucks.com/AoAIc
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -302,7 +302,7 @@
 <br>【檔案名稱】：Canto Pop.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ7ft （or） http://www.linkbucks.com/AoAIj
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
