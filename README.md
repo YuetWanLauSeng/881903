@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202586556
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ90Z （or） http://www.linkbucks.com/An9kS
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -112,7 +112,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202588326
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ94r （or） http://www.linkbucks.com/An9iw
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -134,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202589030
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ92v （or） http://www.linkbucks.com/An9jn
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -180,7 +180,7 @@
 <br>【檔案名稱】：Zine.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202594626
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ95A （or） http://www.linkbucks.com/An9iX
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,7 +190,7 @@
 <br>【檔案名稱】：Our Way Out.2017-05-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202594542
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZ93k （or） http://www.linkbucks.com/An9jL
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
