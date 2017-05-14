@@ -38,7 +38,7 @@
 <br>【檔案名稱】：Saturday Forum.2017-05-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202709192
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZO7H （or） http://www.linkbucks.com/AoIks
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -48,7 +48,7 @@
 <br>【檔案名稱】：J.A.L.2017-05-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202708129
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZO6X （or） http://www.linkbucks.com/AoIlA
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202709654
 <br>【MediaFire】：http://adf.ly/1mZDcq （or） http://www.linkbucks.com/An6iB
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mZR3F （or） http://www.linkbucks.com/AoHii
+<br>【百度密碼】：ycr5
 
 <br>【節目名稱】：專業推介
 <br>【節目頻道】：903
@@ -99,8 +99,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202711358
 <br>【MediaFire】：http://adf.ly/1mZDbi （or） http://www.linkbucks.com/An6ic
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mZR0r （or） http://www.linkbucks.com/AoHjJ
+<br>【百度密碼】：hcqu
 
 <br>【節目名稱】：咆哮山莊
 <br>【節目頻道】：903
@@ -128,7 +128,7 @@
 <br>【檔案名稱】：Quote Chart.2017-05-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202732196
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZQhR （or） http://www.linkbucks.com/AoHsl
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -146,9 +146,9 @@
 <br>【檔案名稱】：Screw No.3.2017-05-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202732419
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1mZQjn （or） http://www.linkbucks.com/AoHrR
+<br>【百度網盤】：http://adf.ly/1mZR2S （or） http://www.linkbucks.com/AoHit
+<br>【百度密碼】：9w79
 
 <br>【節目名稱】：第三齡接觸
 <br>【節目頻道】：881
@@ -158,7 +158,7 @@
 <br>【檔案名稱】：Silver Age Club.2017-05-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202735273
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZQkj （or） http://www.linkbucks.com/AoHpF
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -168,7 +168,7 @@
 <br>【檔案名稱】：WonderMelon !.2017-05-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202735681
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZQiI （or） http://www.linkbucks.com/AoHr8
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -177,7 +177,7 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202738356
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -187,7 +187,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202738574
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
@@ -197,18 +197,18 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202759129
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
 <br>【節目日期】：2017-05-13
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：樊奕敏
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202762282
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -220,7 +220,7 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202759938
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：皇牌出場
@@ -230,7 +230,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202760602
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -242,5 +242,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-05-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202758958
 <br>【MediaFire】： （or）
