@@ -109,7 +109,7 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202785942
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：兒童適宜
@@ -119,7 +119,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202786440
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：大鐵人
@@ -129,7 +129,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202787660
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
