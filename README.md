@@ -1,3 +1,5 @@
+<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
+
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
 <br>【節目日期】：2017-05-14
@@ -77,7 +79,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202783650
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：電影圈
@@ -87,7 +89,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202783530
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：無定向喪煲病狂
@@ -97,7 +99,7 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202783229
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：1圈圈 (周末版)
