@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Stroke Decryption.2017-05-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202783650
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZxZN （or） http://www.linkbucks.com/Aodqk
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Movies.2017-05-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202783530
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZxXk （or） http://www.linkbucks.com/Aodsl
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -100,7 +100,7 @@
 <br>【檔案名稱】：Binge-Watch.2017-05-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202783229
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZxWV （or） http://www.linkbucks.com/Aoduc
 
 <br>【節目名稱】：1圈圈 (周末版)
 <br>【節目頻道】：881
@@ -110,7 +110,7 @@
 <br>【檔案名稱】：Circles.2017-05-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202785942
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZxTF （or） http://www.linkbucks.com/Aodxc
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -120,7 +120,7 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-05-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202786440
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZxUF （or） http://www.linkbucks.com/Aodv2
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -130,7 +130,7 @@
 <br>【檔案名稱】：The Big Sportsman.2017-05-14
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202787660
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mZxYa （or） http://www.linkbucks.com/Aodr9
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -139,7 +139,7 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202806755
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -149,7 +149,7 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202806947
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
