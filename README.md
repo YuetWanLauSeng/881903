@@ -161,8 +161,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202827121
+<br>【MediaFire】：http://adf.ly/1ma9rt （or） http://www.linkbucks.com/q3fd
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -173,7 +173,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202826348
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：泡菜粉絲煲 
@@ -183,8 +183,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202826535
+<br>【MediaFire】：http://adf.ly/1ma9rO （or） http://www.linkbucks.com/q3fl
 
 <br>【節目名稱】：細路強
 <br>【節目頻道】：881
@@ -193,7 +193,7 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202826792
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：國民教育
@@ -203,8 +203,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202828173
+<br>【MediaFire】：http://adf.ly/1ma9q0 （or） http://www.linkbucks.com/q3f1
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -215,8 +215,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202826897
+<br>【MediaFire】：http://adf.ly/1ma9sx （or） http://www.linkbucks.com/q3fW
 
 <br>【節目名稱】：葛民教育
 <br>【節目頻道】：881
@@ -225,8 +225,8 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-05-14
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202828320
+<br>【MediaFire】：http://adf.ly/1ma9uN （or） http://www.linkbucks.com/q3fN
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
