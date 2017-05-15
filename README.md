@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202993437
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mbLD2 （or） http://www.linkbucks.com/AoY7F
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202996372
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mbLAN （or） http://www.linkbucks.com/AoY8C
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -112,7 +112,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202998775
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mbLHU （or） http://www.linkbucks.com/AoY5j
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202997704
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mbLGo （or） http://www.linkbucks.com/AoY5v
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -134,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-202999796
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mbLFT （or） http://www.linkbucks.com/AoY6H
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -190,7 +190,7 @@
 <br>【檔案名稱】：Our Way Out.2017-05-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203013416
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mbLDq （or） http://www.linkbucks.com/AoY6x
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -200,7 +200,7 @@
 <br>【檔案名稱】：My Daily Life.2017-05-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203023548
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mbLCM （or） http://www.linkbucks.com/AoY7e
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -210,7 +210,7 @@
 <br>【檔案名稱】：Tea For You.2017-05-15
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203024036
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mbLIc （or） http://www.linkbucks.com/AoY5P
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -219,8 +219,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-15
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203026507
+<br>【MediaFire】：http://adf.ly/1mbLKg （or） http://www.linkbucks.com/AoY4n
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
