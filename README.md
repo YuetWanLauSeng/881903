@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-05-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203127450
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mc1eM （or） http://www.linkbucks.com/Aokh5
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203127797
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mc1bR （or） http://www.linkbucks.com/AokjZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -168,7 +168,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-05-16
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203128490
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mc1aa （or） http://www.linkbucks.com/Aokjx
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -199,7 +199,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203130939
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -209,7 +209,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-05-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203131081
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -219,7 +219,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-16
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203130988
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
