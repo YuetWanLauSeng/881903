@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203250160
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mcjNZ （or） http://www.linkbucks.com/ApXfc
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -112,7 +112,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203250403
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mcjQW （or） http://www.linkbucks.com/ApXdw
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203250253
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mceve （or） http://www.linkbucks.com/ApCAv
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -134,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203250518
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mcjSy （or） http://www.linkbucks.com/ApXce
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -144,7 +144,7 @@
 <br>【檔案名稱】：The Fun Box.2017-05-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203250773
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mcetx （or） http://www.linkbucks.com/ApCB8
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -156,7 +156,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203252055
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mcjTV （or） http://www.linkbucks.com/ApXcN
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -168,7 +168,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-05-17
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203252343
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mceul （or） http://www.linkbucks.com/ApCBU
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -179,8 +179,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203256465
+<br>【MediaFire】：http://adf.ly/1mcjRI （or） http://www.linkbucks.com/ApXda
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -197,8 +197,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203256378
+<br>【MediaFire】：http://adf.ly/1mcjOj （or） http://www.linkbucks.com/ApXe9
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -241,8 +241,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-17
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203264533
+<br>【MediaFire】：http://adf.ly/1mcjkz （or） http://www.linkbucks.com/ApW5x
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
