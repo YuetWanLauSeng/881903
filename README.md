@@ -220,7 +220,7 @@
 <br>【檔案名稱】：Sino Stream.2017-05-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203368105
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mdL3K （or） http://www.linkbucks.com/Ao2v2
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -231,8 +231,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-18
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203370147
+<br>【MediaFire】：http://adf.ly/1mdL1v （or） http://www.linkbucks.com/Ao2wc
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -241,8 +241,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-05-18
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203369804
+<br>【MediaFire】：http://adf.ly/1mdL2K （or） http://www.linkbucks.com/Ao22N
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -251,8 +251,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-18
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-2033704703
+<br>【MediaFire】：http://adf.ly/1mdL15 （or） http://www.linkbucks.com/Ao2wm
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
