@@ -1,3 +1,5 @@
+<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
+
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2017-05-18
@@ -77,7 +79,7 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-05-18
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203306404
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -87,7 +89,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-05-18
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203306269
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -302,4 +304,4 @@
 <br>【檔案名稱】：Begin with Music.2017-05-18
 <br>【檔案音質】：高清
 <br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【MediaFire】： （or）
