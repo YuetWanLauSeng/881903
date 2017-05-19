@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203433848
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mdoDv （or） http://www.linkbucks.com/ApDT4
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203434086
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mdoG6 （or） http://www.linkbucks.com/ApDSV
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -134,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203434646
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mdoFE （or） http://www.linkbucks.com/ApDS1
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
