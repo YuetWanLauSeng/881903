@@ -179,7 +179,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489618
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -189,7 +189,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489335
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -199,7 +199,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489185
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -209,7 +209,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489467
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
@@ -219,8 +219,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489370
+<br>【MediaFire】：http://adf.ly/1me0r0 （or） http://www.linkbucks.com/ApNrZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -247,7 +247,7 @@
 <br>【節目日期】：2017-05-19
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：The Explorer2017-05-19
+<br>【檔案名稱】：The Explorer.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
@@ -259,8 +259,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203490000
+<br>【MediaFire】：http://adf.ly/1me1Nj （or） http://www.linkbucks.com/ApNdr
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
