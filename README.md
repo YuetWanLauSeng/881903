@@ -144,7 +144,7 @@
 <br>【檔案名稱】：The Fun Box.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203473524
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meIuX （or） http://www.linkbucks.com/ApWWH
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -156,7 +156,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203474639
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meItd （or） http://www.linkbucks.com/ApWWv
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -168,7 +168,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203476693
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meIjh （or） http://www.linkbucks.com/ApWV0
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -200,7 +200,7 @@
 <br>【檔案名稱】：My Daily Life.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489185
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meIu3 （or） http://www.linkbucks.com/ApWWd
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -210,7 +210,7 @@
 <br>【檔案名稱】：Tea For You.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489467
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meIqJ （or） http://www.linkbucks.com/ApWZZ
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -277,7 +277,7 @@
 <br>【節目日期】：2017-05-19
 <br>【節目主持】：火火 | 陳詠燊
 <br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：Hollywood in HK2017-05-19
+<br>【檔案名稱】：Hollywood in HK.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
