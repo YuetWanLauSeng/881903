@@ -1,5 +1,3 @@
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
-
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2017-05-19
@@ -33,8 +31,6 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203416648
 <br>【MediaFire】：http://adf.ly/1mdluP （or） http://www.linkbucks.com/ApErN
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -90,7 +86,6 @@
 <br>【檔案名稱】：18F Block C.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203433088
-<br>【MediaFire】： （or） 
 <br>【百度網盤】：http://adf.ly/1meJg9 （or） http://www.linkbucks.com/ApVnH
 <br>【百度密碼】：2sp7
 
@@ -102,7 +97,6 @@
 <br>【檔案名稱】：903 Music.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203433608
-<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -112,7 +106,6 @@
 <br>【檔案名稱】：Lunch Special.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203434350
-<br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -180,7 +173,7 @@
 <br>【檔案名稱】：Zine.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489618
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meSL6 （or） http://www.linkbucks.com/AprfQ
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,7 +183,7 @@
 <br>【檔案名稱】：Our Way Out.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203489335
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meSKj （or） http://www.linkbucks.com/Aprgb
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -232,7 +225,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203527561
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meSJP （or） http://www.linkbucks.com/Aprh2
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -250,7 +243,7 @@
 <br>【檔案名稱】：The Explorer.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203527219
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meSMH （or） http://www.linkbucks.com/Aprc7
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -280,9 +273,9 @@
 <br>【檔案名稱】：Hollywood in HK.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203527155
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1meSJx （or） http://www.linkbucks.com/Aprha
+<br>【百度網盤】：http://adf.ly/1meSNI （or） http://www.linkbucks.com/AprbS
+<br>【百度密碼】：5eee
 
 <br>【節目名稱】：月光光呵呵呵
 <br>【節目頻道】：881
@@ -292,7 +285,7 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203526708
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meSLV （or） http://www.linkbucks.com/Aprej
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -302,7 +295,7 @@
 <br>【檔案名稱】：Canto Pop.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203526534
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meSKV （or） http://www.linkbucks.com/Aprg1
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -312,4 +305,4 @@
 <br>【檔案名稱】：Begin with Music.2017-05-19
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203525826
-<br>【MediaFire】： （or）
+<br>【MediaFire】：http://adf.ly/1meSII （or） http://www.linkbucks.com/AprjT
