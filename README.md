@@ -8,7 +8,7 @@
 <br>【檔案名稱】：Morning Glory.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203562426
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVLu （or） http://www.linkbucks.com/ApmaM
 
 <br>【節目名稱】：好醒晨
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：So Sunshine.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203563603
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVK4 （or） http://www.linkbucks.com/ApmcL
 
 <br>【節目名稱】：橙咇咇
 <br>【節目頻道】：903
@@ -28,7 +28,7 @@
 <br>【檔案名稱】：Orange Day.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203562560
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVNL （or） http://www.linkbucks.com/ApmYn
 
 <br>【節目名稱】：政經星期六
 <br>【節目頻道】：881
@@ -38,7 +38,7 @@
 <br>【檔案名稱】：Saturday Forum.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203563099
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVL4 （or） http://www.linkbucks.com/ApmbE
 
 <br>【節目名稱】：西加航空
 <br>【節目頻道】：903
@@ -48,7 +48,7 @@
 <br>【檔案名稱】：J.A.L.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203562203
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVLK （or） http://www.linkbucks.com/Apmau
 
 <br>【節目名稱】：潮爆開運王
 <br>【節目頻道】：881
@@ -58,7 +58,7 @@
 <br>【檔案名稱】：Weekend Lucky Star.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203564042
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVNx （or） http://www.linkbucks.com/ApmS5
 
 <br>【節目名稱】：考股專家
 <br>【節目頻道】：881
@@ -68,7 +68,7 @@
 <br>【檔案名稱】：Stockaeologist.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203563825
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVPL （or） http://www.linkbucks.com/ApmRh
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -80,7 +80,7 @@
 <br>【檔案名稱】：903 Top 20.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203565027
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVKT （or） http://www.linkbucks.com/Apmbd
 
 <br>【節目名稱】：中風危機解密
 <br>【節目頻道】：881
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Stroke Decryption.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203565504
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVSm （or） http://www.linkbucks.com/ApmBb
 
 <br>【節目名稱】：電影圈
 <br>【節目頻道】：881
@@ -100,7 +100,7 @@
 <br>【檔案名稱】：Movies.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203565210
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVOf （or） http://www.linkbucks.com/ApmSL
 
 <br>【節目名稱】：咪芝蓮
 <br>【節目頻道】：903
@@ -110,7 +110,7 @@
 <br>【檔案名稱】：Mr Chef.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203565399
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVMS （or） http://www.linkbucks.com/ApmZo
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：903 Band Time.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203564352
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meVMv （or） http://www.linkbucks.com/ApmZR
 
 <br>【節目名稱】：1圈圈 (周末版)
 <br>【節目頻道】：881
