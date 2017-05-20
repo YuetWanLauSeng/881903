@@ -173,7 +173,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-05-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203588186
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：西瓜大發 !
@@ -183,7 +183,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon !.2017-05-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203589691
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：雷霆音樂圈
