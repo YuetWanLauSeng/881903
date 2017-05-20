@@ -132,7 +132,7 @@
 <br>【檔案名稱】：Circles.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203574880
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meYqC （or） http://www.linkbucks.com/AphLd
 
 <br>【節目名稱】：豁達推介
 <br>【節目頻道】：903
@@ -142,7 +142,7 @@
 <br>【檔案名稱】：Quote Chart.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203575994
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meYqf （or） http://www.linkbucks.com/AphK4
 
 <br>【節目名稱】：大鐵人
 <br>【節目頻道】：881
@@ -152,7 +152,7 @@
 <br>【檔案名稱】：The Big Sportsman.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203577691
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meYrU （or） http://www.linkbucks.com/AphKI
 
 <br>【節目名稱】：3號螺絲釘
 <br>【節目頻道】：903
@@ -162,7 +162,7 @@
 <br>【檔案名稱】：Screw No.3.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203582204
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1meYr4 （or） http://www.linkbucks.com/AphKk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
