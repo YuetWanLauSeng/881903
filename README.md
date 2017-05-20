@@ -231,7 +231,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203527561
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -249,7 +249,7 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203527219
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：光明頂
@@ -279,7 +279,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：Hollywood in HK.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203527155
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -291,7 +291,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203526708
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：廣東爆谷
@@ -301,7 +301,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203526534
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一切從音樂開始
@@ -311,5 +311,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-05-19
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203525826
 <br>【MediaFire】： （or）
