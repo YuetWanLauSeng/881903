@@ -8,7 +8,7 @@
 <br>【檔案名稱】：Reading Time.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203649278
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf795 （or） http://www.linkbucks.com/Aptwc
 
 <br>【節目名稱】：一周紅人館
 <br>【節目頻道】：903
@@ -18,7 +18,7 @@
 <br>【檔案名稱】：Star House.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203653309
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf765 （or） http://www.linkbucks.com/Apt0v
 
 <br>【節目名稱】：政好星期天
 <br>【節目頻道】：881
@@ -28,7 +28,7 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203647534
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf78Z （or） http://www.linkbucks.com/AptxA
 
 <br>【節目名稱】：Urban Touch
 <br>【節目頻道】：903
@@ -38,7 +38,7 @@
 <br>【檔案名稱】：Urban Touch.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203654010
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf76q （or） http://www.linkbucks.com/AptzY
 
 <br>【節目名稱】：馬路的事我哋的事
 <br>【節目頻道】：881
@@ -48,7 +48,7 @@
 <br>【檔案名稱】：Road Co-op.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203650452
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf7AP （or） http://www.linkbucks.com/AptvK
 
 <br>【節目名稱】：同途有心人
 <br>【節目頻道】：881
@@ -58,7 +58,7 @@
 <br>【檔案名稱】：The Way We Are.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203653753
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf79U （or） http://www.linkbucks.com/Aptv6
 
 <br>【節目名稱】：讀賣Sunday
 <br>【節目頻道】：903
@@ -68,7 +68,7 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203653558
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf77a （or） http://www.linkbucks.com/Aptyl
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Binge-Watch.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203655465
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf78B （or） http://www.linkbucks.com/AptyM
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -89,7 +89,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-05-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203661144
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Mali Mali Home
