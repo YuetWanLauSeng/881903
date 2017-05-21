@@ -194,7 +194,7 @@
 <br>【檔案名稱】：881 Music Station.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203615571
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mezuY （or） http://www.linkbucks.com/ApiKL
 
 <br>【節目名稱】：Chi Chung's Class
 <br>【節目頻道】：903
@@ -204,7 +204,7 @@
 <br>【檔案名稱】：Chi Chung's Class.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203615730
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mezv1 （or） http://www.linkbucks.com/ApiJe
 
 <br>【節目名稱】：與時並進
 <br>【節目頻道】：881
@@ -214,7 +214,7 @@
 <br>【檔案名稱】：Education Forum.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203615843
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mezvw （or） http://www.linkbucks.com/ApiGt
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
@@ -225,7 +225,7 @@
 <br>【檔案名稱】：The Playtoy Mansion.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203616582
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mezwm （or） http://www.linkbucks.com/ApiGQ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -237,7 +237,7 @@
 <br>【檔案名稱】：Fat’s Lifestyle.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203615943
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mezvH （or） http://www.linkbucks.com/ApiIQ
 
 <br>【節目名稱】：皇牌出場
 <br>【節目頻道】：903
@@ -247,7 +247,7 @@
 <br>【檔案名稱】：Losing Eleven.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203616051
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mezvZ （or） http://www.linkbucks.com/ApiHR
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
