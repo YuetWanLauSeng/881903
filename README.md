@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-05-21
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203661144
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mf7kj （or） http://www.linkbucks.com/AptDK
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
