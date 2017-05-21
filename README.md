@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203653558
 <br>【MediaFire】：http://adf.ly/1mf77a （or） http://www.linkbucks.com/Aptyl
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mfIvS （or） http://www.linkbucks.com/Ap6cu
+<br>【百度密碼】：jqwi
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -111,8 +111,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203672942
 <br>【MediaFire】：http://adf.ly/1mfCqQ （or） http://www.linkbucks.com/AqBhf
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mfIwJ （or） http://www.linkbucks.com/Ap6cG
+<br>【百度密碼】：r173
 
 <br>【節目名稱】：讀懂中國
 <br>【節目頻道】：881
@@ -123,8 +123,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203672919
 <br>【MediaFire】：http://adf.ly/1mfCwZ （or） http://www.linkbucks.com/AqBVq
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mfIx4 （or） http://www.linkbucks.com/Ap6bl
+<br>【百度密碼】：myiq
 
 <br>【節目名稱】：國語類
 <br>【節目頻道】：903
@@ -133,8 +133,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-05-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203681810
+<br>【MediaFire】：http://adf.ly/1mfIu5 （or） http://www.linkbucks.com/Ap6eb
 
 <br>【節目名稱】：泡菜粉絲煲 
 <br>【節目頻道】：881
@@ -143,8 +143,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-05-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203682221
+<br>【MediaFire】：http://adf.ly/1mfIux （or） http://www.linkbucks.com/Ap6dS
 
 <br>【節目名稱】：細路強
 <br>【節目頻道】：881
@@ -153,8 +153,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-05-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203686379
+<br>【MediaFire】：http://adf.ly/1mfIuV （or） http://www.linkbucks.com/Ap6d4
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
