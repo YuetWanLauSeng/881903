@@ -109,8 +109,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-05-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203672942
+<br>【MediaFire】：http://adf.ly/1mfCqQ （or） http://www.linkbucks.com/AqBhf
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -121,8 +121,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-05-21
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203672919
+<br>【MediaFire】：http://adf.ly/1mfCwZ （or） http://www.linkbucks.com/AqBVq
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
