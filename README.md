@@ -174,7 +174,7 @@
 <br>【檔案名稱】：Silver Age Club.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203588186
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mec2v （or） http://www.linkbucks.com/Apdj9
 
 <br>【節目名稱】：西瓜大發 !
 <br>【節目頻道】：903
@@ -184,7 +184,7 @@
 <br>【檔案名稱】：WonderMelon !.2017-05-20
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203589691
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mec1A （or） http://www.linkbucks.com/ApdmT
 
 <br>【節目名稱】：雷霆音樂圈
 <br>【節目頻道】：881
@@ -193,7 +193,7 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-05-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203615571
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：Chi Chung's Class
@@ -203,7 +203,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-05-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203615730
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：與時並進
@@ -213,18 +213,18 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-05-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203615843
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：公子會
 <br>【節目頻道】：903
 <br>【節目日期】：2017-05-20
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：宣萱
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-05-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203616582
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -236,7 +236,7 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-05-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203615943
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：皇牌出場
@@ -246,7 +246,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-05-20
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203616051
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
