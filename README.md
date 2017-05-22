@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203740847
 <br>【MediaFire】：http://adf.ly/1mfq5f （or） http://www.linkbucks.com/Apnbq
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mg0Ax （or） http://www.linkbucks.com/AptAZ
+<br>【百度密碼】：phhp
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203745609
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mg08l （or） http://www.linkbucks.com/AptCK
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -123,8 +123,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203748923
 <br>【MediaFire】：http://adf.ly/1mfq4v （or） http://www.linkbucks.com/ApncD
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mg081 （or） http://www.linkbucks.com/AptCn
+<br>【百度密碼】：wsv6
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -145,8 +145,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203759033
 <br>【MediaFire】：http://adf.ly/1mftG0 （or） http://www.linkbucks.com/AplLw
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mg06X （or） http://www.linkbucks.com/AptDu
+<br>【百度密碼】：595v
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -157,8 +157,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203759518
 <br>【MediaFire】：http://adf.ly/1mftFN （or） http://www.linkbucks.com/AplMO
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mfzpE （or） http://www.linkbucks.com/AptP4
+<br>【百度密碼】：j98m
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -169,8 +169,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203758194
 <br>【MediaFire】：http://adf.ly/1mftGM （or） http://www.linkbucks.com/AplLR
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mg07O （or） http://www.linkbucks.com/Aps3D
+<br>【百度密碼】：d16q
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -221,8 +221,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203784281
 <br>【MediaFire】：http://adf.ly/1mfzNG （or） http://www.linkbucks.com/AptgA
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mg05i （or） http://www.linkbucks.com/AptEP
+<br>【百度密碼】：jb6n
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -231,8 +231,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203787650
+<br>【MediaFire】：http://adf.ly/1mg2fL （or） http://www.linkbucks.com/ApsOY
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -241,8 +241,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-05-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203787471
+<br>【MediaFire】：http://adf.ly/1mg2fg （or） http://www.linkbucks.com/ApsOM
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -251,8 +251,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203788376
+<br>【MediaFire】：http://adf.ly/1mg2lu （or） http://www.linkbucks.com/ApsKp
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -262,6 +262,14 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-05-22
+<br>【節目暫停】：改播『最港產』
+
+<br>【節目名稱】：最港產
+<br>【節目頻道】：903
+<br>【節目日期】：2017-05-22
+<br>【節目主持】：火火 | 陳詠燊
+<br>【節目時間】：23:00 - 01:00
+<br>【檔案名稱】：Hollywood in HK.2017-05-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：
 <br>【MediaFire】： （or） 
