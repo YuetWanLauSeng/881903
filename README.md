@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203747572
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mfq48 （or） http://www.linkbucks.com/Apncs
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-05-22
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203740847
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mfq5f （or） http://www.linkbucks.com/Apnbq
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -101,7 +101,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-05-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203745609
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -111,8 +111,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-05-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203750738
+<br>【MediaFire】：http://adf.ly/1mfq5G （or） http://www.linkbucks.com/Apnb2
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -121,8 +121,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-05-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203748923
+<br>【MediaFire】：http://adf.ly/1mfq4v （or） http://www.linkbucks.com/ApncD
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -133,8 +133,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-05-22
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203752359
+<br>【MediaFire】：http://adf.ly/1mfq4V （or） http://www.linkbucks.com/ApncU
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
