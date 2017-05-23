@@ -1,5 +1,3 @@
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
-
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2017-05-23
@@ -180,7 +178,7 @@
 <br>【檔案名稱】：Zine.2017-05-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203911853
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mgjyI （or） http://www.linkbucks.com/AqCNb
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,7 +188,7 @@
 <br>【檔案名稱】：Our Way Out.2017-05-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203911472
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mgjxT （or） http://www.linkbucks.com/AqCNQ
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -199,8 +197,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203919026
+<br>【MediaFire】：http://adf.ly/1mgjvu （or） http://www.linkbucks.com/AqCZs
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -209,8 +207,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-05-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203917529
+<br>【MediaFire】：http://adf.ly/1mgjx9 （or） http://www.linkbucks.com/AqCZB
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
