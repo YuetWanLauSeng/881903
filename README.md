@@ -221,8 +221,6 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203927382
 <br>【MediaFire】：http://adf.ly/1mgngV （or） http://www.linkbucks.com/AqAIA
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
 
 <br>【節目名稱】：雲妮鍾情
 <br>【節目頻道】：903
@@ -249,8 +247,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-05-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203928809
+<br>【MediaFire】：http://adf.ly/1mgpsd （or） http://www.linkbucks.com/Ap9B4
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -259,8 +257,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203954974
+<br>【MediaFire】：http://adf.ly/1mgprU （or） http://www.linkbucks.com/Ap9Ce
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
