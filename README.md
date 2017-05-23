@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203879237
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mgYXA （or） http://www.linkbucks.com/Ap58y
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -112,7 +112,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203879657
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mgYYG （or） http://www.linkbucks.com/Ap58e
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203879475
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mgYYi （or） http://www.linkbucks.com/Ap58K
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -134,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-23
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203879882
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mgYXo （or） http://www.linkbucks.com/Ap58k
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
