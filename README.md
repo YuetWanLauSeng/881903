@@ -1,3 +1,5 @@
+<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
+
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
 <br>【節目日期】：2017-05-23
@@ -217,8 +219,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-23
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-203927382
+<br>【MediaFire】：http://adf.ly/1mgngV （or） http://www.linkbucks.com/AqAIA
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
