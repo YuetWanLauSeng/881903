@@ -179,8 +179,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-24
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204166847
+<br>【MediaFire】：http://adf.ly/1mhao7 （or） http://www.linkbucks.com/AqLcc
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -196,8 +196,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-24
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204165585
+<br>【MediaFire】：http://adf.ly/1mhaeC （or） http://www.linkbucks.com/AqLej
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -240,8 +240,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-24
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204191117
+<br>【MediaFire】：http://adf.ly/1mhacJ （or） http://www.linkbucks.com/AqLfS
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
