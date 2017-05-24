@@ -8,7 +8,7 @@
 <br>【檔案名稱】：Share My Song.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204034019
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhJCq （or） http://www.linkbucks.com/AqbtC
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -20,7 +20,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204033058
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhJ7Y （or） http://www.linkbucks.com/AqbzN
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -32,7 +32,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204031520
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhJ6T （or） http://www.linkbucks.com/Aqb1N
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -44,7 +44,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204033499
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhJBJ （or） http://www.linkbucks.com/AqbvK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -56,7 +56,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204031802
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhJDn （or） http://www.linkbucks.com/AqbrY
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -68,7 +68,7 @@
 <br>【檔案名稱】：Good Morning King.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204043986
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhJ8P （or） http://www.linkbucks.com/Aqbvd
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204051738
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhJCJ （or） http://www.linkbucks.com/Aqbty
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204051308
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhJDO （or） http://www.linkbucks.com/Aqbrz
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
