@@ -9,8 +9,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204034019
 <br>【MediaFire】：http://adf.ly/1mhJCq （or） http://www.linkbucks.com/AqbtC
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhV8S （or） http://www.linkbucks.com/AqSm6
+<br>【百度密碼】：myvy
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -21,8 +21,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204033058
 <br>【MediaFire】：http://adf.ly/1mhJ7Y （or） http://www.linkbucks.com/AqbzN
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhVLS （or） http://www.linkbucks.com/AqSpe
+<br>【百度密碼】：5itg
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -33,8 +33,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204031520
 <br>【MediaFire】：http://adf.ly/1mhJ6T （or） http://www.linkbucks.com/Aqb1N
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhVZG （or） http://www.linkbucks.com/AqSiQ
+<br>【百度密碼】：9k2t
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -45,8 +45,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204033499
 <br>【MediaFire】：http://adf.ly/1mhJBJ （or） http://www.linkbucks.com/AqbvK
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhVaS （or） http://www.linkbucks.com/AqShC
+<br>【百度密碼】：xbib
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -57,8 +57,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204031802
 <br>【MediaFire】：http://adf.ly/1mhJDn （or） http://www.linkbucks.com/AqbrY
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhVbE （or） http://www.linkbucks.com/AqSeu
+<br>【百度密碼】：x3g5
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204043986
 <br>【MediaFire】：http://adf.ly/1mhJ8P （or） http://www.linkbucks.com/Aqbvd
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhVcC （or） http://www.linkbucks.com/AqSdJ
+<br>【百度密碼】：aptc
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204051308
 <br>【MediaFire】：http://adf.ly/1mhJDO （or） http://www.linkbucks.com/Aqbrz
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhVdV （or） http://www.linkbucks.com/AqScC
+<br>【百度密碼】：w51v
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204062428
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhTzu （or） http://www.linkbucks.com/AqTLw
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -112,7 +112,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204062658
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhVe8 （or） http://www.linkbucks.com/AqSvF
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -122,9 +122,9 @@
 <br>【檔案名稱】：Crosstrade.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204062510
-<br>【MediaFire】： （or） 
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1mhVev （or） http://www.linkbucks.com/AqSuQ
+<br>【百度網盤】：http://adf.ly/1mhVfS （or） http://www.linkbucks.com/AqSY6
+<br>【百度密碼】：dafm
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -134,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-24
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204062873
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mhV6i （or） http://www.linkbucks.com/AqSpL
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -145,8 +145,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204068368
 <br>【MediaFire】：http://adf.ly/1mhTNS （or） http://www.linkbucks.com/AqUOZ
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhVgR （or） http://www.linkbucks.com/AqStJ
+<br>【百度密碼】：s75v
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -157,8 +157,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204071066
 <br>【MediaFire】：http://adf.ly/1mhTMc （or） http://www.linkbucks.com/AqUPD
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mhViE （or） http://www.linkbucks.com/AqSaD
+<br>【百度密碼】：mkph
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
