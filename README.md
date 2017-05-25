@@ -9,8 +9,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204230451
 <br>【MediaFire】：http://adf.ly/1mi090 （or） http://www.linkbucks.com/AZ9WE
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miCzU （or） http://www.linkbucks.com/AqKSF
+<br>【百度密碼】：nedt
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -21,8 +21,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204229585
 <br>【MediaFire】：http://adf.ly/1mi05l （or） http://www.linkbucks.com/AbRdb
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miD0h （or） http://www.linkbucks.com/AqKTz
+<br>【百度密碼】：4bg7
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -33,8 +33,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204228833
 <br>【MediaFire】：http://adf.ly/1mi0AV （or） http://www.linkbucks.com/AZ8x8
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miD26 （or） http://www.linkbucks.com/AqKWM
+<br>【百度密碼】：qq6h
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -45,8 +45,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204230134
 <br>【MediaFire】：http://adf.ly/1mi08c （or） http://www.linkbucks.com/AgJrd
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miD06 （or） http://www.linkbucks.com/AqKTc
+<br>【百度密碼】：k6av
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -57,8 +57,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204228927
 <br>【MediaFire】：http://adf.ly/1mi0B7 （or） http://www.linkbucks.com/AfMHN
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miD1M （or） http://www.linkbucks.com/AqKUI
+<br>【百度密碼】：zahu
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204228608
 <br>【MediaFire】：http://adf.ly/1mi07a （or） http://www.linkbucks.com/AgSKe
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miD2v （or） http://www.linkbucks.com/AqKWd
+<br>【百度密碼】：npes
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204237841
 <br>【MediaFire】：http://adf.ly/1mi1qp （or） http://www.linkbucks.com/rmxJ
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miD4i （or） http://www.linkbucks.com/AqKW5
+<br>【百度密碼】：bmyk
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -123,8 +123,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204245229
 <br>【MediaFire】：http://adf.ly/1mi4de （or） http://www.linkbucks.com/AqV22
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miD42 （or） http://www.linkbucks.com/AqKXM
+<br>【百度密碼】：k6mi
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -145,8 +145,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204249657
 <br>【MediaFire】：http://adf.ly/1miAIr （or） http://www.linkbucks.com/AqMMW
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miCxm （or） http://www.linkbucks.com/AqKRb
+<br>【百度密碼】：mmz2
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -157,8 +157,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204249929
 <br>【MediaFire】：http://adf.ly/1miAHP （or） http://www.linkbucks.com/AqMLH
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1miCwo （or） http://www.linkbucks.com/AqKQ1
+<br>【百度密碼】：skrs
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -169,8 +169,6 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204252297
 <br>【MediaFire】：http://adf.ly/1miAEZ （or） http://www.linkbucks.com/AqMJy
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -179,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204258253
+<br>【MediaFire】：http://adf.ly/1miD5d （or） http://www.linkbucks.com/AqKWp
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -189,8 +187,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-05-25
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204258106
+<br>【MediaFire】：http://adf.ly/1miDFc （or） http://www.linkbucks.com/AqKIb
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
