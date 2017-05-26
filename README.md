@@ -20,7 +20,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-05-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204345492
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1miwKb （or） http://www.linkbucks.com/Aqi1V
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -179,8 +179,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204359194
+<br>【MediaFire】：http://adf.ly/1mj436 （or） http://www.linkbucks.com/Aqrr6
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -189,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-05-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204359082
+<br>【MediaFire】：http://adf.ly/1mj42j （or） http://www.linkbucks.com/AqrsS
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -199,8 +199,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204368852
+<br>【MediaFire】：http://adf.ly/1mj41M （or） http://www.linkbucks.com/AqrnK
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -209,8 +209,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-05-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204379569
+<br>【MediaFire】：http://adf.ly/1mj41q （or） http://www.linkbucks.com/Aqrj7
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -219,8 +219,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-05-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204379450
+<br>【MediaFire】：http://adf.ly/1mj42I （or） http://www.linkbucks.com/Aqrsj
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -240,9 +240,17 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-05-26
+<br>【節目暫停】：改播『全世界嚮導』
+
+<br>【節目名稱】：全世界嚮導
+<br>【節目頻道】：881
+<br>【節目日期】：2017-05-26
+<br>【節目主持】：項明生 | 馮志豐
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：The Explorer.2017-05-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204404689
+<br>【MediaFire】：http://adf.ly/1mj4Qo （or） http://www.linkbucks.com/Aqriz
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -251,8 +259,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-26
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204403123
+<br>【MediaFire】：http://adf.ly/1mj4QF （or） http://www.linkbucks.com/Aqri8
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
