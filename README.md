@@ -8,7 +8,7 @@
 <BR>【檔案名稱】：Morning Glory.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204444470
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjRh （or） http://www.linkbucks.com/Ar8XZ
 
 <BR>【節目名稱】：好醒晨
 <BR>【節目頻道】：903
@@ -18,7 +18,7 @@
 <BR>【檔案名稱】：So Sunshine.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204445767
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjNZ （or） http://www.linkbucks.com/Ar01Q
 
 <BR>【節目名稱】：橙咇咇
 <BR>【節目頻道】：903
@@ -28,7 +28,7 @@
 <BR>【檔案名稱】：Orange Day.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204444696
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjQW （or） http://www.linkbucks.com/Ar0u3
 
 <BR>【節目名稱】：政經星期六
 <BR>【節目頻道】：881
@@ -38,7 +38,7 @@
 <BR>【檔案名稱】：Saturday Forum.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204445262
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjPG （or） http://www.linkbucks.com/Ar0yg
 
 <BR>【節目名稱】：西加航空
 <BR>【節目頻道】：903
@@ -48,7 +48,7 @@
 <BR>【檔案名稱】：J.A.L.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204444071
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjS6 （or） http://www.linkbucks.com/Ar8W1
 
 <BR>【節目名稱】：潮爆開運王
 <BR>【節目頻道】：881
@@ -68,7 +68,7 @@
 <BR>【檔案名稱】：Stockaeologist.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204450915
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjN2 （or） http://www.linkbucks.com/Ar03A
 <BR>【百度網盤】： （or） 
 <BR>【百度密碼】：
 
@@ -80,7 +80,7 @@
 <BR>【檔案名稱】：903 Top 20.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204459923
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjSY （or） http://www.linkbucks.com/Ar8VY
 
 <BR>【節目名稱】：中風危機解密
 <BR>【節目頻道】：881
@@ -90,7 +90,7 @@
 <BR>【檔案名稱】：Stroke Decryption.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204460474
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjMV （or） http://www.linkbucks.com/Ar04b
 
 <BR>【節目名稱】：電影圈
 <BR>【節目頻道】：881
@@ -100,7 +100,7 @@
 <BR>【檔案名稱】：Movies.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204460179
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjRN （or） http://www.linkbucks.com/Ar8ZS
 
 <BR>【節目名稱】：咪芝蓮
 <BR>【節目頻道】：903
@@ -110,7 +110,7 @@
 <BR>【檔案名稱】：Mr Chef.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204460386
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjQz （or） http://www.linkbucks.com/Ar0rm
 <BR>【百度網盤】： （or） 
 <BR>【百度密碼】：
 
@@ -122,7 +122,7 @@
 <BR>【檔案名稱】：903 Band Time.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204468525
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjTL （or） http://www.linkbucks.com/Ar8UQ
 
 <BR>【節目名稱】：1圈圈 (周末版)
 <BR>【節目頻道】：881
@@ -142,7 +142,7 @@
 <BR>【檔案名稱】：Quote Chart.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204507351
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjPj （or） http://www.linkbucks.com/Ar0xH
 
 <BR>【節目名稱】：大鐵人
 <BR>【節目頻道】：881
@@ -152,7 +152,7 @@
 <BR>【檔案名稱】：The Big Sportsman.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204507785
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjLe （or） http://www.linkbucks.com/Ar06u
 
 <BR>【節目名稱】：3號螺絲釘
 <BR>【節目頻道】：903
@@ -162,7 +162,7 @@
 <BR>【檔案名稱】：Screw No.3.2017-05-27
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204507623
-<BR>【MediaFire】： （or） 
+<BR>【MediaFire】：http://adf.ly/1mjjOG （or） http://www.linkbucks.com/Ar00O
 <BR>【百度網盤】： （or） 
 <BR>【百度密碼】：
 
@@ -173,7 +173,7 @@
 <BR>【節目時間】：18:30 - 20:00
 <BR>【檔案名稱】：Silver Age Club.2017-05-27
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204512541
 <BR>【MediaFire】： （or） 
 
 <BR>【節目名稱】：西瓜大發 !
@@ -183,7 +183,7 @@
 <BR>【節目時間】：19:00 - 21:00
 <BR>【檔案名稱】：WonderMelon !.2017-05-27
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204512625
 <BR>【MediaFire】： （or） 
 
 <BR>【節目名稱】：雷霆音樂圈
