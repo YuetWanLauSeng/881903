@@ -232,7 +232,7 @@
 <br>【檔案名稱】：Vanila Sky.2017-05-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204419163
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mjJYs （or） http://www.linkbucks.com/Aqs4K
 
 <br>【節目名稱】：書.情.歌
 <br>【節目頻道】：881
@@ -284,7 +284,7 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-05-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204416536
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mjJa2 （or） http://www.linkbucks.com/Aqs3p
 
 <br>【節目名稱】：廣東爆谷
 <br>【節目頻道】：903
@@ -294,7 +294,7 @@
 <br>【檔案名稱】：Canto Pop.2017-05-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204415839
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mjJZE （or） http://www.linkbucks.com/Aqs36
 
 <br>【節目名稱】：一切從音樂開始
 <br>【節目頻道】：881 & 903
@@ -304,4 +304,4 @@
 <br>【檔案名稱】：Begin with Music.2017-05-26
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204415646
-<br>【MediaFire】： （or）
+<br>【MediaFire】：http://adf.ly/1mjJYa （or） http://www.linkbucks.com/Aqs4X
