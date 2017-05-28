@@ -154,7 +154,7 @@
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-05-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204608633
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkRpg （or） http://www.linkbucks.com/Au2Lw
 
 <br>【節目名稱】：國民教育
 <br>【節目頻道】：903
@@ -163,8 +163,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-05-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204610057
+<br>【MediaFire】：http://adf.ly/1mkSc6 （or） http://www.linkbucks.com/Au0Qz
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -175,7 +175,7 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-05-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204609826
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：葛民教育
