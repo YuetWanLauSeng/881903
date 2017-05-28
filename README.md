@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204574038
 <br>【MediaFire】：http://adf.ly/1mkArQ （or） http://www.linkbucks.com/Atz2K
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mkJyA （or） http://www.linkbucks.com/AuNzs
+<br>【百度密碼】：tjy9
 
 <br>【節目名稱】：無定向喪煲病狂
 <br>【節目頻道】：903
@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Binge-Watch.2017-05-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204593188
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkJxI （or） http://www.linkbucks.com/AuN3l
 
 <br>【節目名稱】：兒童適宜
 <br>【節目頻道】：903
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-05-28
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204593803
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkJzA （or） http://www.linkbucks.com/AuNyL
 
 <br>【節目名稱】：Mali Mali Home
 <br>【節目頻道】：903
@@ -99,8 +99,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-05-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204601137
+<br>【MediaFire】：http://adf.ly/1mkLsm （or） http://www.linkbucks.com/AuWhx
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -109,8 +109,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-05-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204600151
+<br>【MediaFire】：http://adf.ly/1mkLSi （or） http://www.linkbucks.com/AuZIX
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -121,8 +121,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-05-28
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204601301
+<br>【MediaFire】：http://adf.ly/1mkLtP （or） http://www.linkbucks.com/AuWga
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
