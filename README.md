@@ -8,7 +8,7 @@
 <br>【檔案名稱】：Share My Song.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204673382
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwlG （or） http://www.linkbucks.com/AwnPk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -32,7 +32,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204671202
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwm2 （or） http://www.linkbucks.com/AwnHj
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -44,7 +44,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204673129
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwhc （or） http://www.linkbucks.com/Awntv
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -56,7 +56,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204671521
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwnK （or） http://www.linkbucks.com/Awm9F
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -68,7 +68,7 @@
 <br>【檔案名稱】：Good Morning King.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204670691
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwfo （or） http://www.linkbucks.com/Awn2X
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204674898
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwkm （or） http://www.linkbucks.com/AwnS5
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204674454
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwni （or） http://www.linkbucks.com/Awm8k
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204675755
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwgj （or） http://www.linkbucks.com/Awnxx
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -112,7 +112,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204676264
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwmx （or） http://www.linkbucks.com/AwnBe
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204676105
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwmX （or） http://www.linkbucks.com/AwnDA
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -134,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204676304
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mkwle （or） http://www.linkbucks.com/AwnNY
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -143,7 +143,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204688556
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
@@ -155,7 +155,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204689849
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
