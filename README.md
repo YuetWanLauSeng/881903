@@ -180,7 +180,7 @@
 <br>【檔案名稱】：Zine.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204703172
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlCU6 （or） http://www.linkbucks.com/AxddH
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,7 +190,7 @@
 <br>【檔案名稱】：Our Way Out.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204702729
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlCS9 （or） http://www.linkbucks.com/Axdm4
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -210,7 +210,7 @@
 <br>【檔案名稱】：Tea For You.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204703083
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlCT9 （or） http://www.linkbucks.com/AxdjN
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -220,7 +220,7 @@
 <br>【檔案名稱】：Sino Stream.2017-05-29
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204703925
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlCTa （or） http://www.linkbucks.com/AxdhO
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -231,7 +231,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204707092
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -241,8 +241,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204706317
+<br>【MediaFire】：http://adf.ly/1mlCSd （or） http://www.linkbucks.com/Axdkq
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -251,8 +251,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204712017
+<br>【MediaFire】：http://adf.ly/1mlD6c （or） http://www.linkbucks.com/Axae2
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
