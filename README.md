@@ -9,8 +9,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204673382
 <br>【MediaFire】：http://adf.ly/1mkwlG （or） http://www.linkbucks.com/AwnPk
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5Tc （or） http://www.linkbucks.com/AxBf1
+<br>【百度密碼】：yixe
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：881
@@ -21,8 +21,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204672872
 <br>【MediaFire】：http://adf.ly/1ml36D （or） http://www.linkbucks.com/AxAjf
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5Sf （or） http://www.linkbucks.com/AxBhU
+<br>【百度密碼】：7fag
 
 <br>【節目名稱】：早安，同學早!
 <br>【節目頻道】：903
@@ -33,8 +33,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204671202
 <br>【MediaFire】：http://adf.ly/1mkwm2 （or） http://www.linkbucks.com/AwnHj
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5S0 （or） http://www.linkbucks.com/AxBkw
+<br>【百度密碼】：wgw3
 
 <br>【節目名稱】：在晴朗的一天出發
 <br>【節目頻道】：903
@@ -45,8 +45,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204673129
 <br>【MediaFire】：http://adf.ly/1mkwhc （or） http://www.linkbucks.com/Awntv
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5RD （or） http://www.linkbucks.com/AxBmJ
+<br>【百度密碼】：ac3f
 
 <br>【節目名稱】：夢熊有召
 <br>【節目頻道】：881
@@ -57,8 +57,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204671521
 <br>【MediaFire】：http://adf.ly/1mkwnK （or） http://www.linkbucks.com/Awm9F
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5QG （or） http://www.linkbucks.com/AxBoI
+<br>【百度密碼】：48aa
 
 <br>【節目名稱】：早霸王
 <br>【節目頻道】：903
@@ -69,8 +69,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204670691
 <br>【MediaFire】：http://adf.ly/1mkwfo （or） http://www.linkbucks.com/Awn2X
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5Os （or） http://www.linkbucks.com/AxBqz
+<br>【百度密碼】：2byq
 
 <br>【節目名稱】：1圈圈
 <br>【節目頻道】：881
@@ -91,8 +91,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204674454
 <br>【MediaFire】：http://adf.ly/1mkwni （or） http://www.linkbucks.com/Awm8k
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5NO （or） http://www.linkbucks.com/AxBvi
+<br>【百度密碼】：wrij
 
 <br>【節目名稱】：叱咤樂壇
 <br>【節目頻道】：903
@@ -123,8 +123,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204676105
 <br>【MediaFire】：http://adf.ly/1mkwmX （or） http://www.linkbucks.com/AwnDA
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5ME （or） http://www.linkbucks.com/AxByy
+<br>【百度密碼】：3k2v
 
 <br>【節目名稱】：你好嘢
 <br>【節目頻道】：903
@@ -145,8 +145,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204688556
 <br>【MediaFire】：http://adf.ly/1ml3lj （or） http://www.linkbucks.com/Aw8n0
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5Ko （or） http://www.linkbucks.com/AxB4g
+<br>【百度密碼】：pnpi
 
 <br>【節目名稱】：口水多過浪花
 <br>【節目頻道】：903
@@ -157,8 +157,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204689849
 <br>【MediaFire】：http://adf.ly/1ml39U （or） http://www.linkbucks.com/AxAii
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5Ar （or） http://www.linkbucks.com/AxCTW
+<br>【百度密碼】：9j5v
 
 <br>【節目名稱】：毒檸王國
 <br>【節目頻道】：903
@@ -169,8 +169,8 @@
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204687028
 <br>【MediaFire】：http://adf.ly/1ml3oY （or） http://www.linkbucks.com/Aw8UO
-<br>【百度網盤】： （or） 
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1ml5La （or） http://www.linkbucks.com/AxB2K
+<br>【百度密碼】：bugg
 
 <br>【節目名稱】：集雜志
 <br>【節目頻道】：903
@@ -179,7 +179,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204703172
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -189,7 +189,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204702729
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
@@ -199,7 +199,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204702021
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：杏林茶
@@ -209,7 +209,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-05-29
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204703083
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：串
