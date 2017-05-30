@@ -168,7 +168,7 @@
 <br>【檔案名稱】：Dokureioukoku.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204804267
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mluFJ （or） http://www.linkbucks.com/BMQID
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -180,7 +180,7 @@
 <br>【檔案名稱】：Zine.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204796435
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mluEO （or） http://www.linkbucks.com/BMQJ0
 
 <br>【節目名稱】：人民大道中
 <br>【節目頻道】：881
@@ -190,7 +190,7 @@
 <br>【檔案名稱】：Our Way Out.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204796260
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mluE8 （or） http://www.linkbucks.com/BMQLi
 
 <br>【節目名稱】：生活日常
 <br>【節目頻道】：903
@@ -200,7 +200,7 @@
 <br>【檔案名稱】：My Daily Life.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204801953
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mluOb （or） http://www.linkbucks.com/BMPnU
 
 <br>【節目名稱】：杏林茶
 <br>【節目頻道】：881
@@ -210,7 +210,7 @@
 <br>【檔案名稱】：Tea For You.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204803114
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mluDZ （or） http://www.linkbucks.com/BMQNK
 
 <br>【節目名稱】：串
 <br>【節目頻道】：881
@@ -220,7 +220,7 @@
 <br>【檔案名稱】：Sino Stream.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204804661
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mluD5 （or） http://www.linkbucks.com/BMQOD
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -231,7 +231,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-05-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204808551
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：書.情.歌
@@ -240,9 +240,17 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-05-30
+<br>【節目暫停】：改播『再創生機』
+
+<br>【節目名稱】：再創生機
+<br>【節目頻道】：881
+<br>【節目日期】：2017-05-30
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-05-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204807457
+<br>【MediaFire】：http://adf.ly/1mluBt （or） http://www.linkbucks.com/BMQRt
 
 <br>【節目名稱】：光明頂
 <br>【節目頻道】：881
@@ -251,8 +259,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-05-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204813720
+<br>【MediaFire】：http://adf.ly/1mluRj （or） http://www.linkbucks.com/BMPVa
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
