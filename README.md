@@ -8,7 +8,7 @@
 <br>【檔案名稱】：Share My Song.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204751171
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlbEo （or） http://www.linkbucks.com/BLQdJ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -32,7 +32,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204747928
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlbFG （or） http://www.linkbucks.com/BLQbk
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -44,7 +44,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204750471
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlb0D （or） http://www.linkbucks.com/BLQkL
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -56,7 +56,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204748372
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlbFl （or） http://www.linkbucks.com/BLQZl
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -68,7 +68,7 @@
 <br>【檔案名稱】：Good Morning King.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204747510
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlaZB （or） http://www.linkbucks.com/BLlT7
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204756794
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlbDq （or） http://www.linkbucks.com/BLQjF
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204756313
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlbEN （or） http://www.linkbucks.com/BLQd7
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -101,7 +101,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-05-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204763099
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -111,7 +111,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-05-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204763280
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人生交叉盤
