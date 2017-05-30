@@ -20,7 +20,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204749945
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlnEM （or） http://www.linkbucks.com/AzwzZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -102,7 +102,7 @@
 <br>【檔案名稱】：903 Music.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204763099
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlnFB （or） http://www.linkbucks.com/AzwyD
 
 <br>【節目名稱】：一點叮一叮
 <br>【節目頻道】：881
@@ -112,7 +112,7 @@
 <br>【檔案名稱】：Lunch Special.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204763280
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlnDq （or） http://www.linkbucks.com/Azwzv
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -122,7 +122,7 @@
 <br>【檔案名稱】：Crosstrade.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204789058
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlnDq （or） http://www.linkbucks.com/AzwxW
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -134,7 +134,7 @@
 <br>【檔案名稱】：You Are The Best.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204790475
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mlnDT （or） http://www.linkbucks.com/Azw1A
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -144,7 +144,7 @@
 <br>【檔案名稱】：The Fun Box.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204789604
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mln8d （or） http://www.linkbucks.com/AzxB1
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -156,7 +156,7 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-30
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204790200
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mln7x （or） http://www.linkbucks.com/AzxEC
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -179,7 +179,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204796435
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
@@ -189,7 +189,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-05-30
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204796260
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：生活日常
