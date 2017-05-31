@@ -8,7 +8,7 @@
 <br>【檔案名稱】：Share My Song.2017-05-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204902069
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mmL9i （or） http://www.linkbucks.com/A2RQF
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -20,7 +20,7 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-05-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204900727
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mmL8G （or） http://www.linkbucks.com/A2Rgl
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -32,7 +32,7 @@
 <br>【檔案名稱】：Hey, Learners!.2017-05-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204899018
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mmLAE （or） http://www.linkbucks.com/A2RMI
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -44,7 +44,7 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-05-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204901460
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mmL9M （or） http://www.linkbucks.com/A2RVG
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -56,7 +56,7 @@
 <br>【檔案名稱】：Oh! Master Bear.2017-05-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204899347
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mmLAX （or） http://www.linkbucks.com/A2RI7
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -68,7 +68,7 @@
 <br>【檔案名稱】：Good Morning King.2017-05-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204898287
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mmL8v （or） http://www.linkbucks.com/A2RaK
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -79,7 +79,7 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204916696
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：十八樓C座
@@ -89,7 +89,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204916002
 <br>【MediaFire】： （or） 
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
