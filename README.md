@@ -80,7 +80,7 @@
 <br>【檔案名稱】：Circles.2017-05-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204916696
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mmURB （or） http://www.linkbucks.com/BGAz9
 
 <br>【節目名稱】：十八樓C座
 <br>【節目頻道】：881
@@ -90,7 +90,7 @@
 <br>【檔案名稱】：18F Block C.2017-05-31
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204916002
-<br>【MediaFire】： （or） 
+<br>【MediaFire】：http://adf.ly/1mmUS1 （or） http://www.linkbucks.com/BGAyZ
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -101,7 +101,7 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204939633
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：一點叮一叮
@@ -111,8 +111,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204940203
+<br>【MediaFire】：http://adf.ly/1mmUQc （or） http://www.linkbucks.com/BGA2H
 
 <br>【節目名稱】：人生交叉盤
 <br>【節目頻道】：881
@@ -121,8 +121,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204939751
+<br>【MediaFire】：http://adf.ly/1mmUPn （or） http://www.linkbucks.com/BGA3S
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -133,8 +133,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204942693
+<br>【MediaFire】：http://adf.ly/1mmUOI （or） http://www.linkbucks.com/BKjCc
 
 <br>【節目名稱】：大玩派
 <br>【節目頻道】：881
@@ -143,8 +143,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204941196
+<br>【MediaFire】：http://adf.ly/1mmUTF （or） http://www.linkbucks.com/BGAvy
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -155,8 +155,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204942025
+<br>【MediaFire】：http://adf.ly/1mmUTx （or） http://www.linkbucks.com/BGAuO
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】： （or） 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204939854
+<br>【MediaFire】：http://adf.ly/1mmUOp （or） http://www.linkbucks.com/BKi95
 <br>【百度網盤】： （or） 
 <br>【百度密碼】：
 
@@ -179,7 +179,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-05-31
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-204950326
 <br>【MediaFire】： （or） 
 
 <br>【節目名稱】：人民大道中
