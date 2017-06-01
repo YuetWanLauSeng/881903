@@ -1,4 +1,6 @@
-<br>【節目匯總】：https://github.com/YuetWanLauSeng/881903
+<font size=12>本人創建了一個電台類別論壇，分設節目下載及節目討論等板塊，歡迎各位蒞臨</font>
+http://www.yuetwanlauseng.com
+
 
 <br>【節目名稱】：有誰共鳴
 <br>【節目頻道】：903
