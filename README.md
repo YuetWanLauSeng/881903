@@ -1,5 +1,5 @@
-<font size=16>本人創建了一個電台類別論壇，分設節目下載及節目討論等板塊，歡迎各位蒞臨</font>
-<br>【http://www.yuetwanlauseng.com
+<font size=20>本人創建了一個電台類別論壇，分設節目下載及節目討論等板塊，歡迎各位蒞臨</font>
+<br>http://www.yuetwanlauseng.com
 
 
 <br>【節目名稱】：有誰共鳴
