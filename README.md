@@ -192,8 +192,8 @@
 <br>【檔案名稱】：Zine.2017-06-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205142185
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnOnO
+<br>【MediaFire】：http://www.linkbucks.com/A8khC
 
 <br>【節目名稱】：人民大道中.2017-06-01
 <br>【節目頻道】：881
@@ -202,8 +202,8 @@
 <br>【檔案名稱】：Our Way Out.2017-06-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205141711
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnOlB
+<br>【MediaFire】：http://www.linkbucks.com/A8kmB
 
 <br>【節目名稱】：生活日常.2017-06-01
 <br>【節目頻道】：903
@@ -212,8 +212,8 @@
 <br>【檔案名稱】：My Daily Life.2017-06-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205141274
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnOks
+<br>【MediaFire】：http://www.linkbucks.com/A8kmn
 
 <br>【節目名稱】：杏林茶.2017-06-01
 <br>【節目頻道】：881
@@ -222,8 +222,8 @@
 <br>【檔案名稱】：Tea For You.2017-06-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205141971
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnOmk
+<br>【MediaFire】：http://www.linkbucks.com/A8kif
 
 <br>【節目名稱】：串.2017-06-01
 <br>【節目頻道】：881
@@ -232,8 +232,8 @@
 <br>【檔案名稱】：Sino Stream.2017-06-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205144800
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnOm6
+<br>【MediaFire】：http://www.linkbucks.com/A8kjS
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -244,19 +244,26 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-01
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205149512
+<br>【MediaFire】：http://adf.ly/1mnOlM
+<br>【MediaFire】：http://www.linkbucks.com/A8kk2
 
 <br>【節目名稱】：書.情.歌.2017-06-01
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-06-01
+<br>【節目暫停】：改播『夾心家庭』
+
+<br>【節目名稱】：夾心家庭.2017-06-01
+<br>【節目頻道】：881
+<br>【節目主持】：馮志豐
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Sandwich Family.2017-06-01
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205148564
+<br>【MediaFire】：http://adf.ly/1mnOle
+<br>【MediaFire】：http://www.linkbucks.com/A8kkH
 
 <br>【節目名稱】：光明頂.2017-06-01
 <br>【節目頻道】：881
@@ -264,9 +271,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-01
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205153360
+<br>【MediaFire】：http://adf.ly/1mnOkV
+<br>【MediaFire】：http://www.linkbucks.com/A8knX
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
