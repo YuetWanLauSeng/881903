@@ -22,8 +22,8 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-06-01
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205047969
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnJPj
+<br>【MediaFire】：http://www.linkbucks.com/A8Yx6
 <br>【百度網盤】：http://adf.ly/1mnHni
 <br>【百度網盤】：http://www.linkbucks.com/A8WQn
 <br>【百度密碼】：6h38
@@ -231,7 +231,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-01
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205144800
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
