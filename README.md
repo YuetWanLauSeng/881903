@@ -110,8 +110,8 @@
 <br>【檔案名稱】：903 Music.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205251698
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnt7R
+<br>【MediaFire】：http://www.linkbucks.com/BAQVW
 
 <br>【節目名稱】：一點叮一叮.2017-06-02
 <br>【節目頻道】：881
@@ -120,8 +120,8 @@
 <br>【檔案名稱】：Lunch Special.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205252230
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnt9G
+<br>【MediaFire】：http://www.linkbucks.com/BAQT3
 
 <br>【節目名稱】：人生交叉盤.2017-06-02
 <br>【節目頻道】：881
@@ -130,8 +130,8 @@
 <br>【檔案名稱】：Crosstrade.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205251883
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mntA3
+<br>【MediaFire】：http://www.linkbucks.com/BAQTL
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -143,8 +143,8 @@
 <br>【檔案名稱】：You Are The Best.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205251698
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnt8U
+<br>【MediaFire】：http://www.linkbucks.com/BAQUg
 
 <br>【節目名稱】：大玩派.2017-06-02
 <br>【節目頻道】：881
@@ -153,8 +153,8 @@
 <br>【檔案名稱】：The Fun Box.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205261629
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnt71
+<br>【MediaFire】：http://www.linkbucks.com/BAQVy
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -166,8 +166,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205262621
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mnt6X
+<br>【MediaFire】：http://www.linkbucks.com/BAQW5
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -178,9 +178,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205273132
+<br>【MediaFire】：http://adf.ly/1mntN1
+<br>【MediaFire】：http://www.linkbucks.com/BAPr6
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
