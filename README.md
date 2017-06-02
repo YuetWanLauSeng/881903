@@ -192,8 +192,8 @@
 <br>【檔案名稱】：Zine.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205281906
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mo0cd
+<br>【MediaFire】：http://www.linkbucks.com/BArWM
 
 <br>【節目名稱】：人民大道中.2017-06-02
 <br>【節目頻道】：881
@@ -202,8 +202,8 @@
 <br>【檔案名稱】：Our Way Out.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205281739
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mo0cF
+<br>【MediaFire】：http://www.linkbucks.com/BArZd
 
 <br>【節目名稱】：生活日常.2017-06-02
 <br>【節目頻道】：903
@@ -212,8 +212,8 @@
 <br>【檔案名稱】：My Daily Life.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205281475
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mo0by
+<br>【MediaFire】：http://www.linkbucks.com/BArao
 
 <br>【節目名稱】：杏林茶.2017-06-02
 <br>【節目頻道】：881
@@ -222,8 +222,8 @@
 <br>【檔案名稱】：Tea For You.2017-06-02
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205282441
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mo0dA
+<br>【MediaFire】：http://www.linkbucks.com/BArUo
 
 <br>【節目名稱】：串.2017-06-02
 <br>【節目頻道】：881
@@ -231,12 +231,12 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205286127
+<br>【MediaFire】：http://adf.ly/1mo0bN
+<br>【MediaFire】：http://www.linkbucks.com/BArdM
+<br>【百度網盤】：http://adf.ly/1mo0dj
+<br>【百度網盤】：http://www.linkbucks.com/BArRj
+<br>【百度密碼】：jh15
 
 <br>【節目名稱】：雲妮鍾情.2017-06-02
 <br>【節目頻道】：903
