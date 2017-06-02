@@ -244,7 +244,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205288679
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -261,7 +261,7 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-06-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205288434
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -271,9 +271,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-02
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205288901
+<br>【MediaFire】：http://adf.ly/1mo3tv
+<br>【MediaFire】：http://www.linkbucks.com/BL1UL
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
