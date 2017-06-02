@@ -2,6 +2,7 @@
 ### 歡迎各位蒞臨
 ### http://www.yuetwanlauseng.com
 
+
 <br>【節目名稱】：有誰共鳴.2017-06-01
 <br>【節目頻道】：903
 <br>【節目主持】：Wasabi | 嘉賓主持
@@ -284,7 +285,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-06-01
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205168158
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -297,7 +298,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-01
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205167848
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -307,7 +308,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-06-01
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205164188
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -317,6 +318,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-01
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205164090
 <br>【MediaFire】：
 <br>【MediaFire】：
