@@ -151,9 +151,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205358726
+<br>【MediaFire】：http://adf.ly/1mof2i
+<br>【MediaFire】：http://www.linkbucks.com/BDL1k
 
 <br>【節目名稱】：3號螺絲釘.2017-06-03
 <br>【節目頻道】：903
@@ -161,12 +161,12 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205358389
+<br>【MediaFire】：http://adf.ly/1mof1p
+<br>【MediaFire】：http://www.linkbucks.com/BDL3J
+<br>【百度網盤】：http://adf.ly/1mofR2
+<br>【百度網盤】：http://www.linkbucks.com/BDKSs
+<br>【百度密碼】：k54g
 
 <br>【節目名稱】：第三齡接觸.2017-06-03
 <br>【節目頻道】：881
@@ -174,7 +174,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205367663
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -184,7 +184,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205368272
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -194,7 +194,7 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205371659
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -204,7 +204,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205373195
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -222,7 +222,7 @@
 <br>【節目頻道】：903
 <br>【節目日期】：2017-06-03
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：江美儀
 <br>【檔案名稱】：The Playtoy Mansion.2017-06-03
 <br>【檔案音質】：高清
 <br>【城通網盤】：
