@@ -71,9 +71,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205472310
 <br>【MediaFire】：http://adf.ly/1mpMIU
 <br>【MediaFire】：http://www.linkbucks.com/BFu2h
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mpNnI
+<br>【百度網盤】：http://www.linkbucks.com/BHksR
+<br>【百度密碼】：ju9c
 
 <br>【節目名稱】：無定向喪煲病狂.2017-06-04
 <br>【節目頻道】：903
@@ -92,8 +92,8 @@
 <br>【檔案名稱】：Kiss Kiss Kids.2017-06-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205510933
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mpNP8
+<br>【MediaFire】：http://www.linkbucks.com/BJb6b
 
 <br>【節目名稱】：Mali Mali Home.2017-06-04
 <br>【節目頻道】：903
@@ -101,9 +101,9 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205539058
+<br>【MediaFire】：http://adf.ly/1mpPw0
+<br>【MediaFire】：http://www.linkbucks.com/BFygv
 
 <br>【節目名稱】：串.2017-06-04
 <br>【節目頻道】：881
