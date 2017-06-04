@@ -111,12 +111,12 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205558873
+<br>【MediaFire】：http://adf.ly/1mpRCs
+<br>【MediaFire】：http://www.linkbucks.com/BF8Oa
+<br>【百度網盤】：http://adf.ly/1mpRuq
+<br>【百度網盤】：http://www.linkbucks.com/BGUMD
+<br>【百度密碼】：bdpq
 
 <br>【節目名稱】：讀懂中國.2017-06-04
 <br>【節目頻道】：881
@@ -124,12 +124,12 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205561562
+<br>【MediaFire】：http://adf.ly/1mpRPZ
+<br>【MediaFire】：http://www.linkbucks.com/BGV4Q
+<br>【百度網盤】：http://adf.ly/1mpRvt
+<br>【百度網盤】：http://www.linkbucks.com/BGUI1
+<br>【百度密碼】：tkiq
 
 <br>【節目名稱】：國語類.2017-06-04
 <br>【節目頻道】：903
