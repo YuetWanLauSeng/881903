@@ -137,7 +137,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205606064
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -147,7 +147,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205606321
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -157,7 +157,7 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205606557
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -167,7 +167,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205611417
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -180,7 +180,7 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205610967
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -190,7 +190,7 @@
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205610753
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
