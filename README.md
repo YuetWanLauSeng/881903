@@ -214,7 +214,7 @@
 <br>【節目主持】：時美真
 <br>【檔案名稱】：Education Forum.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205394563
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -225,7 +225,7 @@
 <br>【訪問嘉賓】：江美儀
 <br>【檔案名稱】：The Playtoy Mansion.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205395145
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -238,7 +238,7 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205394920
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -248,7 +248,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-06-03
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205394994
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -264,3 +264,4 @@
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
+
