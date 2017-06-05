@@ -86,9 +86,9 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-06-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205696638
+<br>【MediaFire】：http://adf.ly/1mq4g6
+<br>【MediaFire】：http://www.linkbucks.com/BJ2jG
 
 <br>【節目名稱】：十八樓C座.2017-06-05
 <br>【節目頻道】：881
@@ -96,9 +96,9 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-06-05
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205696301
+<br>【MediaFire】：http://adf.ly/1mq4gt
+<br>【MediaFire】：http://www.linkbucks.com/BJ2g5
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
