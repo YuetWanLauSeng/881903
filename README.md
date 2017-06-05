@@ -2,6 +2,7 @@
 ### 歡迎各位蒞臨
 ### http://www.yuetwanlauseng.com
 
+
 <br>【節目名稱】：書.情.歌.2017-06-04
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
@@ -138,8 +139,8 @@
 <br>【檔案名稱】：Bo Po Mo Fo.2017-06-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205606064
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mprbc
+<br>【MediaFire】：http://www.linkbucks.com/BH5Kc
 
 <br>【節目名稱】：泡菜粉絲煲.2017-06-04
 <br>【節目頻道】：881
@@ -148,8 +149,8 @@
 <br>【檔案名稱】：Kimchi Fans Club.2017-06-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205606321
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mprer
+<br>【MediaFire】：http://www.linkbucks.com/BH4yg
 
 <br>【節目名稱】：細路強.2017-06-04
 <br>【節目頻道】：881
@@ -158,8 +159,8 @@
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-06-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205606557
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mpreJ
+<br>【MediaFire】：http://www.linkbucks.com/BH40I
 
 <br>【節目名稱】：國民教育.2017-06-04
 <br>【節目頻道】：903
@@ -168,8 +169,8 @@
 <br>【檔案名稱】：Time's Up Pen's Down.2017-06-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205611417
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mprcs
+<br>【MediaFire】：http://www.linkbucks.com/BH5Bg
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -181,8 +182,8 @@
 <br>【檔案名稱】：Readers for Riders.2017-06-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205610967
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mprcK
+<br>【MediaFire】：http://www.linkbucks.com/BH5GG
 
 <br>【節目名稱】：葛民教育.2017-06-04
 <br>【節目頻道】：881
@@ -191,8 +192,8 @@
 <br>【檔案名稱】：Kot’s ology.2017-06-04
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205610753
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mprdk
+<br>【MediaFire】：http://www.linkbucks.com/BH45H
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -203,7 +204,7 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205623960
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -213,9 +214,9 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205623650
+<br>【MediaFire】：http://adf.ly/1mprb9
+<br>【MediaFire】：http://www.linkbucks.com/BH5Ni
 
 <br>【節目名稱】：寫生活.2017-06-04
 <br>【節目頻道】：881
@@ -223,7 +224,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205623260
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -233,6 +234,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-04
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205623591
 <br>【MediaFire】：
 <br>【MediaFire】：
