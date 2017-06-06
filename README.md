@@ -22,8 +22,8 @@
 <BR>【檔案名稱】：On a Clear Day（881）.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205817180
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mqwNI
+<BR>【MediaFire】：http://www.linkbucks.com/BPZaQ
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -48,8 +48,8 @@
 <BR>【檔案名稱】：On a Clear Day（903）.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205818227
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mqwNn
+<BR>【MediaFire】：http://www.linkbucks.com/BPZU1
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -61,8 +61,8 @@
 <BR>【檔案名稱】：Oh! Master Bear.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205814451
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mqwOL
+<BR>【MediaFire】：http://www.linkbucks.com/BP1BC
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -109,7 +109,7 @@
 <BR>【節目時間】：12:00 - 14:00
 <BR>【檔案名稱】：903 Music.2017-06-06
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835360
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 <BR>【百度網盤】：
@@ -122,7 +122,7 @@
 <BR>【節目時間】：13:00 - 14:00
 <BR>【檔案名稱】：Lunch Special.2017-06-06
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835584
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 
@@ -132,7 +132,7 @@
 <BR>【節目時間】：14:00 - 15:00
 <BR>【檔案名稱】：Crosstrade.2017-06-06
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835480
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 <BR>【百度網盤】：
@@ -145,7 +145,7 @@
 <BR>【節目時間】：14:00 - 15:00
 <BR>【檔案名稱】：You Are The Best.2017-06-06
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835702
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 
