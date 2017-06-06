@@ -9,8 +9,8 @@
 <BR>【檔案名稱】：Share My Song.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205818698
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mqwWu
+<BR>【MediaFire】：http://www.linkbucks.com/BP0pr
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -35,8 +35,8 @@
 <BR>【檔案名稱】：Hey, Learners.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205809750
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mqwXT
+<BR>【MediaFire】：http://www.linkbucks.com/BPyo2
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -74,8 +74,8 @@
 <BR>【檔案名稱】：Good Morning King.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205809506
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mqwXr
+<BR>【MediaFire】：http://www.linkbucks.com/BPykS
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -155,7 +155,7 @@
 <BR>【節目時間】：15:00 - 17:00
 <BR>【檔案名稱】：The Fun Box.2017-06-06
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835957
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 <BR>【百度網盤】：
@@ -168,7 +168,7 @@
 <BR>【節目時間】：15:00 - 17:00
 <BR>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-06
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205836190
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 <BR>【百度網盤】：
