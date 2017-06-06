@@ -87,8 +87,8 @@
 <BR>【檔案名稱】：Circles.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835095
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr2FC
+<BR>【MediaFire】：http://www.linkbucks.com/BQK4b
 
 <BR>【節目名稱】：十八樓C座.2017-06-06
 <BR>【節目頻道】：881
@@ -97,8 +97,8 @@
 <BR>【檔案名稱】：18F Block C.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205834915
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr2It
+<BR>【MediaFire】：http://www.linkbucks.com/BQKsw
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -110,8 +110,8 @@
 <BR>【檔案名稱】：903 Music.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835360
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr27B
+<BR>【MediaFire】：http://www.linkbucks.com/BQLi3
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -123,8 +123,8 @@
 <BR>【檔案名稱】：Lunch Special.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835584
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr2Hu
+<BR>【MediaFire】：http://www.linkbucks.com/BQKtE
 
 <BR>【節目名稱】：人生交叉盤.2017-06-06
 <BR>【節目頻道】：881
@@ -133,8 +133,8 @@
 <BR>【檔案名稱】：Crosstrade.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835480
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr2GZ
+<BR>【MediaFire】：http://www.linkbucks.com/BQKx4
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -146,8 +146,8 @@
 <BR>【檔案名稱】：You Are The Best.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835702
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr2GJ
+<BR>【MediaFire】：http://www.linkbucks.com/BQK1p
 
 <BR>【節目名稱】：大玩派.2017-06-06
 <BR>【節目頻道】：881
@@ -156,8 +156,8 @@
 <BR>【檔案名稱】：The Fun Box.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205835957
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr2E4
+<BR>【MediaFire】：http://www.linkbucks.com/BQLEP
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -169,8 +169,8 @@
 <BR>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205836190
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr2AP
+<BR>【MediaFire】：http://www.linkbucks.com/BQLT5
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -189,8 +189,8 @@
 <BR>【檔案名稱】：Mali Has A Little Lamb.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205840222
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr2Gq
+<BR>【MediaFire】：http://www.linkbucks.com/BQKwO
 
 <BR>【節目名稱】：集雜志.2017-06-06
 <BR>【節目頻道】：903
