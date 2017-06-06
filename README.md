@@ -199,8 +199,8 @@
 <BR>【檔案名稱】：Zine.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205850128
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr7Ca
+<BR>【MediaFire】：http://www.linkbucks.com/BQSMp
 
 <BR>【節目名稱】：人民大道中.2017-06-06
 <BR>【節目頻道】：881
@@ -209,8 +209,8 @@
 <BR>【檔案名稱】：Our Way Out.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205850834
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr7Bc
+<BR>【MediaFire】：http://www.linkbucks.com/BQSPy
 
 <BR>【節目名稱】：生活日常.2017-06-06
 <BR>【節目頻道】：903
@@ -219,8 +219,8 @@
 <BR>【檔案名稱】：My Daily Life.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205850545
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr7Ay
+<BR>【MediaFire】：http://www.linkbucks.com/BQSQN
 
 <BR>【節目名稱】：杏林茶.2017-06-06
 <BR>【節目頻道】：881
@@ -229,8 +229,8 @@
 <BR>【檔案名稱】：Tea For You.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205849743
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr7Ct
+<BR>【MediaFire】：http://www.linkbucks.com/BQSLr
 
 <BR>【節目名稱】：串.2017-06-06
 <BR>【節目頻道】：881
@@ -239,8 +239,8 @@
 <BR>【檔案名稱】：Sino Stream.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205851079
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1mr7FO
+<BR>【MediaFire】：http://www.linkbucks.com/BQevT
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -260,6 +260,13 @@
 <BR>【節目主持】：葉宇澄
 <BR>【節目時間】：22:30 - 23:00
 <BR>【檔案名稱】：Reading Time.2017-06-06
+<BR>【節目暫停】：改播『再創生機』
+
+<BR>【節目名稱】：再創生機.2017-06-06
+<BR>【節目頻道】：881
+<BR>【節目主持】：熊書頤
+<BR>【節目時間】：22:30 - 23:00
+<BR>【檔案名稱】：Hair Again.2017-06-06
 <BR>【檔案音質】：高清
 <BR>【城通網盤】：
 <BR>【MediaFire】：
@@ -271,9 +278,9 @@
 <BR>【節目時間】：23:00 - 00:00
 <BR>【檔案名稱】：Summit.2017-06-06
 <BR>【檔案音質】：高清
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205858594
+<BR>【MediaFire】：http://adf.ly/1mr7F8
+<BR>【MediaFire】：http://www.linkbucks.com/BQex3
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
