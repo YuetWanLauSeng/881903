@@ -97,8 +97,8 @@
 <br>【檔案名稱】：18F Block C.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206069128
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrq8Q
+<br>【MediaFire】：http://www.linkbucks.com/BSoOC
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -199,8 +199,8 @@
 <br>【檔案名稱】：Zine.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206086339
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mruyG
+<br>【MediaFire】：http://www.linkbucks.com/BS8aT
 
 <br>【節目名稱】：人民大道中.2017-06-07
 <br>【節目頻道】：881
@@ -239,7 +239,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206107921
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -256,9 +256,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206103650
+<br>【MediaFire】：http://adf.ly/1mrv68
+<br>【MediaFire】：http://www.linkbucks.com/BS73r
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
