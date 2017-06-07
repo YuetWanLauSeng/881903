@@ -252,8 +252,8 @@
 <br>【檔案名稱】：Vanila Sky.2017-06-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205915079
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrQVi
+<br>【MediaFire】：http://www.linkbucks.com/BiisJ
 
 <br>【節目名稱】：書.情.歌.2017-06-06
 <br>【節目頻道】：881
@@ -269,8 +269,8 @@
 <br>【檔案名稱】：Hair Again.2017-06-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205914286
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrQVE
+<br>【MediaFire】：http://www.linkbucks.com/Biiul
 
 <br>【節目名稱】：光明頂.2017-06-06
 <br>【節目頻道】：881
@@ -292,8 +292,8 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-06-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205914887
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrQUr
+<br>【MediaFire】：http://www.linkbucks.com/BiizO
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -305,8 +305,8 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205914133
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrQUH
+<br>【MediaFire】：http://www.linkbucks.com/Bii0T
 
 <br>【節目名稱】：廣東爆谷.2017-06-06
 <br>【節目頻道】：903
@@ -315,8 +315,8 @@
 <br>【檔案名稱】：Canto Pop.2017-06-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205906383
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrQTq
+<br>【MediaFire】：http://www.linkbucks.com/Bii25
 
 <br>【節目名稱】：一切從音樂開始.2017-06-06
 <br>【節目頻道】：881 & 903
@@ -325,5 +325,5 @@
 <br>【檔案名稱】：Begin with Music.2017-06-06
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205903538
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrQTJ
+<br>【MediaFire】：http://www.linkbucks.com/Bii6k
