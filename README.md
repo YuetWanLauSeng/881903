@@ -188,7 +188,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Mali Has A Little Lamb.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206073626
 <br>【MediaFire】：
 <br>【MediaFire】：
 
