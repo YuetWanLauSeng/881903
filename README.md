@@ -87,8 +87,8 @@
 <br>【檔案名稱】：Circles.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206069638
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrpqw
+<br>【MediaFire】：http://www.linkbucks.com/BSpeD
 
 <br>【節目名稱】：十八樓C座.2017-06-07
 <br>【節目頻道】：881
@@ -110,8 +110,8 @@
 <br>【檔案名稱】：903 Music.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206070565
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrpy3
+<br>【MediaFire】：http://www.linkbucks.com/BSo71
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -123,8 +123,8 @@
 <br>【檔案名稱】：Lunch Special.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206071288
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrptn
+<br>【MediaFire】：http://www.linkbucks.com/BSpVI
 
 <br>【節目名稱】：人生交叉盤.2017-06-07
 <br>【節目頻道】：881
@@ -133,8 +133,8 @@
 <br>【檔案名稱】：Crosstrade.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206070916
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrpuX
+<br>【MediaFire】：http://www.linkbucks.com/BSpIj
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -146,8 +146,8 @@
 <br>【檔案名稱】：You Are The Best.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206071677
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrprn
+<br>【MediaFire】：http://www.linkbucks.com/BSpcA
 
 <br>【節目名稱】：大玩派.2017-06-07
 <br>【節目頻道】：881
@@ -156,8 +156,8 @@
 <br>【檔案名稱】：The Fun Box.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206072687
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrpqG
+<br>【MediaFire】：http://www.linkbucks.com/BSpfk
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -169,8 +169,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206073340
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrpp3
+<br>【MediaFire】：http://www.linkbucks.com/BSplv
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -189,8 +189,8 @@
 <br>【檔案名稱】：Mali Has A Little Lamb.2017-06-07
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206073626
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mrpt2
+<br>【MediaFire】：http://www.linkbucks.com/BSpWe
 
 <br>【節目名稱】：集雜志.2017-06-07
 <br>【節目頻道】：903
@@ -198,7 +198,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206086339
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -215,7 +215,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206084401
 <br>【MediaFire】：
 <br>【MediaFire】：
 
