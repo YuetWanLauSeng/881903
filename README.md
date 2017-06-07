@@ -11,9 +11,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206003407
 <br>【MediaFire】：http://adf.ly/1mrYPa
 <br>【MediaFire】：http://www.linkbucks.com/BR9Yj
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mrmPn
+<br>【百度網盤】：http://www.linkbucks.com/BSacL
+<br>【百度密碼】：uhkf
 
 <br>【節目名稱】：在晴朗的一天出發（881）.2017-06-07
 <br>【節目頻道】：881
@@ -24,9 +24,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206001672
 <br>【MediaFire】：http://adf.ly/1mrYjO
 <br>【MediaFire】：http://www.linkbucks.com/BR7oq
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mrmRz
+<br>【百度網盤】：http://www.linkbucks.com/BSaSP
+<br>【百度密碼】：4yuf
 
 <br>【節目名稱】：早安，同學早.2017-06-07
 <br>【節目頻道】：903
@@ -37,9 +37,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205999533
 <br>【MediaFire】：http://adf.ly/1mrYQ6
 <br>【MediaFire】：http://www.linkbucks.com/BR9Rs
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mrmSl
+<br>【百度網盤】：http://www.linkbucks.com/BSaKS
+<br>【百度密碼】：p8bx
 
 <br>【節目名稱】：在晴朗的一天出發（903）.2017-06-07
 <br>【節目頻道】：903
@@ -50,9 +50,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206002773
 <br>【MediaFire】：http://adf.ly/1mrYOq
 <br>【MediaFire】：http://www.linkbucks.com/BR9b8
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mrmTU
+<br>【百度網盤】：http://www.linkbucks.com/BSaE5
+<br>【百度密碼】：r3eb
 
 <br>【節目名稱】：夢熊有召.2017-06-07
 <br>【節目頻道】：881
@@ -63,9 +63,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205999819
 <br>【MediaFire】：http://adf.ly/1mrYQn
 <br>【MediaFire】：http://www.linkbucks.com/BR9MP
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mrmUc
+<br>【百度網盤】：http://www.linkbucks.com/BSaB0
+<br>【百度密碼】：eqix
 
 <br>【節目名稱】：早霸王.2017-06-07
 <br>【節目頻道】：903
@@ -76,9 +76,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-205999145
 <br>【MediaFire】：http://adf.ly/1mrYON
 <br>【MediaFire】：http://www.linkbucks.com/BR9g8
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mrmVX
+<br>【百度網盤】：http://www.linkbucks.com/BSZ9O
+<br>【百度密碼】：cmva
 
 <br>【節目名稱】：1圈圈.2017-06-07
 <br>【節目頻道】：881
@@ -155,7 +155,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206072687
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -168,7 +168,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206073340
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
