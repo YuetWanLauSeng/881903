@@ -269,9 +269,9 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206161807
+<br>【MediaFire】：http://adf.ly/1msAFG
+<br>【MediaFire】：http://www.linkbucks.com/BTvbI
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -282,7 +282,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206161431
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -292,7 +292,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206161294
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -302,6 +302,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-07
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206161235
 <br>【MediaFire】：
 <br>【MediaFire】：
