@@ -1,6 +1,4 @@
-### 本人創建了一個電台類別論壇，分設節目下載及節目討論等板塊
-### 歡迎各位蒞臨
-### http://www.yuetwanlauseng.com
+### 節目資源論壇：http://www.yuetwanlauseng.com
 
 <br>【節目名稱】：有誰共鳴.2017-06-07
 <br>【節目頻道】：903
