@@ -9,9 +9,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206267072
 <br>【MediaFire】：http://adf.ly/1msHrJ
 <br>【MediaFire】：http://www.linkbucks.com/BUcb1
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1msLB3
+<br>【百度網盤】：http://www.linkbucks.com/BUln8
+<br>【百度密碼】：jx7s
 
 <br>【節目名稱】：在晴朗的一天出發（881）.2017-06-08
 <br>【節目頻道】：881
@@ -20,11 +20,11 @@
 <br>【檔案名稱】：On a Clear Day（881）.2017-06-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206264454
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1msJDa
+<br>【MediaFire】：http://www.linkbucks.com/BUh6j
+<br>【百度網盤】：http://adf.ly/1msLBa
+<br>【百度網盤】：http://www.linkbucks.com/BUllp
+<br>【百度密碼】：wqhk
 
 <br>【節目名稱】：早安，同學早.2017-06-08
 <br>【節目頻道】：903
@@ -35,9 +35,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206262601
 <br>【MediaFire】：http://adf.ly/1msHrw
 <br>【MediaFire】：http://www.linkbucks.com/BUcW4
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1msLCY
+<br>【百度網盤】：http://www.linkbucks.com/BUljM
+<br>【百度密碼】：wt7h
 
 <br>【節目名稱】：在晴朗的一天出發（903）.2017-06-08
 <br>【節目頻道】：903
@@ -46,11 +46,11 @@
 <br>【檔案名稱】：On a Clear Day（903）.2017-06-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206266178
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1msIf6
+<br>【MediaFire】：http://www.linkbucks.com/BUkTn
+<br>【百度網盤】：http://adf.ly/1msLD3
+<br>【百度網盤】：http://www.linkbucks.com/BUzec
+<br>【百度密碼】：cfrq
 
 <br>【節目名稱】：夢熊有召.2017-06-08
 <br>【節目頻道】：881
@@ -61,9 +61,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206262669
 <br>【MediaFire】：http://adf.ly/1msHsN
 <br>【MediaFire】：http://www.linkbucks.com/BUcQ3
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1msLDW
+<br>【百度網盤】：http://www.linkbucks.com/BUzb5
+<br>【百度密碼】：gj8p
 
 <br>【節目名稱】：早霸王.2017-06-08
 <br>【節目頻道】：903
@@ -72,11 +72,11 @@
 <br>【檔案名稱】：Good Morning King.2017-06-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206262420
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1msIg4
+<br>【MediaFire】：http://www.linkbucks.com/BUkQ0
+<br>【百度網盤】：http://adf.ly/1msLED
+<br>【百度網盤】：http://www.linkbucks.com/BUzYJ
+<br>【百度密碼】：dfa6
 
 <br>【節目名稱】：1圈圈.2017-06-08
 <br>【節目頻道】：881
@@ -84,9 +84,9 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206305673
+<br>【MediaFire】：http://adf.ly/1msMSl
+<br>【MediaFire】：http://www.linkbucks.com/BU4Cd
 
 <br>【節目名稱】：十八樓C座.2017-06-08
 <br>【節目頻道】：881
@@ -94,9 +94,9 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206306632
+<br>【MediaFire】：http://adf.ly/1msMTE
+<br>【MediaFire】：http://www.linkbucks.com/BU4Az
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
