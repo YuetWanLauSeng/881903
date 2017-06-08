@@ -193,7 +193,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206438556
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -203,7 +203,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206437025
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -213,7 +213,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206436765
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -223,7 +223,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206437655
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -233,7 +233,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206437102
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -246,7 +246,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206440455
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -255,8 +255,15 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-06-08
+<br>【節目暫停】：改播『夾心家庭』
+
+<br>【節目名稱】：夾心家庭.2017-06-08
+<br>【節目頻道】：881
+<br>【節目主持】：馮志豐
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Sandwich Family.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206439002
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -266,12 +273,12 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206440831
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1msj37
+<br>【百度網盤】：http://www.linkbucks.com/Ba7mf
+<br>【百度密碼】：sf32
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-06-08
 <br>【節目頻道】：903
