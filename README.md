@@ -234,8 +234,8 @@
 <br>【檔案名稱】：Sino Stream.2017-06-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206437102
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1msumY
+<br>【MediaFire】：http://www.linkbucks.com/BWZLW
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -274,8 +274,8 @@
 <br>【檔案名稱】：Summit.2017-06-08
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206440831
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1msun2
+<br>【MediaFire】：http://www.linkbucks.com/BWZF8
 <br>【百度網盤】：http://adf.ly/1msj37
 <br>【百度網盤】：http://www.linkbucks.com/Ba7mf
 <br>【百度密碼】：sf32
@@ -286,7 +286,7 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206485954
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -299,7 +299,7 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206483628
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -309,7 +309,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206479997
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -319,6 +319,6 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-08
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206492603
 <br>【MediaFire】：
 <br>【MediaFire】：
