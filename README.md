@@ -151,8 +151,8 @@
 <br>【檔案名稱】：The Fun Box.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206648978
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtJdR
+<br>【MediaFire】：http://www.linkbucks.com/BXvtg
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -178,14 +178,14 @@
 <br>【節目暫停】：改播『麻利有隻小綿羊』
 
 <br>【節目名稱】：麻利有隻小綿羊.2017-06-09
-<br>【節目頻道】：903 
-<br>【節目主持】：麻利亞 
+<br>【節目頻道】：903
+<br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 18:00 
 <br>【檔案名稱】：Mali Has A Little Lamb.2017-06-09
-<br>【檔案音質】：高清 
+<br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206662890
-<br>【MediaFire】： 
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtKVN
+<br>【MediaFire】：http://www.linkbucks.com/BXvrY
 
 <br>【節目名稱】：集雜志.2017-06-09
 <br>【節目頻道】：903
