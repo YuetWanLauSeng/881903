@@ -164,8 +164,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206650410
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtJc0
+<br>【MediaFire】：http://www.linkbucks.com/BXqCS
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -183,7 +183,7 @@
 <br>【節目時間】：17:00 - 18:00 
 <br>【檔案名稱】：Mali Has A Little Lamb.2017-06-09
 <br>【檔案音質】：高清 
-<br>【城通網盤】： 
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206662890
 <br>【MediaFire】： 
 <br>【MediaFire】：
 
