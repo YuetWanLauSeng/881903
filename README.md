@@ -85,8 +85,8 @@
 <br>【檔案名稱】：Circles.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206628212
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtEoF
+<br>【MediaFire】：http://www.linkbucks.com/BXgVw
 
 <br>【節目名稱】：十八樓C座.2017-06-09
 <br>【節目頻道】：881
@@ -95,8 +95,8 @@
 <br>【檔案名稱】：18F Block C.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206622757
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtEqH
+<br>【MediaFire】：http://www.linkbucks.com/BXgLh
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -108,8 +108,8 @@
 <br>【檔案名稱】：903 Music.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206625203
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtEnl
+<br>【MediaFire】：http://www.linkbucks.com/BXgcF
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -121,8 +121,8 @@
 <br>【檔案名稱】：Lunch Special.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206628520
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtEoU
+<br>【MediaFire】：http://www.linkbucks.com/BXgSr
 
 <br>【節目名稱】：人生交叉盤.2017-06-09
 <br>【節目頻道】：881
@@ -131,8 +131,8 @@
 <br>【檔案名稱】：Crosstrade.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206628417
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtEpQ
+<br>【MediaFire】：http://www.linkbucks.com/BXgP2
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -150,7 +150,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206648978
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -163,7 +163,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206650410
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
