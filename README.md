@@ -1,6 +1,5 @@
 ### 節目資源論壇：http://www.yuetwanlauseng.com
 
-
 <br>【節目名稱】：祝君早安.2017-06-10
 <br>【節目頻道】：881
 <br>【節目主持】：蔡靜怡
@@ -81,8 +80,8 @@
 <br>【檔案名稱】：903 Top 20.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206830161
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muCYN
+<br>【MediaFire】：http://www.linkbucks.com/BbFpu
 
 <br>【節目名稱】：中風危機解密.2017-06-10
 <br>【節目頻道】：881
@@ -91,8 +90,8 @@
 <br>【檔案名稱】：Stroke Decryption.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206832605
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muDuy
+<br>【MediaFire】：http://www.linkbucks.com/BbIeP
 
 <br>【節目名稱】：電影圈.2017-06-10
 <br>【節目頻道】：881
@@ -101,8 +100,8 @@
 <br>【檔案名稱】：Movies.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206835234
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muCaR
+<br>【MediaFire】：http://www.linkbucks.com/BbFR9
 
 <br>【節目名稱】：咪芝蓮.2017-06-10
 <br>【節目頻道】：903
@@ -111,11 +110,8 @@
 <br>【檔案名稱】：Mr Chef.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206832152
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1muCZV
+<br>【MediaFire】：http://www.linkbucks.com/BbFgg
 
 <br>【節目名稱】：咆哮山莊.2017-06-10
 <br>【節目頻道】：903
@@ -123,9 +119,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206843758
+<br>【MediaFire】：http://adf.ly/1muDsk
+<br>【MediaFire】：http://www.linkbucks.com/BbIxO
 
 <br>【節目名稱】：1圈圈 (周末版).2017-06-10
 <br>【節目頻道】：881
@@ -133,9 +129,9 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206831490
+<br>【MediaFire】：http://adf.ly/1muDtw
+<br>【MediaFire】：http://www.linkbucks.com/BbIlz
 
 <br>【節目名稱】：豁達推介.2017-06-10
 <br>【節目頻道】：903
@@ -143,9 +139,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206835902
+<br>【MediaFire】：http://adf.ly/1muCXe
+<br>【MediaFire】：http://www.linkbucks.com/BbFqR
 
 <br>【節目名稱】：大鐵人.2017-06-10
 <br>【節目頻道】：881
@@ -153,9 +149,9 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206836775
+<br>【MediaFire】：http://adf.ly/1muCZw
+<br>【MediaFire】：http://www.linkbucks.com/BbFVY
 
 <br>【節目名稱】：3號螺絲釘.2017-06-10
 <br>【節目頻道】：903
@@ -163,12 +159,9 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206836439
+<br>【MediaFire】：http://adf.ly/1muCYw
+<br>【MediaFire】：http://www.linkbucks.com/BbFnh
 
 <br>【節目名稱】：第三齡接觸.2017-06-10
 <br>【節目頻道】：881
@@ -176,9 +169,9 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206844102
+<br>【MediaFire】：http://adf.ly/1muDwe
+<br>【MediaFire】：http://www.linkbucks.com/BbIWm
 
 <br>【節目名稱】：西瓜大發.2017-06-10
 <br>【節目頻道】：903
@@ -186,9 +179,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206844755
+<br>【MediaFire】：http://adf.ly/1muDvl
+<br>【MediaFire】：http://www.linkbucks.com/BbIaM
 
 <br>【節目名稱】：雷霆音樂圈.2017-06-10
 <br>【節目頻道】：881
