@@ -194,8 +194,8 @@
 <br>【檔案名稱】：Zine.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206690390
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtoVe
+<br>【MediaFire】：http://www.linkbucks.com/BhfWz
 
 <br>【節目名稱】：人民大道中.2017-06-09
 <br>【節目頻道】：881
@@ -204,8 +204,8 @@
 <br>【檔案名稱】：Our Way Out.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206689163
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtoVM
+<br>【MediaFire】：http://www.linkbucks.com/BhfaE
 
 <br>【節目名稱】：生活日常.2017-06-09
 <br>【節目頻道】：903
@@ -214,8 +214,8 @@
 <br>【檔案名稱】：My Daily Life.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206688254
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtoUf
+<br>【MediaFire】：http://www.linkbucks.com/BhfcU
 
 <br>【節目名稱】：杏林茶.2017-06-09
 <br>【節目頻道】：881
@@ -236,9 +236,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206691217
 <br>【MediaFire】：http://adf.ly/1mtTHG
 <br>【MediaFire】：http://www.linkbucks.com/BYEqd
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mtoTk
+<br>【百度網盤】：http://www.linkbucks.com/BhffZ
+<br>【百度密碼】：qvp8
 
 <br>【節目名稱】：雲妮鍾情.2017-06-09
 <br>【節目頻道】：903
@@ -246,9 +246,9 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-09
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206714566
+<br>【MediaFire】：http://adf.ly/1mtoT7
+<br>【MediaFire】：http://www.linkbucks.com/BlSKJ
 
 <br>【節目名稱】：書.情.歌.2017-06-09
 <br>【節目頻道】：881
@@ -276,9 +276,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206692185
 <br>【MediaFire】：http://adf.ly/1mtTGW
 <br>【MediaFire】：http://www.linkbucks.com/BYE29
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mtoS9
+<br>【百度網盤】：http://www.linkbucks.com/BlSTI
+<br>【百度密碼】：awen
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-06-09
 <br>【節目頻道】：903
@@ -287,11 +287,11 @@
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206751562
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1mtoR7
+<br>【MediaFire】：http://www.linkbucks.com/BlSZb
+<br>【百度網盤】：http://adf.ly/1mtoRX
+<br>【百度網盤】：http://www.linkbucks.com/BlSWp
+<br>【百度密碼】：jzhv
 
 <br>【節目名稱】：月光光呵呵呵.2017-06-09
 <br>【節目頻道】：881
@@ -300,8 +300,8 @@
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206750759
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtoQa
+<br>【MediaFire】：http://www.linkbucks.com/BlSby
 
 <br>【節目名稱】：廣東爆谷.2017-06-09
 <br>【節目頻道】：903
@@ -310,8 +310,8 @@
 <br>【檔案名稱】：Canto Pop.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206749990
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtoPv
+<br>【MediaFire】：http://www.linkbucks.com/BlSdE
 
 <br>【節目名稱】：一切從音樂開始.2017-06-09
 <br>【節目頻道】：881 & 903
@@ -320,5 +320,5 @@
 <br>【檔案名稱】：Begin with Music.2017-06-09
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206748643
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mtoKp
+<br>【MediaFire】：http://www.linkbucks.com/BlSqt
