@@ -8,8 +8,8 @@
 <br>【檔案名稱】：Morning Glory.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206768245
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mu2tF
+<br>【MediaFire】：http://www.linkbucks.com/Baue7
 
 <br>【節目名稱】：好醒晨.2017-06-10
 <br>【節目頻道】：903
@@ -18,8 +18,8 @@
 <br>【檔案名稱】：So Sunshine.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206769296
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mu2oU
+<br>【MediaFire】：http://www.linkbucks.com/Bautk
 
 <br>【節目名稱】：橙咇咇.2017-06-10
 <br>【節目頻道】：903
@@ -28,8 +28,8 @@
 <br>【檔案名稱】：Orange Day.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206768512
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mu2tv
+<br>【MediaFire】：http://www.linkbucks.com/Bauas
 
 <br>【節目名稱】：政經星期六.2017-06-10
 <br>【節目頻道】：881
@@ -38,8 +38,8 @@
 <br>【檔案名稱】：Saturday Forum.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206768854
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mu2q6
+<br>【MediaFire】：http://www.linkbucks.com/Baukq
 
 <br>【節目名稱】：西加航空.2017-06-10
 <br>【節目頻道】：903
@@ -48,8 +48,8 @@
 <br>【檔案名稱】：J.A.L.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206767833
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mu2pR
+<br>【MediaFire】：http://www.linkbucks.com/BaurW
 
 <br>【節目名稱】：潮爆開運王.2017-06-10
 <br>【節目頻道】：881
@@ -58,8 +58,8 @@
 <br>【檔案名稱】：Weekend Lucky Star.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206769855
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mu2uR
+<br>【MediaFire】：http://www.linkbucks.com/BauYm
 
 <br>【節目名稱】：考股專家.2017-06-10
 <br>【節目頻道】：881
@@ -68,11 +68,11 @@
 <br>【檔案名稱】：Stockaeologist.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206769633
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1mu31y
+<br>【MediaFire】：http://www.linkbucks.com/Baqlo
+<br>【百度網盤】：http://adf.ly/1mu2lP
+<br>【百度網盤】：http://www.linkbucks.com/Bau2z
+<br>【百度密碼】：e3n6
 
 <br>【節目名稱】：專業推介.2017-06-10
 <br>【節目頻道】：903
@@ -80,7 +80,7 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206830161
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -90,7 +90,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206832605
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -100,7 +100,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206835234
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -110,7 +110,7 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206832152
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
