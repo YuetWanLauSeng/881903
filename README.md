@@ -189,7 +189,7 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206846402
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -199,7 +199,7 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206861132
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -209,7 +209,7 @@
 <br>【節目主持】：時美真
 <br>【檔案名稱】：Education Forum.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206861531
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -217,10 +217,10 @@
 <br>【節目頻道】：903
 <br>【節目日期】：2017-06-10
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：黃美棋
 <br>【檔案名稱】：The Playtoy Mansion.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206863197
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -233,7 +233,7 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206862133
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -243,7 +243,7 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-06-10
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206862401
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
