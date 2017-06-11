@@ -7,8 +7,8 @@
 <br>【檔案名稱】：Reading Time.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206900277
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muiyq
+<br>【MediaFire】：http://www.linkbucks.com/Bc61L
 
 <br>【節目名稱】：一周紅人館.2017-06-11
 <br>【節目頻道】：903
@@ -17,8 +17,8 @@
 <br>【檔案名稱】：Star House.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206901847
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muj3M
+<br>【MediaFire】：http://www.linkbucks.com/Bc6sj
 
 <br>【節目名稱】：政好星期天.2017-06-11
 <br>【節目頻道】：881
@@ -27,8 +27,8 @@
 <br>【檔案名稱】：Beautiful Sunday.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206899921
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muj1p
+<br>【MediaFire】：http://www.linkbucks.com/Bc6tz
 
 <br>【節目名稱】：Urban Touch.2017-06-11
 <br>【節目頻道】：903
@@ -37,8 +37,8 @@
 <br>【檔案名稱】：Urban Touch.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206903569
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muj2e
+<br>【MediaFire】：http://www.linkbucks.com/Bc6tN
 
 <br>【節目名稱】：馬路的事我哋的事.2017-06-11
 <br>【節目頻道】：881
@@ -47,8 +47,8 @@
 <br>【檔案名稱】：Road Co-op.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206900637
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muiyJ
+<br>【MediaFire】：http://www.linkbucks.com/Bc626
 
 <br>【節目名稱】：同途有心人.2017-06-11
 <br>【節目頻道】：881
@@ -57,8 +57,8 @@
 <br>【檔案名稱】：The Way We Are.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206903185
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muixS
+<br>【MediaFire】：http://www.linkbucks.com/Bc650
 
 <br>【節目名稱】：讀賣Sunday.2017-06-11
 <br>【節目頻道】：903
@@ -67,11 +67,11 @@
 <br>【檔案名稱】：Sunny Day Readings.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206902568
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1muizI
+<br>【MediaFire】：http://www.linkbucks.com/Bc6zX
+<br>【百度網盤】：http://adf.ly/1mujRC
+<br>【百度網盤】：http://www.linkbucks.com/Bc5Ai
+<br>【百度密碼】：p2am
 
 <br>【節目名稱】：無定向喪煲病狂.2017-06-11
 <br>【節目頻道】：903
@@ -80,8 +80,8 @@
 <br>【檔案名稱】：Binge-Watch.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206917970
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muj3z
+<br>【MediaFire】：http://www.linkbucks.com/Bc6rk
 
 <br>【節目名稱】：兒童適宜.2017-06-11
 <br>【節目頻道】：903
@@ -89,9 +89,9 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-06-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206920615
+<br>【MediaFire】：http://adf.ly/1mujRl
+<br>【MediaFire】：http://www.linkbucks.com/BdE4i
 
 <br>【節目名稱】：Mali Mali Home.2017-06-11
 <br>【節目頻道】：903
