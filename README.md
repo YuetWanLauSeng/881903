@@ -99,9 +99,9 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-06-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206932503
+<br>【MediaFire】：http://adf.ly/1munpZ
+<br>【MediaFire】：http://www.linkbucks.com/BdTsJ
 
 <br>【節目名稱】：串.2017-06-11
 <br>【節目頻道】：881
@@ -109,9 +109,9 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-06-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206939323
+<br>【MediaFire】：http://adf.ly/1munp5
+<br>【MediaFire】：http://www.linkbucks.com/BdTxC
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -122,9 +122,9 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-06-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206939280
+<br>【MediaFire】：http://adf.ly/1munoV
+<br>【MediaFire】：http://www.linkbucks.com/BdTx8
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
