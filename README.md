@@ -190,8 +190,8 @@
 <br>【檔案名稱】：881 Music Station.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206846402
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muXnM
+<br>【MediaFire】：http://www.linkbucks.com/BcVY5
 
 <br>【節目名稱】：Chi Chung's Class.2017-06-10
 <br>【節目頻道】：903
@@ -200,8 +200,8 @@
 <br>【檔案名稱】：Chi Chung's Class.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206861132
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muXlm
+<br>【MediaFire】：http://www.linkbucks.com/BcVd2
 
 <br>【節目名稱】：與時並進.2017-06-10
 <br>【節目頻道】：881
@@ -210,8 +210,8 @@
 <br>【檔案名稱】：Education Forum.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206861531
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muXlT
+<br>【MediaFire】：http://www.linkbucks.com/BcVf4
 
 <br>【節目名稱】：公子會.2017-06-10
 <br>【節目頻道】：903
@@ -221,11 +221,11 @@
 <br>【檔案名稱】：The Playtoy Mansion.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206863197
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1muXlE
+<br>【MediaFire】：http://www.linkbucks.com/BcViJ
+<br>【百度網盤】：http://adf.ly/1muY0g
+<br>【百度網盤】：http://www.linkbucks.com/BcUL4
+<br>【百度密碼】：34fr
 
 <br>【節目名稱】：發式生活.2017-06-10
 <br>【節目頻道】：881
@@ -234,8 +234,8 @@
 <br>【檔案名稱】：Fat’s Lifestyle.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206862133
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muXkd
+<br>【MediaFire】：http://www.linkbucks.com/BcVj5
 
 <br>【節目名稱】：皇牌出場.2017-06-10
 <br>【節目頻道】：903
@@ -244,11 +244,11 @@
 <br>【檔案名稱】：Losing Eleven.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206862401
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1muXkM
+<br>【MediaFire】：http://www.linkbucks.com/BcVka
+<br>【百度網盤】：http://adf.ly/1muXzT
+<br>【百度網盤】：http://www.linkbucks.com/BcUPQ
+<br>【百度密碼】：eynh
 
 <br>【節目名稱】：一切從音樂開始.2017-06-10
 <br>【節目頻道】：881 & 903
@@ -257,5 +257,5 @@
 <br>【檔案名稱】：Begin with Music.2017-06-10
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206865015
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muXWB
+<br>【MediaFire】：http://www.linkbucks.com/BcWux
