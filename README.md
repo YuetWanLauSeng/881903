@@ -112,9 +112,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206939323
 <br>【MediaFire】：http://adf.ly/1munp5
 <br>【MediaFire】：http://www.linkbucks.com/BdTxC
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1muo8X
+<br>【百度網盤】：http://www.linkbucks.com/BdSrm
+<br>【百度密碼】：rc5d
 
 <br>【節目名稱】：讀懂中國.2017-06-11
 <br>【節目頻道】：881
@@ -125,9 +125,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206939280
 <br>【MediaFire】：http://adf.ly/1munoV
 <br>【MediaFire】：http://www.linkbucks.com/BdTx8
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1muo7L
+<br>【百度網盤】：http://www.linkbucks.com/BdStr
+<br>【百度密碼】：mx29
 
 <br>【節目名稱】：國語類.2017-06-11
 <br>【節目頻道】：903
@@ -135,7 +135,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-06-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206954593
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -145,7 +145,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-06-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206954722
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -155,7 +155,7 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-06-11
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206954932
 <br>【MediaFire】：
 <br>【MediaFire】：
 
