@@ -192,7 +192,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207401275
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -202,7 +202,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207400870
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -212,7 +212,7 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207400503
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -222,7 +222,7 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207401100
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -232,7 +232,7 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207402911
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
