@@ -136,8 +136,8 @@
 <br>【檔案名稱】：Bo Po Mo Fo.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206954593
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvHZB
+<br>【MediaFire】：http://www.linkbucks.com/Bel21
 
 <br>【節目名稱】：泡菜粉絲煲.2017-06-11
 <br>【節目頻道】：881
@@ -146,8 +146,8 @@
 <br>【檔案名稱】：Kimchi Fans Club.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206954722
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvHa7
+<br>【MediaFire】：http://www.linkbucks.com/BelzY
 
 <br>【節目名稱】：細路強.2017-06-11
 <br>【節目頻道】：881
@@ -156,8 +156,8 @@
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206954932
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1muvM6
+<br>【MediaFire】：http://www.linkbucks.com/Bel0k
 
 <br>【節目名稱】：國民教育.2017-06-11
 <br>【節目頻道】：903
@@ -166,11 +166,11 @@
 <br>【檔案名稱】：Time's Up Pen's Down.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206987971
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1mvHLv
+<br>【MediaFire】：http://www.linkbucks.com/BenGc
+<br>【百度網盤】：http://adf.ly/1mvHbd
+<br>【百度網盤】：http://www.linkbucks.com/BelvT
+<br>【百度密碼】：u332
 
 <br>【節目名稱】：帶一本書去旅行.2017-06-11
 <br>【節目頻道】：881
@@ -179,8 +179,8 @@
 <br>【檔案名稱】：Readers for Riders.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206984273
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvHNG
+<br>【MediaFire】：http://www.linkbucks.com/Bem41
 
 <br>【節目名稱】：葛民教育.2017-06-11
 <br>【節目頻道】：881
@@ -189,11 +189,11 @@
 <br>【檔案名稱】：Kot’s ology.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206984086
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1mvHP0
+<br>【MediaFire】：http://www.linkbucks.com/Bemux
+<br>【百度網盤】：http://adf.ly/1mvHYK
+<br>【百度網盤】：http://www.linkbucks.com/Bel48
+<br>【百度密碼】：wij9
 
 <br>【節目名稱】：短期租約.2017-06-11
 <br>【節目頻道】：903
@@ -202,8 +202,8 @@
 <br>【檔案名稱】：Short-term Lease.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206986383
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvHLD
+<br>【MediaFire】：http://www.linkbucks.com/BenJH
 
 <br>【節目名稱】：心靈料理.2017-06-11
 <br>【節目頻道】：881
@@ -212,8 +212,8 @@
 <br>【檔案名稱】：Feed Your Soul.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206984024
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvHO7
+<br>【MediaFire】：http://www.linkbucks.com/BemzK
 
 <br>【節目名稱】：寫生活.2017-06-11
 <br>【節目頻道】：881
@@ -222,8 +222,8 @@
 <br>【檔案名稱】：Bedtime Readings.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206983059
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvHMi
+<br>【MediaFire】：http://www.linkbucks.com/Bem78
 
 <br>【節目名稱】：一切從音樂開始.2017-06-11
 <br>【節目頻道】：881 & 903
@@ -232,5 +232,5 @@
 <br>【檔案名稱】：Begin with Music.2017-06-11
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-206983814
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvHEe
+<br>【MediaFire】：http://www.linkbucks.com/BenwP
