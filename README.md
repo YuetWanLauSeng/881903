@@ -193,8 +193,8 @@
 <br>【檔案名稱】：Zine.2017-06-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207401275
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvmtW
+<br>【MediaFire】：http://www.linkbucks.com/Bgrbl
 
 <br>【節目名稱】：人民大道中.2017-06-12
 <br>【節目頻道】：881
@@ -203,8 +203,8 @@
 <br>【檔案名稱】：Our Way Out.2017-06-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207400870
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvmul
+<br>【MediaFire】：http://www.linkbucks.com/BgrU2
 
 <br>【節目名稱】：生活日常.2017-06-12
 <br>【節目頻道】：903
@@ -213,8 +213,8 @@
 <br>【檔案名稱】：My Daily Life.2017-06-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207400503
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvmvA
+<br>【MediaFire】：http://www.linkbucks.com/BgrSp
 
 <br>【節目名稱】：杏林茶.2017-06-12
 <br>【節目頻道】：881
@@ -223,8 +223,8 @@
 <br>【檔案名稱】：Tea For You.2017-06-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207401100
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvmuL
+<br>【MediaFire】：http://www.linkbucks.com/BgrZO
 
 <br>【節目名稱】：串.2017-06-12
 <br>【節目頻道】：881
@@ -233,8 +233,8 @@
 <br>【檔案名稱】：Sino Stream.2017-06-12
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207402911
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mvmsX
+<br>【MediaFire】：http://www.linkbucks.com/Bgrdg
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -255,9 +255,9 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207412023
+<br>【MediaFire】：http://adf.ly/1mvmvZ
+<br>【MediaFire】：http://www.linkbucks.com/BgrRj
 
 <br>【節目名稱】：光明頂.2017-06-12
 <br>【節目頻道】：881
@@ -265,9 +265,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207412100
+<br>【MediaFire】：http://adf.ly/1mvmw8
+<br>【MediaFire】：http://www.linkbucks.com/BgrQ3
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
