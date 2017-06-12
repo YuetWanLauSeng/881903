@@ -107,9 +107,9 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207349429
+<br>【MediaFire】：http://adf.ly/1mvSsK
+<br>【MediaFire】：http://www.linkbucks.com/BlNkH
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -120,9 +120,9 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207350739
+<br>【MediaFire】：http://adf.ly/1mvSd0
+<br>【MediaFire】：http://www.linkbucks.com/BjQPj
 
 <br>【節目名稱】：人生交叉盤.2017-06-12
 <br>【節目頻道】：881
@@ -130,9 +130,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207349787
+<br>【MediaFire】：http://adf.ly/1mvSdp
+<br>【MediaFire】：http://www.linkbucks.com/BjQM0
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -143,9 +143,9 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-06-12
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207351026
+<br>【MediaFire】：http://adf.ly/1mvSrp
+<br>【MediaFire】：http://www.linkbucks.com/BlNmC
 
 <br>【節目名稱】：大玩派.2017-06-12
 <br>【節目頻道】：881
