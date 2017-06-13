@@ -193,8 +193,8 @@
 <br>【檔案名稱】：Zine.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207507598
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwRUB
+<br>【MediaFire】：http://www.linkbucks.com/BkxA5
 
 <br>【節目名稱】：人民大道中.2017-06-13
 <br>【節目頻道】：881
@@ -203,8 +203,8 @@
 <br>【檔案名稱】：Our Way Out.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207506887
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwRSi
+<br>【MediaFire】：http://www.linkbucks.com/BkxCC
 
 <br>【節目名稱】：生活日常.2017-06-13
 <br>【節目頻道】：903
@@ -212,9 +212,9 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207514989
+<br>【MediaFire】：http://adf.ly/1mwRRD
+<br>【MediaFire】：http://www.linkbucks.com/BkxFd
 
 <br>【節目名稱】：杏林茶.2017-06-13
 <br>【節目頻道】：881
@@ -222,9 +222,9 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207515350
+<br>【MediaFire】：http://adf.ly/1mwRPV
+<br>【MediaFire】：http://www.linkbucks.com/BkxFj
 
 <br>【節目名稱】：串.2017-06-13
 <br>【節目頻道】：881
@@ -232,9 +232,9 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207523277
+<br>【MediaFire】：http://adf.ly/1mwRNj
+<br>【MediaFire】：http://www.linkbucks.com/BkxGz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -245,19 +245,26 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207524004
+<br>【MediaFire】：http://adf.ly/1mwRGV
+<br>【MediaFire】：http://www.linkbucks.com/BkxNF
 
 <br>【節目名稱】：書.情.歌.2017-06-13
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-06-13
+<br>【節目暫停】：改播『再創生機』
+
+<br>【節目名稱】：再創生機.2017-06-13
+<br>【節目頻道】：881
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207523207
+<br>【MediaFire】：http://adf.ly/1mwRLq
+<br>【MediaFire】：http://www.linkbucks.com/BkxIP
 
 <br>【節目名稱】：光明頂.2017-06-13
 <br>【節目頻道】：881
@@ -265,9 +272,9 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207530762
+<br>【MediaFire】：http://adf.ly/1mwRIf
+<br>【MediaFire】：http://www.linkbucks.com/BkxLf
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
