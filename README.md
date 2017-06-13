@@ -108,8 +108,8 @@
 <br>【檔案名稱】：903 Music.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207469208
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwHGO
+<br>【MediaFire】：http://www.linkbucks.com/BpRyy
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -121,8 +121,8 @@
 <br>【檔案名稱】：Lunch Special.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207469879
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwHIa
+<br>【MediaFire】：http://www.linkbucks.com/BpRoN
 
 <br>【節目名稱】：人生交叉盤.2017-06-13
 <br>【節目頻道】：881
@@ -131,8 +131,8 @@
 <br>【檔案名稱】：Crosstrade.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207469608
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwHIB
+<br>【MediaFire】：http://www.linkbucks.com/BpRpt
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -144,8 +144,8 @@
 <br>【檔案名稱】：You Are The Best.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207470609
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwHHa
+<br>【MediaFire】：http://www.linkbucks.com/BpRr8
 
 <br>【節目名稱】：大玩派.2017-06-13
 <br>【節目頻道】：881
@@ -153,7 +153,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207484227
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -166,7 +166,7 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207485582
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -179,7 +179,7 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207482863
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
