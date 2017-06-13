@@ -154,8 +154,8 @@
 <br>【檔案名稱】：The Fun Box.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207484227
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwLv2
+<br>【MediaFire】：http://www.linkbucks.com/BkPhZ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -167,8 +167,8 @@
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207485582
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwLt1
+<br>【MediaFire】：http://www.linkbucks.com/BkPoj
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -180,8 +180,8 @@
 <br>【檔案名稱】：Dokureioukoku.2017-06-13
 <br>【檔案音質】：高清
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207482863
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mwLxL
+<br>【MediaFire】：http://www.linkbucks.com/BkPd0
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -192,7 +192,7 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207507598
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -202,7 +202,7 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-06-13
 <br>【檔案音質】：高清
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207506887
 <br>【MediaFire】：
 <br>【MediaFire】：
 
