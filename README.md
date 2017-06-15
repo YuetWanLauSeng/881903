@@ -18,8 +18,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-06-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207725746
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxfKC
+<br>【MediaFire】：http://www.linkbucks.com/CAwcb
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -77,7 +77,7 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-06-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207757653
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -86,7 +86,7 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-06-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207757453
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
