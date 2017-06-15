@@ -216,8 +216,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207690024
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxQ6y
+<br>【MediaFire】：http://www.linkbucks.com/Bphcr
 
 <br>【節目名稱】：書.情.歌.2017-06-14
 <br>【節目頻道】：881
@@ -234,9 +234,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207690815
 <br>【MediaFire】：http://adf.ly/1mxAop
 <br>【MediaFire】：http://www.linkbucks.com/BoBTF
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mxQ6a
+<br>【百度網盤】：http://www.linkbucks.com/Bphge
+<br>【百度密碼】：jcu2
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-06-14
 <br>【節目頻道】：903
@@ -246,9 +246,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207696903
 <br>【MediaFire】：http://adf.ly/1mxMnb
 <br>【MediaFire】：http://www.linkbucks.com/BpWki
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1mxQ5n
+<br>【百度網盤】：http://www.linkbucks.com/BphqP
+<br>【百度密碼】：x26q
 
 <br>【節目名稱】：月光光呵呵呵.2017-06-14
 <br>【節目頻道】：881
@@ -265,8 +265,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-06-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207695996
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxPy9
+<br>【MediaFire】：http://www.linkbucks.com/Bpix7
 
 <br>【節目名稱】：一切從音樂開始.2017-06-14
 <br>【節目頻道】：881 & 903
@@ -274,5 +274,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207695701
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxPxg
+<br>【MediaFire】：http://www.linkbucks.com/Bpi2D
