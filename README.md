@@ -6,8 +6,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-06-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207729807
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxWak
+<br>【MediaFire】：http://www.linkbucks.com/BqN9m
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -30,8 +30,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners.2017-06-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207725312
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxWb1
+<br>【MediaFire】：http://www.linkbucks.com/BqN6z
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -42,8 +42,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-06-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207727475
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxWaJ
+<br>【MediaFire】：http://www.linkbucks.com/BqOAM
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -54,8 +54,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Oh! Master Bear.2017-06-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207725349
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxWbW
+<br>【MediaFire】：http://www.linkbucks.com/BqN4P
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -66,8 +66,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-06-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207725208
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mxWbx
+<br>【MediaFire】：http://www.linkbucks.com/BqN2e
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
