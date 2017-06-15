@@ -243,9 +243,9 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-06-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207696903
+<br>【MediaFire】：http://adf.ly/1mxMnb
+<br>【MediaFire】：http://www.linkbucks.com/BpWki
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -255,16 +255,16 @@
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207696158
+<br>【MediaFire】：http://adf.ly/1mxMo8
+<br>【MediaFire】：http://www.linkbucks.com/BpWfC
 
 <br>【節目名稱】：廣東爆谷.2017-06-14
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-06-14
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207695996
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -273,6 +273,6 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-14
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207695701
 <br>【MediaFire】：
 <br>【MediaFire】：
