@@ -101,9 +101,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207862240
 <br>【MediaFire】：http://adf.ly/1myZTt
 <br>【MediaFire】：http://www.linkbucks.com/BzTrG
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1myb0a
+<br>【百度網盤】：http://www.linkbucks.com/BxwHP
+<br>【百度密碼】：daxy
 
 <br>【節目名稱】：一點叮一叮.2017-06-16
 <br>【節目頻道】：881
@@ -122,9 +122,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207862794
 <br>【MediaFire】：http://adf.ly/1myZVv
 <br>【MediaFire】：http://www.linkbucks.com/BzTYx
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1myb1i
+<br>【百度網盤】：http://www.linkbucks.com/BxwEh
+<br>【百度密碼】：d3wj
 
 <br>【節目名稱】：你好嘢.2017-06-16
 <br>【節目頻道】：903
@@ -152,9 +152,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207873190
+<br>【MediaFire】：http://adf.ly/1mybRO
+<br>【MediaFire】：http://www.linkbucks.com/Bx3cc
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
