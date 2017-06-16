@@ -141,8 +141,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207893079
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mz39o
+<br>【MediaFire】：http://www.linkbucks.com/B03sW
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -165,8 +165,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207887544
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mz38Z
+<br>【MediaFire】：http://www.linkbucks.com/B03xz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -177,8 +177,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207893198
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mz37B
+<br>【MediaFire】：http://www.linkbucks.com/B033u
 
 <br>【節目名稱】：人民大道中.2017-06-16
 <br>【節目頻道】：881
@@ -186,8 +186,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207890141
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mz35s
+<br>【MediaFire】：http://www.linkbucks.com/B037n
 
 <br>【節目名稱】：生活日常.2017-06-16
 <br>【節目頻道】：903
@@ -195,8 +195,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207889238
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mz34p
+<br>【MediaFire】：http://www.linkbucks.com/B04B8
 
 <br>【節目名稱】：杏林茶.2017-06-16
 <br>【節目頻道】：881
@@ -204,8 +204,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207891780
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mz33Y
+<br>【MediaFire】：http://www.linkbucks.com/B04FJ
 
 <br>【節目名稱】：串.2017-06-16
 <br>【節目頻道】：881
@@ -213,8 +213,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207893654
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1mz32F
+<br>【MediaFire】：http://www.linkbucks.com/B04It
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -224,9 +224,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207899456
+<br>【MediaFire】：http://adf.ly/1mz31Q
+<br>【MediaFire】：http://www.linkbucks.com/B04MN
 
 <br>【節目名稱】：書.情.歌.2017-06-16
 <br>【節目頻道】：881
@@ -240,18 +240,18 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-06-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207898836
+<br>【MediaFire】：http://adf.ly/1mz30U
+<br>【MediaFire】：http://www.linkbucks.com/B04OW
 
 <br>【節目名稱】：光明頂.2017-06-16
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207900168
+<br>【MediaFire】：http://adf.ly/1mz2zg
+<br>【MediaFire】：http://www.linkbucks.com/B04am
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
