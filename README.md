@@ -6,8 +6,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207825876
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1myTpJ
+<br>【MediaFire】：http://www.linkbucks.com/BxfqP
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -18,8 +18,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207822969
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1myUCD
+<br>【MediaFire】：http://www.linkbucks.com/BxdWo
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -30,8 +30,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207820469
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1myTp1
+<br>【MediaFire】：http://www.linkbucks.com/Bxfr7
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -42,8 +42,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207824733
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1myTq0
+<br>【MediaFire】：http://www.linkbucks.com/Bxfmq
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -54,8 +54,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Oh! Master Bear.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207820664
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1myToF
+<br>【MediaFire】：http://www.linkbucks.com/Bxfw8
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -66,8 +66,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207820315
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1myTqV
+<br>【MediaFire】：http://www.linkbucks.com/BxfjD
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -78,8 +78,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207819634
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1myTpd
+<br>【MediaFire】：http://www.linkbucks.com/Bxfpg
 
 <br>【節目名稱】：十八樓C座.2017-06-16
 <br>【節目頻道】：881
@@ -87,8 +87,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-06-16
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-207833993
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1myUCo
+<br>【MediaFire】：http://www.linkbucks.com/BxdU8
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
