@@ -82,27 +82,27 @@
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-06-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208056120
+<br>【MediaFire】：http://adf.ly/1n0zYp
+<br>【MediaFire】：http://www.linkbucks.com/B8plD
 
 <br>【節目名稱】：Mali Mali Home.2017-06-18
 <br>【節目頻道】：903
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-06-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208056890
+<br>【MediaFire】：http://adf.ly/1n0zah
+<br>【MediaFire】：http://www.linkbucks.com/B8pin
 
 <br>【節目名稱】：串.2017-06-18
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-06-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208057058
+<br>【MediaFire】：http://adf.ly/1n0zcb
+<br>【MediaFire】：http://www.linkbucks.com/B8pcQ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -112,9 +112,9 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-06-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208064593
+<br>【MediaFire】：http://adf.ly/1n0zWk
+<br>【MediaFire】：http://www.linkbucks.com/B8pm9
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
