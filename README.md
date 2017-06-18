@@ -103,9 +103,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208057058
 <br>【MediaFire】：http://adf.ly/1n0zcb
 <br>【MediaFire】：http://www.linkbucks.com/B8pcQ
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n18HW
+<br>【百度網盤】：http://www.linkbucks.com/CDy4J
+<br>【百度密碼】：6fga
 
 <br>【節目名稱】：讀懂中國.2017-06-18
 <br>【節目頻道】：881
@@ -115,9 +115,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208064593
 <br>【MediaFire】：http://adf.ly/1n0zWk
 <br>【MediaFire】：http://www.linkbucks.com/B8pm9
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n18Gj
+<br>【百度網盤】：http://www.linkbucks.com/CDzBN
+<br>【百度密碼】：tsyd
 
 <br>【節目名稱】：國語類.2017-06-18
 <br>【節目頻道】：903
@@ -125,8 +125,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208074510
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n18Fn
+<br>【MediaFire】：http://www.linkbucks.com/CDzEk
 
 <br>【節目名稱】：泡菜粉絲煲.2017-06-18
 <br>【節目頻道】：881
@@ -134,8 +134,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208074757
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n18F1
+<br>【MediaFire】：http://www.linkbucks.com/CDzHz
 
 <br>【節目名稱】：細路強.2017-06-18
 <br>【節目頻道】：881
@@ -143,41 +143,41 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208075091
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n18EI
+<br>【MediaFire】：http://www.linkbucks.com/CDzMR
 
 <br>【節目名稱】：國民教育.2017-06-18
 <br>【節目頻道】：903
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-06-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208086993
+<br>【MediaFire】：http://adf.ly/1n18Dj
+<br>【MediaFire】：http://www.linkbucks.com/CDzPX
+<br>【百度網盤】：http://adf.ly/1n186m
+<br>【百度網盤】：http://www.linkbucks.com/CDzqk
+<br>【百度密碼】：qhdb
 
 <br>【節目名稱】：帶一本書去旅行.2017-06-18
 <br>【節目頻道】：881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-06-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208086615
+<br>【MediaFire】：http://adf.ly/1n18CO
+<br>【MediaFire】：http://www.linkbucks.com/CDzTj
 
 <br>【節目名稱】：葛民教育.2017-06-18
 <br>【節目頻道】：881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-06-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208088530
+<br>【MediaFire】：http://adf.ly/1n18C0
+<br>【MediaFire】：http://www.linkbucks.com/CDzWT
+<br>【百度網盤】：http://adf.ly/1n189k
+<br>【百度網盤】：http://www.linkbucks.com/CDziQ
+<br>【百度密碼】：diyi
 
 <br>【節目名稱】：短期租約.2017-06-18
 <br>【節目頻道】：903
