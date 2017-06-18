@@ -8,8 +8,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：Reading Time.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208027131
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0pCA
+<br>【MediaFire】：http://www.linkbucks.com/B75ef
 
 <br>【節目名稱】：一周紅人館.2017-06-18
 <br>【節目頻道】：903
@@ -17,8 +17,8 @@
 <br>【節目時間】：06:00 - 09:00
 <br>【檔案名稱】：Star House.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208027484
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0pSt
+<br>【MediaFire】：http://www.linkbucks.com/B74BA
 
 <br>【節目名稱】：政好星期天.2017-06-18
 <br>【節目頻道】：881
@@ -26,8 +26,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Beautiful Sunday.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208026863
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0pTh
+<br>【MediaFire】：http://www.linkbucks.com/B737I
 
 <br>【節目名稱】：Urban Touch.2017-06-18
 <br>【節目頻道】：903
@@ -35,8 +35,8 @@
 <br>【節目時間】：09:00 - 11:00
 <br>【檔案名稱】：Urban Touch.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208027961
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0pBF
+<br>【MediaFire】：http://www.linkbucks.com/B75g0
 
 <br>【節目名稱】：馬路的事我哋的事.2017-06-18
 <br>【節目頻道】：881
@@ -44,8 +44,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Road Co-op.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208027211
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0pAl
+<br>【MediaFire】：http://www.linkbucks.com/B75jB
 
 <br>【節目名稱】：同途有心人.2017-06-18
 <br>【節目頻道】：881
@@ -53,8 +53,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：The Way We Are.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208027762
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0pA2
+<br>【MediaFire】：http://www.linkbucks.com/B75mw
 
 <br>【節目名稱】：讀賣Sunday.2017-06-18
 <br>【節目頻道】：903
@@ -62,20 +62,20 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208027687
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1n0pUZ
+<br>【MediaFire】：http://www.linkbucks.com/B734F
+<br>【百度網盤】：http://adf.ly/1n0pZD
+<br>【百度網盤】：http://www.linkbucks.com/B73nn
+<br>【百度密碼】：6f5f
 
 <br>【節目名稱】：無定向喪煲病狂.2017-06-18
 <br>【節目頻道】：903
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-06-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208044621
+<br>【MediaFire】：http://adf.ly/1n0pZr
+<br>【MediaFire】：http://www.linkbucks.com/B73io
 
 <br>【節目名稱】：兒童適宜.2017-06-18
 <br>【節目頻道】：903
