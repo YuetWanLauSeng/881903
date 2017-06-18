@@ -202,8 +202,8 @@
 <br>【節目主持】：時美真
 <br>【檔案名稱】：Education Forum.2017-06-17
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208006633
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0WGc
+<br>【MediaFire】：http://www.linkbucks.com/B65Dx
 
 <br>【節目名稱】：公子會.2017-06-17
 <br>【節目頻道】：903
@@ -212,8 +212,8 @@
 <br>【訪問嘉賓】：Odilia & Katie @ Bingo
 <br>【檔案名稱】：The Playtoy Mansion.2017-06-17
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208009815
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0WEJ
+<br>【MediaFire】：http://www.linkbucks.com/B65OX
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -224,8 +224,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-06-17
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208006782
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0WEs
+<br>【MediaFire】：http://www.linkbucks.com/B65NQ
 
 <br>【節目名稱】：皇牌出場.2017-06-17
 <br>【節目頻道】：903
@@ -233,8 +233,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-06-17
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208009644
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n0WFA
+<br>【MediaFire】：http://www.linkbucks.com/B65Lu
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
