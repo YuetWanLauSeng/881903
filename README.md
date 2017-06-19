@@ -185,8 +185,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208109466
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1TrK
+<br>【MediaFire】：http://www.linkbucks.com/CCEzH
 
 <br>【節目名稱】：心靈料理.2017-06-18
 <br>【節目頻道】：881
@@ -194,8 +194,8 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208106944
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1Tqc
+<br>【MediaFire】：http://www.linkbucks.com/CCE2q
 
 <br>【節目名稱】：寫生活.2017-06-18
 <br>【節目頻道】：881
@@ -203,8 +203,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208106082
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1TdK
+<br>【MediaFire】：http://www.linkbucks.com/CBfYL
 
 <br>【節目名稱】：一切從音樂開始.2017-06-18
 <br>【節目頻道】：881 & 903
@@ -212,5 +212,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208106785
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1Tcn
+<br>【MediaFire】：http://www.linkbucks.com/CBnBi
