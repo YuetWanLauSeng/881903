@@ -101,8 +101,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205082
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1xdl
+<br>【MediaFire】：http://www.linkbucks.com/CE9De
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -113,8 +113,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205704
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1xqt
+<br>【MediaFire】：http://www.linkbucks.com/CE8Ly
 
 <br>【節目名稱】：人生交叉盤.2017-06-19
 <br>【節目頻道】：881
@@ -122,8 +122,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205262
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1xpv
+<br>【MediaFire】：http://www.linkbucks.com/CE8Qp
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -134,8 +134,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208211836
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1xi4
+<br>【MediaFire】：http://www.linkbucks.com/CE83g
 
 <br>【節目名稱】：大玩派.2017-06-19
 <br>【節目頻道】：881
@@ -143,8 +143,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208206218
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1xh3
+<br>【MediaFire】：http://www.linkbucks.com/CE84c
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -155,8 +155,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208209076
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1xg4
+<br>【MediaFire】：http://www.linkbucks.com/CE85K
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205446
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n1xnX
+<br>【MediaFire】：http://www.linkbucks.com/CE8d1
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
