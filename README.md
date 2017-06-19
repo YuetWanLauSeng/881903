@@ -100,7 +100,7 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-06-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205082
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -112,7 +112,7 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-06-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205704
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -121,7 +121,7 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-06-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205262
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -133,7 +133,7 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-06-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208211836
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -142,7 +142,7 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208206218
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -154,7 +154,7 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208209076
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -166,7 +166,7 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205446
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
