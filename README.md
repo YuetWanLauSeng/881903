@@ -197,8 +197,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-20
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208400134
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n3BtT
+<br>【MediaFire】：http://www.linkbucks.com/CJLl9
 
 <br>【節目名稱】：杏林茶.2017-06-20
 <br>【節目頻道】：881
@@ -206,17 +206,17 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-20
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208400305
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n3Bsp
+<br>【MediaFire】：http://www.linkbucks.com/CJLnT
 
 <br>【節目名稱】：串.2017-06-20
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208401355
+<br>【MediaFire】：http://adf.ly/1n38As
+<br>【MediaFire】：http://www.linkbucks.com/CJFgN
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -226,9 +226,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208403141
+<br>【MediaFire】：http://adf.ly/1n3BrT
+<br>【MediaFire】：http://www.linkbucks.com/CJLqF
 
 <br>【節目名稱】：書.情.歌.2017-06-20
 <br>【節目頻道】：881
@@ -242,18 +242,18 @@
 <br>【節目主持】：熊書頤
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-06-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208402423
+<br>【MediaFire】：http://adf.ly/1n3Bqn
+<br>【MediaFire】：http://www.linkbucks.com/CJLsO
 
 <br>【節目名稱】：光明頂.2017-06-20
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208404260
+<br>【MediaFire】：http://adf.ly/1n3Bpr
+<br>【MediaFire】：http://www.linkbucks.com/CJLuy
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
