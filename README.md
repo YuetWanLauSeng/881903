@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-20
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208393363
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n337p
+<br>【MediaFire】：http://www.linkbucks.com/CI7Rx
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -179,8 +179,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-20
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208393952
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n336Q
+<br>【MediaFire】：http://www.linkbucks.com/CI7YH
 
 <br>【節目名稱】：人民大道中.2017-06-20
 <br>【節目頻道】：881
@@ -188,15 +188,15 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-06-20
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208395173
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n332t
+<br>【MediaFire】：http://www.linkbucks.com/CI7kg
 
 <br>【節目名稱】：生活日常.2017-06-20
 <br>【節目頻道】：903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-20
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208400134
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -205,7 +205,7 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-20
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208400305
 <br>【MediaFire】：
 <br>【MediaFire】：
 
