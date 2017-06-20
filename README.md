@@ -103,9 +103,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205082
 <br>【MediaFire】：http://adf.ly/1n1xdl
 <br>【MediaFire】：http://www.linkbucks.com/CE9De
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n2UkY
+<br>【百度網盤】：http://www.linkbucks.com/CHNKH
+<br>【百度密碼】：3scf
 
 <br>【節目名稱】：一點叮一叮.2017-06-19
 <br>【節目頻道】：881
@@ -124,9 +124,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205262
 <br>【MediaFire】：http://adf.ly/1n1xpv
 <br>【MediaFire】：http://www.linkbucks.com/CE8Qp
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n2Ujv
+<br>【百度網盤】：http://www.linkbucks.com/CHNMr
+<br>【百度密碼】：u7xf
 
 <br>【節目名稱】：你好嘢.2017-06-19
 <br>【節目頻道】：903
@@ -145,9 +145,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208206218
 <br>【MediaFire】：http://adf.ly/1n1xh3
 <br>【MediaFire】：http://www.linkbucks.com/CE84c
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n2Uj0
+<br>【百度網盤】：http://www.linkbucks.com/CHNPs
+<br>【百度密碼】：gx6d
 
 <br>【節目名稱】：口水多過浪花.2017-06-19
 <br>【節目頻道】：903
@@ -157,9 +157,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208209076
 <br>【MediaFire】：http://adf.ly/1n1xg4
 <br>【MediaFire】：http://www.linkbucks.com/CE85K
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n2UhA
+<br>【百度網盤】：http://www.linkbucks.com/CHNYA
+<br>【百度密碼】：3sbd
 
 <br>【節目名稱】：毒檸王國.2017-06-19
 <br>【節目頻道】：903
@@ -169,9 +169,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208205446
 <br>【MediaFire】：http://adf.ly/1n1xnX
 <br>【MediaFire】：http://www.linkbucks.com/CE8d1
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n2Ug8
+<br>【百度網盤】：http://www.linkbucks.com/CHNh0
+<br>【百度密碼】：82em
 
 <br>【節目名稱】：集雜志.2017-06-19
 <br>【節目頻道】：903
@@ -217,9 +217,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208242490
 <br>【MediaFire】：http://adf.ly/1n27mK
 <br>【MediaFire】：http://www.linkbucks.com/CFpdk
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n2UfR
+<br>【百度網盤】：http://www.linkbucks.com/CHNmT
+<br>【百度密碼】：srda
 
 <br>【節目名稱】：雲妮鍾情.2017-06-19
 <br>【節目頻道】：903
@@ -247,9 +247,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208249398
 <br>【MediaFire】：http://adf.ly/1n27dS
 <br>【MediaFire】：http://www.linkbucks.com/CFrp7
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n2Ueo
+<br>【百度網盤】：http://www.linkbucks.com/CHNq9
+<br>【百度密碼】：wgu9
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-06-19
 <br>【節目頻道】：903
@@ -259,9 +259,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208270709
 <br>【MediaFire】：http://adf.ly/1n2Sgk
 <br>【MediaFire】：http://www.linkbucks.com/CG6Nz
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n2Udw
+<br>【百度網盤】：http://www.linkbucks.com/CHNum
+<br>【百度密碼】：snyv
 
 <br>【節目名稱】：月光光呵呵呵.2017-06-19
 <br>【節目頻道】：881
@@ -269,8 +269,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208270413
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n2UcI
+<br>【MediaFire】：http://www.linkbucks.com/CHPKe
 
 <br>【節目名稱】：廣東爆谷.2017-06-19
 <br>【節目頻道】：903
@@ -278,8 +278,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208269820
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n2Ubx
+<br>【MediaFire】：http://www.linkbucks.com/CHPMs
 
 <br>【節目名稱】：一切從音樂開始.2017-06-19
 <br>【節目頻道】：881 & 903
@@ -287,5 +287,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208269445
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n2Ubb
+<br>【MediaFire】：http://www.linkbucks.com/CHPPN
