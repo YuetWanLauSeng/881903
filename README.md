@@ -166,7 +166,7 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-21
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208491036
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -178,7 +178,7 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-21
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208491362
 <br>【MediaFire】：
 <br>【MediaFire】：
 
