@@ -143,8 +143,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-21
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208466817
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n4Abs
+<br>【MediaFire】：http://www.linkbucks.com/CNZyQ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -155,8 +155,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-21
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208467298
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n4AbB
+<br>【MediaFire】：http://www.linkbucks.com/CNZ0b
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -167,8 +167,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-21
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208491036
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n4AaJ
+<br>【MediaFire】：http://www.linkbucks.com/CNaDm
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -179,8 +179,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-21
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208491362
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n4AXo
+<br>【MediaFire】：http://www.linkbucks.com/CNafC
 
 <br>【節目名稱】：人民大道中.2017-06-21
 <br>【節目頻道】：881
@@ -194,9 +194,9 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208494127
+<br>【MediaFire】：http://adf.ly/1n4AUt
+<br>【MediaFire】：http://www.linkbucks.com/CNapx
 
 <br>【節目名稱】：杏林茶.2017-06-21
 <br>【節目頻道】：881
@@ -233,9 +233,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208504657
+<br>【MediaFire】：http://adf.ly/1n4ATE
+<br>【MediaFire】：http://www.linkbucks.com/CNaxW
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
