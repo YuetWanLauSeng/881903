@@ -166,7 +166,7 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208623240
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
