@@ -178,7 +178,7 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208661910
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -187,7 +187,7 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-06-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208660079
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -196,7 +196,7 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208658044
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -205,7 +205,7 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208661653
 <br>【MediaFire】：
 <br>【MediaFire】：
 
