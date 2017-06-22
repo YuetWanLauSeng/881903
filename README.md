@@ -70,9 +70,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208554896
 <br>【MediaFire】：http://adf.ly/1n4edK
 <br>【MediaFire】：http://www.linkbucks.com/CSfiE
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n57j6
+<br>【百度網盤】：http://www.linkbucks.com/CTENe
+<br>【百度密碼】：3zc4
 
 <br>【節目名稱】：1圈圈.2017-06-22
 <br>【節目頻道】：881
@@ -91,9 +91,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208566038
 <br>【MediaFire】：http://adf.ly/1n4ei9
 <br>【MediaFire】：http://www.linkbucks.com/CSfa4
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n57mI
+<br>【百度網盤】：http://www.linkbucks.com/CTDzq
+<br>【百度密碼】：dj6g
 
 <br>【節目名稱】：叱咤樂壇.2017-06-22
 <br>【節目頻道】：903
@@ -145,9 +145,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208616033
 <br>【MediaFire】：http://adf.ly/1n4v1q
 <br>【MediaFire】：http://www.linkbucks.com/CQIzo
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n57kK
+<br>【百度網盤】：http://www.linkbucks.com/CTECv
+<br>【百度密碼】：dyqs
 
 <br>【節目名稱】：口水多過浪花.2017-06-22
 <br>【節目頻道】：903
@@ -157,9 +157,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208616238
 <br>【MediaFire】：http://adf.ly/1n4uzg
 <br>【MediaFire】：http://www.linkbucks.com/CQI6Z
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n57lG
+<br>【百度網盤】：http://www.linkbucks.com/CTD7m
+<br>【百度密碼】：7tgb
 
 <br>【節目名稱】：毒檸王國.2017-06-22
 <br>【節目頻道】：903
@@ -226,27 +226,27 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208670746
+<br>【MediaFire】：http://adf.ly/1n57nE
+<br>【MediaFire】：http://www.linkbucks.com/CTDv3
 
 <br>【節目名稱】：書.情.歌.2017-06-22
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-06-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208670132
+<br>【MediaFire】：http://adf.ly/1n57o1
+<br>【MediaFire】：http://www.linkbucks.com/CTDqt
 
 <br>【節目名稱】：光明頂.2017-06-22
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208672280
+<br>【MediaFire】：http://adf.ly/1n584i
+<br>【MediaFire】：http://www.linkbucks.com/CSQz3
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
