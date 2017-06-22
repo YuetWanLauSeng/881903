@@ -100,7 +100,7 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-06-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208587427
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -112,18 +112,18 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-06-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208589675
+<br>【MediaFire】：http://adf.ly/1n4jDf
+<br>【MediaFire】：http://www.linkbucks.com/CTGf9
 
 <br>【節目名稱】：人生交叉盤.2017-06-22
 <br>【節目頻道】：881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-06-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208588175
+<br>【MediaFire】：http://adf.ly/1n4jFW
+<br>【MediaFire】：http://www.linkbucks.com/CTGaK
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -133,9 +133,9 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-06-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208590985
+<br>【MediaFire】：http://adf.ly/1n4jFw
+<br>【MediaFire】：http://www.linkbucks.com/CTGX3
 
 <br>【節目名稱】：大玩派.2017-06-22
 <br>【節目頻道】：881
