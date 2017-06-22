@@ -101,8 +101,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-06-22
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208587427
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n4kSr
+<br>【MediaFire】：http://www.linkbucks.com/CPuHO
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -142,7 +142,7 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208616033
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -154,7 +154,7 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208616238
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
