@@ -79,18 +79,18 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-06-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208740685
+<br>【MediaFire】：http://adf.ly/1n5icV
+<br>【MediaFire】：http://www.linkbucks.com/CTo8S
 
 <br>【節目名稱】：十八樓C座.2017-06-23
 <br>【節目頻道】：881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-06-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208740341
+<br>【MediaFire】：http://adf.ly/1n5idC
+<br>【MediaFire】：http://www.linkbucks.com/CTo7A
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
