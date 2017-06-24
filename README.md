@@ -73,39 +73,39 @@
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208870179
+<br>【MediaFire】：http://adf.ly/1n6o6q
+<br>【MediaFire】：http://www.linkbucks.com/ArTHg
 
 <br>【節目名稱】：中風危機解密.2017-06-24
 <br>【節目頻道】：881
 <br>【節目主持】：阮子健
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208870587
+<br>【MediaFire】：http://adf.ly/1n6o8V
+<br>【MediaFire】：http://www.linkbucks.com/ArTFV
 
 <br>【節目名稱】：電影圈.2017-06-24
 <br>【節目頻道】：881
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208870348
+<br>【MediaFire】：http://adf.ly/1n6o6O
+<br>【MediaFire】：http://www.linkbucks.com/ArTIs
 
 <br>【節目名稱】：咪芝蓮.2017-06-24
 <br>【節目頻道】：903
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208870484
+<br>【MediaFire】：http://adf.ly/1n6o7U
+<br>【MediaFire】：http://www.linkbucks.com/ArTGT
+<br>【百度網盤】：http://adf.ly/1n6oFo
+<br>【百度網盤】：http://www.linkbucks.com/ArS17
+<br>【百度密碼】：ewpm
 
 <br>【節目名稱】：咆哮山莊.2017-06-24
 <br>【節目頻道】：903
