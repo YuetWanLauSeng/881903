@@ -112,48 +112,48 @@
 <br>【節目主持】：DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208872956
+<br>【MediaFire】：http://adf.ly/1n6pxp
+<br>【MediaFire】：http://www.linkbucks.com/ArRIt
 
 <br>【節目名稱】：1圈圈 (周末版).2017-06-24
 <br>【節目頻道】：881
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208878918
+<br>【MediaFire】：http://adf.ly/1n72Lc
+<br>【MediaFire】：http://www.linkbucks.com/AraYX
 
 <br>【節目名稱】：豁達推介.2017-06-24
 <br>【節目頻道】：903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208879486
+<br>【MediaFire】：http://adf.ly/1n72NI
+<br>【MediaFire】：http://www.linkbucks.com/AraUa
 
 <br>【節目名稱】：大鐵人.2017-06-24
 <br>【節目頻道】：881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208879783
+<br>【MediaFire】：http://adf.ly/1n72Pf
+<br>【MediaFire】：http://www.linkbucks.com/AraRT
 
 <br>【節目名稱】：3號螺絲釘.2017-06-24
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-06-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208881509
+<br>【MediaFire】：http://adf.ly/1n72Oi
+<br>【MediaFire】：http://www.linkbucks.com/AraS7
+<br>【百度網盤】：http://adf.ly/1n72r3
+<br>【百度網盤】：http://www.linkbucks.com/ArZ8e
+<br>【百度密碼】：wf6d
 
 <br>【節目名稱】：第三齡接觸.2017-06-24
 <br>【節目頻道】：881
