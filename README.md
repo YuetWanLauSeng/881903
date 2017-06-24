@@ -160,7 +160,7 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208899150
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -169,7 +169,7 @@
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208899270
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -178,7 +178,7 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208898917
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -187,7 +187,7 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208899084
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -204,7 +204,7 @@
 <br>【節目頻道】：903
 <br>【節目日期】：2017-06-24
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：吳家麗
 <br>【檔案名稱】：The Playtoy Mansion.2017-06-24
 <br>【城通網盤】：
 <br>【MediaFire】：
