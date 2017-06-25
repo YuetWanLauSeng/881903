@@ -73,7 +73,7 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208970728
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -82,7 +82,7 @@
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208970986
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -91,7 +91,7 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208971521
 <br>【MediaFire】：
 <br>【MediaFire】：
 
