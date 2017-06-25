@@ -196,7 +196,7 @@
 <br>【節目日期】：2017-06-24
 <br>【節目主持】：時美真
 <br>【檔案名稱】：Education Forum.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208913533
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -206,7 +206,7 @@
 <br>【節目主持】：森美
 <br>【訪問嘉賓】：吳家麗
 <br>【檔案名稱】：The Playtoy Mansion.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208914322
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -218,7 +218,7 @@
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208913894
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -227,7 +227,7 @@
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208914046
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -239,6 +239,6 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-24
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208913326
 <br>【MediaFire】：
 <br>【MediaFire】：
