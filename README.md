@@ -124,7 +124,7 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974604
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -133,7 +133,7 @@
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974802
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -142,7 +142,7 @@
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974966
 <br>【MediaFire】：
 <br>【MediaFire】：
 
