@@ -101,8 +101,8 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974242
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n84b7
+<br>【MediaFire】：http://www.linkbucks.com/AreBx
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -113,8 +113,8 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974221
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n84b7
+<br>【MediaFire】：http://www.linkbucks.com/AreBF
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -151,9 +151,9 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-06-25
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208976299
+<br>【MediaFire】：http://adf.ly/1n85NF
+<br>【MediaFire】：http://www.linkbucks.com/Ardke
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -163,7 +163,7 @@
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208975974
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -172,9 +172,9 @@
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-06-25
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208975853
+<br>【MediaFire】：http://adf.ly/1n85Fm
+<br>【MediaFire】：http://www.linkbucks.com/Ardqm
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
