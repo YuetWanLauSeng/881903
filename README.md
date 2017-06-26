@@ -76,8 +76,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208970728
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8SwZ
+<br>【MediaFire】：http://www.linkbucks.com/ArqWC
 
 <br>【節目名稱】：兒童適宜.2017-06-25
 <br>【節目頻道】：903
@@ -85,8 +85,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208970986
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8Suv
+<br>【MediaFire】：http://www.linkbucks.com/ArqZ4
 
 <br>【節目名稱】：Mali Mali Home.2017-06-25
 <br>【節目頻道】：903
@@ -94,8 +94,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208971521
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8Sxe
+<br>【MediaFire】：http://www.linkbucks.com/ArqU2
 
 <br>【節目名稱】：串.2017-06-25
 <br>【節目頻道】：881
@@ -105,9 +105,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974242
 <br>【MediaFire】：http://adf.ly/1n84b7
 <br>【MediaFire】：http://www.linkbucks.com/AreBx
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n8T0W
+<br>【百度網盤】：http://www.linkbucks.com/ArqRZ
+<br>【百度密碼】：t2ci
 
 <br>【節目名稱】：讀懂中國.2017-06-25
 <br>【節目頻道】：881
@@ -117,9 +117,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974221
 <br>【MediaFire】：http://adf.ly/1n84b7
 <br>【MediaFire】：http://www.linkbucks.com/AreBF
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n8T08
+<br>【百度網盤】：http://www.linkbucks.com/ArqRv
+<br>【百度密碼】：a9mq
 
 <br>【節目名稱】：國語類.2017-06-25
 <br>【節目頻道】：903
@@ -127,8 +127,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974604
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8SuK
+<br>【MediaFire】：http://www.linkbucks.com/Arqac
 
 <br>【節目名稱】：泡菜粉絲煲.2017-06-25
 <br>【節目頻道】：881
@@ -156,9 +156,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208976299
 <br>【MediaFire】：http://adf.ly/1n85NF
 <br>【MediaFire】：http://www.linkbucks.com/Ardke
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n8TPx
+<br>【百度網盤】：http://www.linkbucks.com/Arpwc
+<br>【百度密碼】：8puc
 
 <br>【節目名稱】：帶一本書去旅行.2017-06-25
 <br>【節目頻道】：881
@@ -177,9 +177,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208975853
 <br>【MediaFire】：http://adf.ly/1n85Fm
 <br>【MediaFire】：http://www.linkbucks.com/Ardqm
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1n8SzK
+<br>【百度網盤】：http://www.linkbucks.com/ArqSz
+<br>【百度密碼】：hrgr
 
 <br>【節目名稱】：短期租約.2017-06-25
 <br>【節目頻道】：903
@@ -187,8 +187,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208997023
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8Stx
+<br>【MediaFire】：http://www.linkbucks.com/Arqbe
 
 <br>【節目名稱】：心靈料理.2017-06-25
 <br>【節目頻道】：881
@@ -214,5 +214,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208996263
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8StW
+<br>【MediaFire】：http://www.linkbucks.com/ArqcN
