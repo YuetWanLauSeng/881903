@@ -2,6 +2,8 @@
 ### 歡迎到本人的論壇進行查閱
 ### http://www.yuetwanlauseng.com
 
+<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
+
 <br>【節目名稱】：書.情.歌.2017-06-25
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
@@ -134,8 +136,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974802
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8R1R
+<br>【MediaFire】：http://www.linkbucks.com/ArtaM
 
 <br>【節目名稱】：細路強.2017-06-25
 <br>【節目頻道】：881
@@ -143,8 +145,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208974966
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8R0r
+<br>【MediaFire】：http://www.linkbucks.com/ArtcA
 
 <br>【節目名稱】：國民教育.2017-06-25
 <br>【節目頻道】：903
@@ -164,8 +166,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-06-25
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208975974
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8R2e
+<br>【MediaFire】：http://www.linkbucks.com/ArtXP
 
 <br>【節目名稱】：葛民教育.2017-06-25
 <br>【節目頻道】：881
@@ -184,7 +186,7 @@
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208997023
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -193,24 +195,24 @@
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-06-25
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208996334
+<br>【MediaFire】：http://adf.ly/1n8R1y
+<br>【MediaFire】：http://www.linkbucks.com/ArtZI
 
 <br>【節目名稱】：寫生活.2017-06-25
 <br>【節目頻道】：881
 <br>【節目主持】：主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-06-25
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208996000
+<br>【MediaFire】：http://adf.ly/1n8R0I
+<br>【MediaFire】：http://www.linkbucks.com/Artdb
 
 <br>【節目名稱】：一切從音樂開始.2017-06-25
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-25
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-208996263
 <br>【MediaFire】：
 <br>【MediaFire】：
