@@ -103,8 +103,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-06-26
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209062200
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8sd0
+<br>【MediaFire】：http://www.linkbucks.com/AsDRl
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -124,8 +124,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-06-26
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209064173
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8snL
+<br>【MediaFire】：http://www.linkbucks.com/AsDCh
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -136,8 +136,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-06-26
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209067769
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8smG
+<br>【MediaFire】：http://www.linkbucks.com/AsDDo
 
 <br>【節目名稱】：大玩派.2017-06-26
 <br>【節目頻道】：881
@@ -145,8 +145,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-26
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209083724
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8slP
+<br>【MediaFire】：http://www.linkbucks.com/AsDEc
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -157,8 +157,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-26
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209086328
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n8skS
+<br>【MediaFire】：http://www.linkbucks.com/AsDGb
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
