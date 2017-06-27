@@ -228,9 +228,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209306043
+<br>【MediaFire】：http://adf.ly/1nA324
+<br>【MediaFire】：http://www.linkbucks.com/Ar5Lg
 
 <br>【節目名稱】：書.情.歌.2017-06-27
 <br>【節目頻道】：881
@@ -243,19 +243,19 @@
 <br>【節目頻道】：881
 <br>【節目主持】：熊書頤
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Hair Again2017-06-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【檔案名稱】：Hair Again.2017-06-27
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209305542
+<br>【MediaFire】：http://adf.ly/1nA33J
+<br>【MediaFire】：http://www.linkbucks.com/Ar5LQ
 
 <br>【節目名稱】：光明頂.2017-06-27
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209307522
+<br>【MediaFire】：http://adf.ly/1nA3Zx
+<br>【MediaFire】：http://www.linkbucks.com/Ar48J
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
