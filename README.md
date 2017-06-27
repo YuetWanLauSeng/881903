@@ -181,8 +181,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-27
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209277805
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n9wpu
+<br>【MediaFire】：http://www.linkbucks.com/Art89
 
 <br>【節目名稱】：人民大道中.2017-06-27
 <br>【節目頻道】：881
@@ -190,8 +190,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-06-27
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209276302
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n9wsS
+<br>【MediaFire】：http://www.linkbucks.com/Art8U
 
 <br>【節目名稱】：生活日常.2017-06-27
 <br>【節目頻道】：903
@@ -199,8 +199,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-27
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209285230
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n9wtK
+<br>【MediaFire】：http://www.linkbucks.com/Art8J
 
 <br>【節目名稱】：杏林茶.2017-06-27
 <br>【節目頻道】：881
@@ -208,17 +208,17 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-27
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209285453
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1n9wrk
+<br>【MediaFire】：http://www.linkbucks.com/Art8i
 
 <br>【節目名稱】：串.2017-06-27
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209299116
+<br>【MediaFire】：http://adf.ly/1n9xCn
+<br>【MediaFire】：http://www.linkbucks.com/Artw1
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
