@@ -169,8 +169,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-28
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209500610
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nAxpi
+<br>【MediaFire】：http://www.linkbucks.com/AsVbN
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -180,7 +180,7 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-28
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209516747
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -196,7 +196,7 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-28
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209515342
 <br>【MediaFire】：
 <br>【MediaFire】：
 
