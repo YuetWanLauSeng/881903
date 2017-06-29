@@ -12,9 +12,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209654297
 <br>【MediaFire】：http://adf.ly/1nBTvg
 <br>【MediaFire】：http://www.linkbucks.com/AsKkl
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBpyX
+<br>【百度網盤】：http://www.linkbucks.com/AsbvR
+<br>【百度密碼】：iuxf
 
 <br>【節目名稱】：在晴朗的一天出發（881）.2017-06-29
 <br>【節目頻道】：881
@@ -24,9 +24,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209653035
 <br>【MediaFire】：http://adf.ly/1nBUAy
 <br>【MediaFire】：http://www.linkbucks.com/AsKUZ
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBq5L
+<br>【百度網盤】：http://www.linkbucks.com/Asbs1
+<br>【百度密碼】：w79g
 
 <br>【節目名稱】：早安，同學早.2017-06-29
 <br>【節目頻道】：903
@@ -36,9 +36,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209652557
 <br>【MediaFire】：http://adf.ly/1nBTxs
 <br>【MediaFire】：http://www.linkbucks.com/AsKiW
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBq6T
+<br>【百度網盤】：http://www.linkbucks.com/Asbsu
+<br>【百度密碼】：tnnb
 
 <br>【節目名稱】：在晴朗的一天出發（903）.2017-06-29
 <br>【節目頻道】：903
@@ -48,9 +48,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209653317
 <br>【MediaFire】：http://adf.ly/1nBTxP
 <br>【MediaFire】：http://www.linkbucks.com/AsKiu
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBq6z
+<br>【百度網盤】：http://www.linkbucks.com/Asbsh
+<br>【百度密碼】：fqwt
 
 <br>【節目名稱】：夢熊有召.2017-06-29
 <br>【節目頻道】：881
@@ -60,9 +60,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209652632
 <br>【MediaFire】：http://adf.ly/1nBTwv
 <br>【MediaFire】：http://www.linkbucks.com/AsKjN
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBq8n
+<br>【百度網盤】：http://www.linkbucks.com/Asbr9
+<br>【百度密碼】：rd6c
 
 <br>【節目名稱】：早霸王.2017-06-29
 <br>【節目頻道】：903
@@ -72,9 +72,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209652411
 <br>【MediaFire】：http://adf.ly/1nBTwV
 <br>【MediaFire】：http://www.linkbucks.com/AsKjs
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBq9u
+<br>【百度網盤】：http://www.linkbucks.com/Asbr0
+<br>【百度密碼】：2h59
 
 <br>【節目名稱】：1圈圈.2017-06-29
 <br>【節目頻道】：881
@@ -93,9 +93,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209671499
 <br>【MediaFire】：http://adf.ly/1nBVLV
 <br>【MediaFire】：http://www.linkbucks.com/AsJVo
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBqAV
+<br>【百度網盤】：http://www.linkbucks.com/AsbrD
+<br>【百度密碼】：5189
 
 <br>【節目名稱】：叱咤樂壇.2017-06-29
 <br>【節目頻道】：903
@@ -105,9 +105,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209716992
 <br>【MediaFire】：http://adf.ly/1nBc0r
 <br>【MediaFire】：http://www.linkbucks.com/AsThv
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBqBS
+<br>【百度網盤】：http://www.linkbucks.com/Asbqs
+<br>【百度密碼】：kvuh
 
 <br>【節目名稱】：一點叮一叮.2017-06-29
 <br>【節目頻道】：881
@@ -126,16 +126,16 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209717129
 <br>【MediaFire】：http://adf.ly/1nBc2A
 <br>【MediaFire】：http://www.linkbucks.com/AsThJ
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBqD9
+<br>【百度網盤】：http://www.linkbucks.com/AsbqL
+<br>【百度密碼】：x8pk
 
 <br>【節目名稱】：你好嘢.2017-06-29
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-06-29
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209740361
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-06-29
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209726803
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nBqaK
+<br>【MediaFire】：http://www.linkbucks.com/AsbkE
 
 <br>【節目名稱】：人民大道中.2017-06-29
 <br>【節目頻道】：881
@@ -190,15 +190,15 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-06-29
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209726740
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nBqZn
+<br>【MediaFire】：http://www.linkbucks.com/AsbkP
 
 <br>【節目名稱】：生活日常.2017-06-29
 <br>【節目頻道】：903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-29
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209738711
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -207,7 +207,7 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-06-29
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209740218
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -216,9 +216,9 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-06-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209739901
+<br>【MediaFire】：http://adf.ly/1nBqXn
+<br>【MediaFire】：http://www.linkbucks.com/Asbk0
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -237,18 +237,18 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-06-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209738744
+<br>【MediaFire】：http://adf.ly/1nBqZA
+<br>【MediaFire】：http://www.linkbucks.com/Asbki
 
 <br>【節目名稱】：光明頂.2017-06-29
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-06-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209743255
+<br>【MediaFire】：http://adf.ly/1nBqbm
+<br>【MediaFire】：http://www.linkbucks.com/Asbjd
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
