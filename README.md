@@ -216,9 +216,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209581383
+<br>【MediaFire】：http://adf.ly/1nBMlK
+<br>【MediaFire】：http://www.linkbucks.com/Asqpp
 
 <br>【節目名稱】：書.情.歌.2017-06-28
 <br>【節目頻道】：881
@@ -235,45 +235,45 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209533869
 <br>【MediaFire】：http://adf.ly/1nB3BO
 <br>【MediaFire】：http://www.linkbucks.com/AsSPT
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nBMmJ
+<br>【百度網盤】：http://www.linkbucks.com/Asqoi
+<br>【百度密碼】：qrih
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-06-28
 <br>【節目頻道】：903
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-06-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209574553
+<br>【MediaFire】：http://adf.ly/1nBMkZ
+<br>【MediaFire】：http://www.linkbucks.com/Asqra
+<br>【百度網盤】：http://adf.ly/1nBMn1
+<br>【百度網盤】：http://www.linkbucks.com/Asqmg
+<br>【百度密碼】：qdgk
 
 <br>【節目名稱】：月光光呵呵呵.2017-06-28
 <br>【節目頻道】：881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209574035
+<br>【MediaFire】：http://adf.ly/1nBMjY
+<br>【MediaFire】：http://www.linkbucks.com/Asquq
 
 <br>【節目名稱】：廣東爆谷.2017-06-28
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-06-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209568217
+<br>【MediaFire】：http://adf.ly/1nBMjz
+<br>【MediaFire】：http://www.linkbucks.com/AsqtE
 
 <br>【節目名稱】：一切從音樂開始.2017-06-28
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209564799
+<br>【MediaFire】：http://adf.ly/1nBNdX
+<br>【MediaFire】：http://www.linkbucks.com/Asopg
