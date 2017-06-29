@@ -2,7 +2,7 @@
 ### 歡迎到本人的論壇進行查閱
 ### http://www.yuetwanlauseng.com
 
-<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
+<<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：有誰共鳴.2017-06-29
 <br>【節目頻道】：903
@@ -102,9 +102,9 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-06-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209716992
+<br>【MediaFire】：http://adf.ly/1nBc0r
+<br>【MediaFire】：http://www.linkbucks.com/AsThv
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -114,18 +114,18 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-06-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209717249
+<br>【MediaFire】：http://adf.ly/1nBc1W
+<br>【MediaFire】：http://www.linkbucks.com/AsThi
 
 <br>【節目名稱】：人生交叉盤.2017-06-29
 <br>【節目頻道】：881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-06-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209717129
+<br>【MediaFire】：http://adf.ly/1nBc2A
+<br>【MediaFire】：http://www.linkbucks.com/AsThJ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
