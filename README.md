@@ -2,7 +2,7 @@
 ### 歡迎到本人的論壇進行查閱
 ### http://www.yuetwanlauseng.com
 
-<<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
+<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：有誰共鳴.2017-06-29
 <br>【節目頻道】：903
@@ -144,7 +144,7 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-06-29
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209721615
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -156,7 +156,7 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-06-29
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209722248
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -168,7 +168,7 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-06-29
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209721310
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
