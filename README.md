@@ -168,9 +168,9 @@
 <BR>【節目主持】：檸
 <BR>【節目時間】：17:00 - 18:00
 <BR>【檔案名稱】：Dokureioukoku.2017-06-30
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209846138
+<BR>【MediaFire】：http://adf.ly/1nCUm0
+<BR>【MediaFire】：http://www.linkbucks.com/AspMy
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
