@@ -10,8 +10,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：Morning Glory.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209937777
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGGK
+<br>【MediaFire】：http://www.linkbucks.com/Asswl
 
 <br>【節目名稱】：好醒晨.2017-07-01
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：So Sunshine.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209939443
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGEj
+<br>【MediaFire】：http://www.linkbucks.com/AssyQ
 
 <br>【節目名稱】：橙咇咇.2017-07-01
 <br>【節目頻道】：903
@@ -28,8 +28,8 @@
 <br>【節目時間】：08:00 - 09:00
 <br>【檔案名稱】：Orange Day.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209938271
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGJM
+<br>【MediaFire】：http://www.linkbucks.com/AsstF
 
 <br>【節目名稱】：政經星期六.2017-07-01
 <br>【節目頻道】：881
@@ -37,8 +37,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Saturday Forum.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209939086
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGDo
+<br>【MediaFire】：http://www.linkbucks.com/Assy7
 
 <br>【節目名稱】：西加航空.2017-07-01
 <br>【節目頻道】：903
@@ -46,8 +46,8 @@
 <br>【節目時間】：09:00 - 11:00
 <br>【檔案名稱】：J.A.L.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209937105
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGFD
+<br>【MediaFire】：http://www.linkbucks.com/Assxf
 
 <br>【節目名稱】：潮爆開運王.2017-07-01
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Weekend Lucky Star.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209939915
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGKx
+<br>【MediaFire】：http://www.linkbucks.com/Assr5
 
 <br>【節目名稱】：考股專家.2017-07-01
 <br>【節目頻道】：881
@@ -64,8 +64,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：Stockaeologist.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209939631
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGLY
+<br>【MediaFire】：http://www.linkbucks.com/AssrO
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -76,8 +76,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209941669
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGFq
+<br>【MediaFire】：http://www.linkbucks.com/AssxA
 
 <br>【節目名稱】：中風危機解密.2017-07-01
 <br>【節目頻道】：881
@@ -99,8 +99,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209941774
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGK5
+<br>【MediaFire】：http://www.linkbucks.com/AsssY
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -111,8 +111,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209941890
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDGH3
+<br>【MediaFire】：http://www.linkbucks.com/AsswR
 
 <br>【節目名稱】：1圈圈 (周末版).2017-07-01
 <br>【節目頻道】：881
@@ -127,8 +127,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209963370
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDH5c
+<br>【MediaFire】：http://www.linkbucks.com/Ac2vr
 
 <br>【節目名稱】：大鐵人.2017-07-01
 <br>【節目頻道】：881
@@ -143,8 +143,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209964755
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDH5q
+<br>【MediaFire】：http://www.linkbucks.com/Ac2vj
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -154,18 +154,18 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-07-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209968166
+<br>【MediaFire】：http://adf.ly/1nDHyt
+<br>【MediaFire】：http://www.linkbucks.com/tTMq
 
 <br>【節目名稱】：西瓜大發.2017-07-01
 <br>【節目頻道】：903
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-07-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209967699
+<br>【MediaFire】：http://adf.ly/1nDHyE
+<br>【MediaFire】：http://www.linkbucks.com/tvWj
 
 <br>【節目名稱】：雷霆音樂圈.2017-07-01
 <br>【節目頻道】：881
