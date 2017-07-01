@@ -199,8 +199,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-06-30
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209926122
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nCykb
+<br>【MediaFire】：http://www.linkbucks.com/AtRnH
 
 <br>【節目名稱】：杏林茶.2017-06-30
 <br>【節目頻道】：881
@@ -229,8 +229,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Vanila Sky.2017-06-30
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209927044
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nCyjs
+<br>【MediaFire】：http://www.linkbucks.com/AtRoI
 
 <br>【節目名稱】：書.情.歌.2017-06-30
 <br>【節目頻道】：881
@@ -256,9 +256,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209894513
 <br>【MediaFire】：http://adf.ly/1nCd4M
 <br>【MediaFire】：http://www.linkbucks.com/As16a
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nCywG
+<br>【百度網盤】：http://www.linkbucks.com/AtRcO
+<br>【百度密碼】：869q
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-06-30
 <br>【節目頻道】：903
@@ -266,11 +266,11 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-06-30
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209926589
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nCyj2
+<br>【MediaFire】：http://www.linkbucks.com/AtRoX
+<br>【百度網盤】：http://adf.ly/1nCyy3
+<br>【百度網盤】：http://www.linkbucks.com/AtRa8
+<br>【百度密碼】：8mh7
 
 <br>【節目名稱】：月光光呵呵呵.2017-06-30
 <br>【節目頻道】：881
@@ -278,8 +278,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-06-30
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209926062
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nCyiR
+<br>【MediaFire】：http://www.linkbucks.com/AtRpA
 
 <br>【節目名稱】：廣東爆谷.2017-06-30
 <br>【節目頻道】：903
@@ -287,8 +287,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-06-30
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209925961
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nCyi0
+<br>【MediaFire】：http://www.linkbucks.com/AtRpV
 
 <br>【節目名稱】：一切從音樂開始.2017-06-30
 <br>【節目頻道】：881 & 903
@@ -296,5 +296,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-06-30
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209925762
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nCyhM
+<br>【MediaFire】：http://www.linkbucks.com/AtRqN
