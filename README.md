@@ -126,7 +126,7 @@
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-07-01
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209963370
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -142,7 +142,7 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-07-01
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209964755
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
