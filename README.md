@@ -75,7 +75,7 @@
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-07-01
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209941669
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -98,7 +98,7 @@
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-07-01
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209941774
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
