@@ -164,8 +164,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209976396
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDs22
+<br>【MediaFire】：http://www.linkbucks.com/AtBZe
 
 <br>【節目名稱】：雷霆音樂圈.2017-07-01
 <br>【節目頻道】：881
@@ -173,8 +173,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209976048
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDsEN
+<br>【MediaFire】：http://www.linkbucks.com/AtBGy
 
 <br>【節目名稱】：Chi Chung's Class.2017-07-01
 <br>【節目頻道】：903
@@ -182,8 +182,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-209976112
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDs9g
+<br>【MediaFire】：http://www.linkbucks.com/AtBPt
 
 <br>【節目名稱】：與時並進.2017-07-01
 <br>【節目頻道】：881
@@ -191,8 +191,8 @@
 <br>【節目主持】：時美真
 <br>【檔案名稱】：Education Forum.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210001463
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDqgm
+<br>【MediaFire】：http://www.linkbucks.com/AtDJu
 
 <br>【節目名稱】：公子會.2017-07-01
 <br>【節目頻道】：903
@@ -201,11 +201,11 @@
 <br>【訪問嘉賓】：Loretta
 <br>【檔案名稱】：The Playtoy Mansion.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210003180
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nDqf8
+<br>【MediaFire】：http://www.linkbucks.com/AtDLU
+<br>【百度網盤】：http://adf.ly/1nDqg8
+<br>【百度網盤】：http://www.linkbucks.com/AtDKQ
+<br>【百度密碼】：9fjj
 
 <br>【節目名稱】：發式生活.2017-07-01
 <br>【節目頻道】：881
@@ -213,8 +213,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210001759
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nDqeM
+<br>【MediaFire】：http://www.linkbucks.com/AtDMb
 
 <br>【節目名稱】：皇牌出場.2017-07-01
 <br>【節目頻道】：903
@@ -222,17 +222,17 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-07-01
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210002324
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nDqd1
+<br>【MediaFire】：http://www.linkbucks.com/AtDOP
+<br>【百度網盤】：http://adf.ly/1nDqdj
+<br>【百度網盤】：http://www.linkbucks.com/AtDNW
+<br>【百度密碼】：4zd3
 
 <br>【節目名稱】：一切從音樂開始.2017-07-01
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210004623
+<br>【MediaFire】：http://adf.ly/1nDq8U
+<br>【MediaFire】：http://www.linkbucks.com/AtDXB
