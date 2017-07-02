@@ -102,7 +102,7 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-07-02
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210017282
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -111,7 +111,7 @@
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-07-02
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210018270
 <br>【MediaFire】：
 <br>【MediaFire】：
 
