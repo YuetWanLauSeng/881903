@@ -181,17 +181,17 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210047193
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nEHwY
+<br>【MediaFire】：http://www.linkbucks.com/As1JF
 
 <br>【節目名稱】：國民教育.2017-07-02
 <br>【節目頻道】：903
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-07-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210066217
+<br>【MediaFire】：http://adf.ly/1nEIIb
+<br>【MediaFire】：http://www.linkbucks.com/As09i
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -201,7 +201,7 @@
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-07-02
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210065873
 <br>【MediaFire】：
 <br>【MediaFire】：
 
