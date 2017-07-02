@@ -10,8 +10,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：Reading Time.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210009733
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE97G
+<br>【MediaFire】：http://www.linkbucks.com/As5SH
 
 <br>【節目名稱】：一周紅人館.2017-07-02
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【節目時間】：06:00 - 09:00
 <br>【檔案名稱】：Star House.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210010434
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE9Bu
+<br>【MediaFire】：http://www.linkbucks.com/As5Oq
 
 <br>【節目名稱】：政好星期天.2017-07-02
 <br>【節目頻道】：881
@@ -28,8 +28,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Beautiful Sunday.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210008289
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE9Ca
+<br>【MediaFire】：http://www.linkbucks.com/As5Oa
 
 <br>【節目名稱】：Urban Touch.2017-07-02
 <br>【節目頻道】：903
@@ -37,8 +37,8 @@
 <br>【節目時間】：09:00 - 11:00
 <br>【檔案名稱】：Urban Touch.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210012052
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE9DP
+<br>【MediaFire】：http://www.linkbucks.com/As5OK
 
 <br>【節目名稱】：馬路的事我哋的事.2017-07-02
 <br>【節目頻道】：881
@@ -46,8 +46,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Road Co-op.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210008398
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE9Ea
+<br>【MediaFire】：http://www.linkbucks.com/As5N3
 
 <br>【節目名稱】：同途有心人.2017-07-02
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：The Way We Are.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210011641
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE9F8
+<br>【MediaFire】：http://www.linkbucks.com/As5Nh
 
 <br>【節目名稱】：讀賣Sunday.2017-07-02
 <br>【節目頻道】：903
@@ -64,11 +64,11 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210011493
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nE9G0
+<br>【MediaFire】：http://www.linkbucks.com/As5NA
+<br>【百度網盤】：http://adf.ly/1nEAkP
+<br>【百度網盤】：http://www.linkbucks.com/As4fp
+<br>【百度密碼】：agxt
 
 <br>【節目名稱】：中風危機解密.2017-07-02
 <br>【節目頻道】：881
@@ -76,8 +76,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210013306
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE9Gt
+<br>【MediaFire】：http://www.linkbucks.com/As5LV
 
 <br>【節目名稱】：電影圈.2017-07-02
 <br>【節目頻道】：881
@@ -85,8 +85,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210013004
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE9Hn
+<br>【MediaFire】：http://www.linkbucks.com/As5K4
 
 <br>【節目名稱】：無定向喪煲病狂.2017-07-02
 <br>【節目頻道】：903
@@ -94,8 +94,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210012394
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nE9IX
+<br>【MediaFire】：http://www.linkbucks.com/As5Kb
 
 <br>【節目名稱】：1圈圈 (周末版).2017-07-02
 <br>【節目頻道】：881
@@ -103,8 +103,8 @@
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210017282
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nEAKv
+<br>【MediaFire】：http://www.linkbucks.com/As4vr
 
 <br>【節目名稱】：兒童適宜.2017-07-02
 <br>【節目頻道】：903
@@ -121,8 +121,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210024267
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nEAh8
+<br>【MediaFire】：http://www.linkbucks.com/As4hF
 
 <br>【節目名稱】：Mali Mali Home.2017-07-02
 <br>【節目頻道】：903
@@ -130,8 +130,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210023819
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nEAhq
+<br>【MediaFire】：http://www.linkbucks.com/As4gt
 
 <br>【節目名稱】：串.2017-07-02
 <br>【節目頻道】：881
@@ -139,11 +139,11 @@
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210024047
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nEAis
+<br>【MediaFire】：http://www.linkbucks.com/As4fw
+<br>【百度網盤】：http://adf.ly/1nEAla
+<br>【百度網盤】：http://www.linkbucks.com/As4fT
+<br>【百度密碼】：rybg
 
 <br>【節目名稱】：讀懂中國.2017-07-02
 <br>【節目頻道】：881
@@ -151,11 +151,11 @@
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-07-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210025012
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nEAjQ
+<br>【MediaFire】：http://www.linkbucks.com/As4fu
+<br>【百度網盤】：http://adf.ly/1nEAmW
+<br>【百度網盤】：http://www.linkbucks.com/As4fD
+<br>【百度密碼】：icjy
 
 <br>【節目名稱】：國語類.2017-07-02
 <br>【節目頻道】：903
