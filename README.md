@@ -162,25 +162,25 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-07-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210042957
+<br>【MediaFire】：http://adf.ly/1nEFfp
+<br>【MediaFire】：http://www.linkbucks.com/As3Ip
 
 <br>【節目名稱】：泡菜粉絲煲.2017-07-02
 <br>【節目頻道】：881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-07-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210044546
+<br>【MediaFire】：http://adf.ly/1nEFgd
+<br>【MediaFire】：http://www.linkbucks.com/As3IJ
 
 <br>【節目名稱】：細路強.2017-07-02
 <br>【節目頻道】：881
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-07-02
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210047193
 <br>【MediaFire】：
 <br>【MediaFire】：
 
