@@ -75,7 +75,7 @@
 <br>【節目主持】：阮子健
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-07-02
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210013306
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -84,7 +84,7 @@
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-07-02
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210013004
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -93,7 +93,7 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-07-02
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210012394
 <br>【MediaFire】：
 <br>【MediaFire】：
 
