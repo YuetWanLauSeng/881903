@@ -220,8 +220,8 @@
 <BR>【節目時間】：22:00 - 22:30
 <BR>【檔案名稱】：Sino Stream.2017-07-03
 <BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210215245
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【MediaFire】：http://adf.ly/1nFCZ2
+<BR>【MediaFire】：http://www.linkbucks.com/AtRPJ
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
@@ -229,9 +229,9 @@
 <BR>【節目名稱】：雲妮鍾情.2017-07-03
 <BR>【節目頻道】：903
 <BR>【節目主持】：Vani
-<BR>【節目時間】：21:00 - 23:00
+<BR>【節目時間】：21:00 - 22:30
 <BR>【檔案名稱】：Vanila Sky.2017-07-03
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210216788
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 
@@ -240,26 +240,26 @@
 <BR>【節目主持】：葉宇澄
 <BR>【節目時間】：22:30 - 23:00
 <BR>【檔案名稱】：Reading Time.2017-07-03
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210216627
+<BR>【MediaFire】：http://adf.ly/1nFDPg
+<BR>【MediaFire】：http://www.linkbucks.com/AtQpA
 
 <BR>【節目名稱】：廣播劇 歐陽志強.2017-07-03
 <BR>【節目頻道】：903
 <BR>【節目時間】：22:30 - 23:00
 <BR>【檔案名稱】：歐陽志強.2017-07-03
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210216905
+<BR>【MediaFire】：http://adf.ly/1nFD5y
+<BR>【MediaFire】：http://www.linkbucks.com/AtQ6O
 
 <BR>【節目名稱】：光明頂.2017-07-03
 <BR>【節目頻道】：881
 <BR>【節目主持】：陶傑 | 嘉賓主持
 <BR>【節目時間】：23:00 - 00:00
 <BR>【檔案名稱】：Summit.2017-07-03
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210217710
+<BR>【MediaFire】：http://adf.ly/1nFDuz
+<BR>【MediaFire】：http://www.linkbucks.com/AtQUj
 <BR>【百度網盤】：
 <BR>【百度網盤】：
 <BR>【百度密碼】：
