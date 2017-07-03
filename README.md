@@ -180,7 +180,7 @@
 <BR>【節目主持】：急急子
 <BR>【節目時間】：18:00 - 19:00
 <BR>【檔案名稱】：Zine.2017-07-03
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210208085
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 
@@ -189,7 +189,7 @@
 <BR>【節目主持】：黃永 | 健吾
 <BR>【節目時間】：18:30 - 20:00
 <BR>【檔案名稱】：Our Way Out.2017-07-03
-<BR>【城通網盤】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210207030
 <BR>【MediaFire】：
 <BR>【MediaFire】：
 
