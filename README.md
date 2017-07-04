@@ -145,8 +145,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210267917
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nFs49
+<br>【MediaFire】：http://www.linkbucks.com/At7Sf
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -157,8 +157,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210269571
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nFs4y
+<br>【MediaFire】：http://www.linkbucks.com/At7Mz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -168,9 +168,9 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-07-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210279033
+<br>【MediaFire】：http://adf.ly/1nFs3S
+<br>【MediaFire】：http://www.linkbucks.com/At7S7
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
