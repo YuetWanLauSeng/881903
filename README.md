@@ -147,9 +147,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210267917
 <br>【MediaFire】：http://adf.ly/1nFs49
 <br>【MediaFire】：http://www.linkbucks.com/At7Sf
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nG4eY
+<br>【百度網盤】：http://www.linkbucks.com/Ateuo
+<br>【百度密碼】：xi3b
 
 <br>【節目名稱】：口水多過浪花.2017-07-04
 <br>【節目頻道】：903
@@ -159,9 +159,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210269571
 <br>【MediaFire】：http://adf.ly/1nFs4y
 <br>【MediaFire】：http://www.linkbucks.com/At7Mz
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nG4dr
+<br>【百度網盤】：http://www.linkbucks.com/AteP2
+<br>【百度密碼】：evhd
 
 <br>【節目名稱】：毒檸王國.2017-07-04
 <br>【節目頻道】：903
@@ -171,9 +171,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210279033
 <br>【MediaFire】：http://adf.ly/1nFs3S
 <br>【MediaFire】：http://www.linkbucks.com/At7S7
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nG4fc
+<br>【百度網盤】：http://www.linkbucks.com/AteuU
+<br>【百度密碼】：mx3f
 
 <br>【節目名稱】：集雜志.2017-07-04
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210285832
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nG4ka
+<br>【MediaFire】：http://www.linkbucks.com/AteYT
 
 <br>【節目名稱】：人民大道中.2017-07-04
 <br>【節目頻道】：881
@@ -199,8 +199,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210285571
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nG4jv
+<br>【MediaFire】：http://www.linkbucks.com/AteX7
 
 <br>【節目名稱】：杏林茶.2017-07-04
 <br>【節目頻道】：881
@@ -217,8 +217,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210288049
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nG4jN
+<br>【MediaFire】：http://www.linkbucks.com/AteXV
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -228,7 +228,7 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210292696
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -237,9 +237,9 @@
 <br>【節目主持】：903 DJ
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：廣播劇 歐陽志強.2017-07-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210292748
+<br>【MediaFire】：http://adf.ly/1nG6kV
+<br>【MediaFire】：http://www.linkbucks.com/AtdST
 
 <br>【節目名稱】：書.情.歌.2017-07-04
 <br>【節目頻道】：881
@@ -253,7 +253,7 @@
 <br>【節目主持】：熊書頤
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-07-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210292573
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -262,9 +262,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210292845
+<br>【MediaFire】：http://adf.ly/1nG6yP
+<br>【MediaFire】：http://www.linkbucks.com/Atc1w
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
