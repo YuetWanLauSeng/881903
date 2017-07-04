@@ -10,8 +10,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210242556
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nFeYX
+<br>【MediaFire】：http://www.linkbucks.com/AtwK4
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -22,8 +22,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210241196
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nFeYt
+<br>【MediaFire】：http://www.linkbucks.com/AtwKY
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -46,8 +46,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210242128
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nFeZC
+<br>【MediaFire】：http://www.linkbucks.com/AtwJJ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -70,8 +70,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210239934
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nFeZU
+<br>【MediaFire】：http://www.linkbucks.com/AtwIw
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -81,7 +81,7 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-07-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210253029
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -90,9 +90,9 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-07-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210252546
+<br>【MediaFire】：http://adf.ly/1nFea1
+<br>【MediaFire】：http://www.linkbucks.com/AtwIA
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
