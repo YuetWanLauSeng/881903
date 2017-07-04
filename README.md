@@ -12,9 +12,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210242556
 <br>【MediaFire】：http://adf.ly/1nFeYX
 <br>【MediaFire】：http://www.linkbucks.com/AtwK4
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nFh7F
+<br>【百度網盤】：http://www.linkbucks.com/Atsrg
+<br>【百度密碼】：y6jf
 
 <br>【節目名稱】：在晴朗的一天出發（881）.2017-07-04
 <br>【節目頻道】：881
@@ -24,9 +24,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210241196
 <br>【MediaFire】：http://adf.ly/1nFeYt
 <br>【MediaFire】：http://www.linkbucks.com/AtwKY
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nFh7s
+<br>【百度網盤】：http://www.linkbucks.com/AtsVw
+<br>【百度密碼】：uj2w
 
 <br>【節目名稱】：早安，同學早.2017-07-04
 <br>【節目頻道】：903
@@ -36,9 +36,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210240626
 <br>【MediaFire】：http://adf.ly/1nFdVM
 <br>【MediaFire】：http://www.linkbucks.com/AtyQW
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nFh8E
+<br>【百度網盤】：http://www.linkbucks.com/AtsVr
+<br>【百度密碼】：q9fb
 
 <br>【節目名稱】：在晴朗的一天出發（903）.2017-07-04
 <br>【節目頻道】：903
@@ -48,9 +48,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210242128
 <br>【MediaFire】：http://adf.ly/1nFeZC
 <br>【MediaFire】：http://www.linkbucks.com/AtwJJ
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nFh8W
+<br>【百度網盤】：http://www.linkbucks.com/Atsq1
+<br>【百度密碼】：qz9b
 
 <br>【節目名稱】：我的20年.2017-07-04
 <br>【節目頻道】：881
@@ -60,9 +60,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210242873
 <br>【MediaFire】：http://adf.ly/1nFdUy
 <br>【MediaFire】：http://www.linkbucks.com/AtyXF
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nFh8s
+<br>【百度網盤】：http://www.linkbucks.com/Atsqh
+<br>【百度密碼】：6z3t
 
 <br>【節目名稱】：早霸王.2017-07-04
 <br>【節目頻道】：903
@@ -72,9 +72,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210239934
 <br>【MediaFire】：http://adf.ly/1nFeZU
 <br>【MediaFire】：http://www.linkbucks.com/AtwIw
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nFh9q
+<br>【百度網盤】：http://www.linkbucks.com/AtsTR
+<br>【百度密碼】：2a6f
 
 <br>【節目名稱】：1圈圈.2017-07-04
 <br>【節目頻道】：881
@@ -82,8 +82,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210253029
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nFf98
+<br>【MediaFire】：http://www.linkbucks.com/AtvbK
 
 <br>【節目名稱】：十八樓C座.2017-07-04
 <br>【節目頻道】：881
@@ -93,16 +93,16 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210252546
 <br>【MediaFire】：http://adf.ly/1nFea1
 <br>【MediaFire】：http://www.linkbucks.com/AtwIA
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nFhAC
+<br>【百度網盤】：http://www.linkbucks.com/AtsqE
+<br>【百度密碼】：x4cd
 
 <br>【節目名稱】：叱咤樂壇.2017-07-04
 <br>【節目頻道】：903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-07-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210257649
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -114,7 +114,7 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210258095
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -123,7 +123,7 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210257846
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -135,7 +135,7 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210258476
 <br>【MediaFire】：
 <br>【MediaFire】：
 
