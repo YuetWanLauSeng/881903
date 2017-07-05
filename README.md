@@ -199,8 +199,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210389307
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGuLy
+<br>【MediaFire】：http://www.linkbucks.com/Atsnx
 
 <br>【節目名稱】：杏林茶.2017-07-05
 <br>【節目頻道】：881
@@ -208,17 +208,17 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210389399
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGuO0
+<br>【MediaFire】：http://www.linkbucks.com/AtsnP
 
 <br>【節目名稱】：串.2017-07-05
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210397002
+<br>【MediaFire】：http://adf.ly/1nGuKa
+<br>【MediaFire】：http://www.linkbucks.com/Atsrx
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -228,7 +228,7 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210397722
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -237,16 +237,16 @@
 <br>【節目主持】：903 DJ
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：廣播劇 歐陽志強.2017-07-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210398067
+<br>【MediaFire】：http://adf.ly/1nGuJs
+<br>【MediaFire】：http://www.linkbucks.com/AtsoK
 
 <br>【節目名稱】：書.情.歌.2017-07-05
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-07-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210399418
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -255,9 +255,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210400338
+<br>【MediaFire】：http://adf.ly/1nGuR9
+<br>【MediaFire】：http://www.linkbucks.com/AtsrO
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
