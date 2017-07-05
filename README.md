@@ -219,9 +219,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210288049
 <br>【MediaFire】：http://adf.ly/1nG4jN
 <br>【MediaFire】：http://www.linkbucks.com/AteXV
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nGR5F
+<br>【百度網盤】：http://www.linkbucks.com/AtvSF
+<br>【百度密碼】：e916
 
 <br>【節目名稱】：雲妮鍾情.2017-07-04
 <br>【節目頻道】：903
@@ -229,8 +229,8 @@
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210292696
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGR4X
+<br>【MediaFire】：http://www.linkbucks.com/AtvIX
 
 <br>【節目名稱】：廣播劇 歐陽志強.2017-07-04
 <br>【節目頻道】：903
@@ -254,8 +254,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-07-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210292573
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGR41
+<br>【MediaFire】：http://www.linkbucks.com/AtvTF
 
 <br>【節目名稱】：光明頂.2017-07-04
 <br>【節目頻道】：881
@@ -265,45 +265,45 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210292845
 <br>【MediaFire】：http://adf.ly/1nG6yP
 <br>【MediaFire】：http://www.linkbucks.com/Atc1w
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nGR5Z
+<br>【百度網盤】：http://www.linkbucks.com/AtvRx
+<br>【百度密碼】：fgtg
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-07-04
 <br>【節目頻道】：903
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-07-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210313562
+<br>【MediaFire】：http://adf.ly/1nGR3T
+<br>【MediaFire】：http://www.linkbucks.com/AtvTR
+<br>【百度網盤】：http://adf.ly/1nGRL8
+<br>【百度網盤】：http://www.linkbucks.com/AtuoA
+<br>【百度密碼】：jh6g
 
 <br>【節目名稱】：月光光呵呵呵.2017-07-04
 <br>【節目頻道】：881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-07-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210312528
+<br>【MediaFire】：http://adf.ly/1nGR2k
+<br>【MediaFire】：http://www.linkbucks.com/AtvT2
 
 <br>【節目名稱】：廣東爆谷.2017-07-04
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-07-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210309571
+<br>【MediaFire】：http://adf.ly/1nGR2K
+<br>【MediaFire】：http://www.linkbucks.com/AtuwU
 
 <br>【節目名稱】：一切從音樂開始.2017-07-04
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210303313
+<br>【MediaFire】：http://adf.ly/1nGR1m
+<br>【MediaFire】：http://www.linkbucks.com/AtvUg
