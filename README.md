@@ -103,8 +103,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210358872
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGdPl
+<br>【MediaFire】：http://www.linkbucks.com/At5ke
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -115,8 +115,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210360051
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGdQR
+<br>【MediaFire】：http://www.linkbucks.com/At5kC
 
 <br>【節目名稱】：人生交叉盤.2017-07-05
 <br>【節目頻道】：881
@@ -124,8 +124,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210359638
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGdR6
+<br>【MediaFire】：http://www.linkbucks.com/At5i1
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -136,8 +136,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210360360
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGdRh
+<br>【MediaFire】：http://www.linkbucks.com/At5iW
 
 <br>【節目名稱】：大玩派.2017-07-05
 <br>【節目頻道】：881
