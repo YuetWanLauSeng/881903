@@ -10,8 +10,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210346777
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGYFR
+<br>【MediaFire】：http://www.linkbucks.com/At98s
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -22,8 +22,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210345198
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGYF5
+<br>【MediaFire】：http://www.linkbucks.com/At99Z
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -34,8 +34,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210344165
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGYEi
+<br>【MediaFire】：http://www.linkbucks.com/AuAAG
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -46,8 +46,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210346351
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGYEN
+<br>【MediaFire】：http://www.linkbucks.com/AuABY
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -58,8 +58,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Since 1997.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210346832
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGYDl
+<br>【MediaFire】：http://www.linkbucks.com/AuABy
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -70,8 +70,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-07-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210343140
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nGYDB
+<br>【MediaFire】：http://www.linkbucks.com/AuACa
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -81,18 +81,18 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-07-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210349762
+<br>【MediaFire】：http://adf.ly/1nGYCW
+<br>【MediaFire】：http://www.linkbucks.com/AuAEH
 
 <br>【節目名稱】：十八樓C座.2017-07-05
 <br>【節目頻道】：881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-07-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210348947
+<br>【MediaFire】：http://adf.ly/1nGXrJ
+<br>【MediaFire】：http://www.linkbucks.com/AuAUd
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
