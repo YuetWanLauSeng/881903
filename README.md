@@ -181,8 +181,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210564491
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHvv1
+<br>【MediaFire】：http://www.linkbucks.com/At4wS
 
 <br>【節目名稱】：人民大道中.2017-07-06
 <br>【節目頻道】：881
@@ -190,8 +190,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210571401
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHvr1
+<br>【MediaFire】：http://www.linkbucks.com/At4we
 
 <br>【節目名稱】：生活日常.2017-07-06
 <br>【節目頻道】：903
@@ -199,8 +199,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210571157
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHvqa
+<br>【MediaFire】：http://www.linkbucks.com/At4yw
 
 <br>【節目名稱】：杏林茶.2017-07-06
 <br>【節目頻道】：881
@@ -208,38 +208,38 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210571696
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHvqM
+<br>【MediaFire】：http://www.linkbucks.com/At4zN
 
 <br>【節目名稱】：串.2017-07-06
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210577206
+<br>【MediaFire】：http://adf.ly/1nHx8O
+<br>【MediaFire】：http://www.linkbucks.com/At4GX
+<br>【百度網盤】：http://adf.ly/1nHxBz
+<br>【百度網盤】：http://www.linkbucks.com/At4Ai
+<br>【百度密碼】：ywev
 
 <br>【節目名稱】：雲妮鍾情.2017-07-06
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210577633
+<br>【MediaFire】：http://adf.ly/1nHx6X
+<br>【MediaFire】：http://www.linkbucks.com/At4HI
 
 <br>【節目名稱】：廣播劇 歐陽志強.2017-07-06
 <br>【節目頻道】：903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-07-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210577136
+<br>【MediaFire】：http://adf.ly/1nHx7n
+<br>【MediaFire】：http://www.linkbucks.com/At4Gq
 
 <br>【節目名稱】：書.情.歌.2017-07-06
 <br>【節目頻道】：881
@@ -255,9 +255,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210579653
+<br>【MediaFire】：http://adf.ly/1nHxyp
+<br>【MediaFire】：http://www.linkbucks.com/At3vN
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
