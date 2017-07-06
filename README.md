@@ -10,7 +10,7 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210457129
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHJdS
 <br>【MediaFire】：http://www.linkbucks.com/AIriu
 <br>【百度網盤】：
 <br>【百度網盤】：
@@ -22,7 +22,7 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210453279
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHJdw
 <br>【MediaFire】：http://www.linkbucks.com/BRHQ
 <br>【百度網盤】：
 <br>【百度網盤】：
@@ -34,7 +34,7 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210447483
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHJea
 <br>【MediaFire】：http://www.linkbucks.com/BKLd
 <br>【百度網盤】：
 <br>【百度網盤】：
@@ -82,7 +82,7 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210485572
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHJc0
 <br>【MediaFire】：http://www.linkbucks.com/ndq9
 
 <br>【節目名稱】：十八樓C座.2017-07-06
@@ -91,7 +91,7 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210484211
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHJd5
 <br>【MediaFire】：http://www.linkbucks.com/p6ww
 <br>【百度網盤】：
 <br>【百度網盤】：
@@ -102,7 +102,7 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-07-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210521079
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -114,7 +114,7 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210523880
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -123,7 +123,7 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210522296
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -135,7 +135,7 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210525396
 <br>【MediaFire】：
 <br>【MediaFire】：
 
