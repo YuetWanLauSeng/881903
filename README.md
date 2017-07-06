@@ -46,7 +46,7 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210455677
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHJlJ
 <br>【MediaFire】：http://www.linkbucks.com/AkTH
 <br>【百度網盤】：
 <br>【百度網盤】：
@@ -58,7 +58,7 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Since 1997.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210457759
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHJkK
 <br>【MediaFire】：http://www.linkbucks.com/AlYi
 <br>【百度網盤】：
 <br>【百度網盤】：
@@ -70,7 +70,7 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210445611
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHJlp
 <br>【MediaFire】：http://www.linkbucks.com/bavj
 <br>【百度網盤】：
 <br>【百度網盤】：
@@ -103,8 +103,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210521079
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHKRm
+<br>【MediaFire】：http://www.linkbucks.com/Atctb
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -115,8 +115,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210523880
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHKVz
+<br>【MediaFire】：http://www.linkbucks.com/AtckU
 
 <br>【節目名稱】：人生交叉盤.2017-07-06
 <br>【節目頻道】：881
@@ -124,8 +124,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210522296
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHKYe
+<br>【MediaFire】：http://www.linkbucks.com/AtcmI
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -136,15 +136,15 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210525396
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nHKVQ
+<br>【MediaFire】：http://www.linkbucks.com/AtckF
 
 <br>【節目名稱】：大玩派.2017-07-06
 <br>【節目頻道】：881
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-07-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210562979
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -156,7 +156,7 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-07-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210563102
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -168,7 +168,7 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-07-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210562806
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
