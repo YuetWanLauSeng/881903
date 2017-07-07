@@ -13,7 +13,7 @@
 <br>【MediaFire】：http://adf.ly/1nHJdS
 <br>【MediaFire】：http://www.linkbucks.com/AIriu
 <br>【百度網盤】：http://adf.ly/1nHv2B
-<br>【百度網盤】：http://www.linkbucks.com/At5WBa
+<br>【百度網盤】：http://www.linkbucks.com/At5WB
 <br>【百度密碼】：38g2
 
 <br>【節目名稱】：在晴朗的一天出發（881）.2017-07-06
@@ -247,8 +247,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210588870
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nIJIy
+<br>【MediaFire】：http://www.linkbucks.com/Ati51
 
 <br>【節目名稱】：光明頂.2017-07-06
 <br>【節目頻道】：881
@@ -268,8 +268,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210589186
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nIJ0f
+<br>【MediaFire】：http://www.linkbucks.com/Ati9D
 <br>【百度網盤】：http://adf.ly/1nII3Q
 <br>【百度網盤】：http://www.linkbucks.com/Atj1J
 <br>【百度密碼】：u7y9
@@ -298,5 +298,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210588217
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nIJIS
+<br>【MediaFire】：http://www.linkbucks.com/Ati6l
