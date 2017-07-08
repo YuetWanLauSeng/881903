@@ -66,9 +66,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210688988
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nJKmk
+<br>【百度網盤】：http://www.linkbucks.com/AuMAy
+<br>【百度密碼】：mhpv
 
 <br>【節目名稱】：專業推介.2017-07-08
 <br>【節目頻道】：903
@@ -96,16 +96,16 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210690166
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nJKnG
+<br>【百度網盤】：http://www.linkbucks.com/AuMAV
+<br>【百度密碼】：uvn2
 
 <br>【節目名稱】：咆哮山莊.2017-07-08
 <br>【節目頻道】：903
 <br>【節目主持】：DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-07-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210698857
 <br>【MediaFire】：
 <br>【MediaFire】：
 
