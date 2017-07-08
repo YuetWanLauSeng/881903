@@ -10,8 +10,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：Morning Glory.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210685388
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZ8c
+<br>【MediaFire】：http://www.linkbucks.com/ARpUF
 
 <br>【節目名稱】：好醒晨.2017-07-08
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：So Sunshine.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210688860
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZ9K
+<br>【MediaFire】：http://www.linkbucks.com/ARY0d
 
 <br>【節目名稱】：橙咇咇.2017-07-08
 <br>【節目頻道】：903
@@ -28,8 +28,8 @@
 <br>【節目時間】：08:00 - 09:00
 <br>【檔案名稱】：Orange Day.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210687797
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZIa
+<br>【MediaFire】：http://www.linkbucks.com/ARJze
 
 <br>【節目名稱】：政經星期六.2017-07-08
 <br>【節目頻道】：881
@@ -37,8 +37,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Saturday Forum.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210688481
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZEa
+<br>【MediaFire】：http://www.linkbucks.com/ARJ0R
 
 <br>【節目名稱】：西加航空.2017-07-08
 <br>【節目頻道】：903
@@ -46,8 +46,8 @@
 <br>【節目時間】：09:00 - 11:00
 <br>【檔案名稱】：J.A.L.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210684254
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZDq
+<br>【MediaFire】：http://www.linkbucks.com/ARJ0d
 
 <br>【節目名稱】：潮爆開運王.2017-07-08
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Weekend Lucky Star.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210689100
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZM9
+<br>【MediaFire】：http://www.linkbucks.com/ARJy5
 
 <br>【節目名稱】：考股專家.2017-07-08
 <br>【節目頻道】：881
@@ -64,8 +64,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：Stockaeologist.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210688988
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJLiJ
+<br>【MediaFire】：http://www.linkbucks.com/AuLL0
 <br>【百度網盤】：http://adf.ly/1nJKmk
 <br>【百度網盤】：http://www.linkbucks.com/AuMAy
 <br>【百度密碼】：mhpv
@@ -76,8 +76,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210689370
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZ63
+<br>【MediaFire】：http://www.linkbucks.com/ARpUx
 
 <br>【節目名稱】：電影圈.2017-07-08
 <br>【節目頻道】：881
@@ -85,8 +85,8 @@
 <br>【節目時間】：12:30 - 14:00
 <br>【檔案名稱】：Movies.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210689598
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZHo
+<br>【MediaFire】：http://www.linkbucks.com/ARJzn
 
 <br>【節目名稱】：咪芝蓮.2017-07-08
 <br>【節目頻道】：903
@@ -94,8 +94,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210690166
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJLhu
+<br>【MediaFire】：http://www.linkbucks.com/AuLBQ
 <br>【百度網盤】：http://adf.ly/1nJKnG
 <br>【百度網盤】：http://www.linkbucks.com/AuMAV
 <br>【百度密碼】：uvn2
@@ -106,8 +106,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210698857
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nJZJ7
+<br>【MediaFire】：http://www.linkbucks.com/ARJzY
 
 <br>【節目名稱】：1圈圈 (周末版).2017-07-08
 <br>【節目頻道】：881
@@ -123,7 +123,7 @@
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-07-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210713855
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -132,7 +132,7 @@
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-07-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210714668
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -141,7 +141,7 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-07-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210714331
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
