@@ -75,7 +75,7 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-07-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210787751
 <br>【MediaFire】：
 <br>【MediaFire】：
 
