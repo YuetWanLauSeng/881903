@@ -66,9 +66,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210778974
 <br>【MediaFire】：http://adf.ly/1nKIXr
 <br>【MediaFire】：http://www.linkbucks.com/AuIi3
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nKNAs
+<br>【百度網盤】：http://www.linkbucks.com/AuIII
+<br>【百度密碼】：jkv8
 
 <br>【節目名稱】：無定向喪煲病狂.2017-07-09
 <br>【節目頻道】：903
@@ -76,8 +76,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210787751
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKMrW
+<br>【MediaFire】：http://www.linkbucks.com/AuIMz
 
 <br>【節目名稱】：兒童適宜.2017-07-09
 <br>【節目頻道】：903
@@ -85,8 +85,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210823238
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKMq7
+<br>【MediaFire】：http://www.linkbucks.com/AuINA
 
 <br>【節目名稱】：Mali Mali Home.2017-07-09
 <br>【節目頻道】：903
