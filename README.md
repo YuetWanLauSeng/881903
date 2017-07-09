@@ -127,8 +127,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210857817
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKask
+<br>【MediaFire】：http://www.linkbucks.com/AuPbg
 
 <br>【節目名稱】：泡菜粉絲煲.2017-07-09
 <br>【節目頻道】：881
@@ -136,8 +136,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210857966
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKatT
+<br>【MediaFire】：http://www.linkbucks.com/AuPbQ
 
 <br>【節目名稱】：細路強.2017-07-09
 <br>【節目頻道】：881
@@ -145,8 +145,8 @@
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210858097
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKatn
+<br>【MediaFire】：http://www.linkbucks.com/AuPpf
 
 <br>【節目名稱】：國民教育.2017-07-09
 <br>【節目頻道】：903
