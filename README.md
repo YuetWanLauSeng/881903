@@ -133,8 +133,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210714668
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nK6GF
+<br>【MediaFire】：http://www.linkbucks.com/AuL1p
 
 <br>【節目名稱】：3號螺絲釘.2017-07-08
 <br>【節目頻道】：903
@@ -144,9 +144,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210714331
 <br>【MediaFire】：http://adf.ly/1nK44R
 <br>【MediaFire】：http://www.linkbucks.com/Aui7L
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nK7Pm
+<br>【百度網盤】：http://www.linkbucks.com/AuLaB
+<br>【百度密碼】：f8bt
 
 <br>【節目名稱】：第三齡接觸.2017-07-08
 <br>【節目頻道】：881
@@ -172,8 +172,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210748375
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nK6BC
+<br>【MediaFire】：http://www.linkbucks.com/AuL7N
 
 <br>【節目名稱】：Chi Chung's Class.2017-07-08
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210759259
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nK6EE
+<br>【MediaFire】：http://www.linkbucks.com/AuL8G
 
 <br>【節目名稱】：與時並進.2017-07-08
 <br>【節目頻道】：881
@@ -191,8 +191,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210761973
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nK6Fo
+<br>【MediaFire】：http://www.linkbucks.com/AuL10
 
 <br>【節目名稱】：公子會.2017-07-08
 <br>【節目頻道】：903
@@ -202,11 +202,11 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210766839
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nK6DA
+<br>【MediaFire】：http://www.linkbucks.com/AuL8f
+<br>【百度網盤】：http://adf.ly/1nK7Lf
+<br>【百度網盤】：http://www.linkbucks.com/AuLaY
+<br>【百度密碼】：s9ye
 
 <br>【節目名稱】：發式生活.2017-07-08
 <br>【節目頻道】：881
@@ -214,8 +214,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210766501
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nK6Ei
+<br>【MediaFire】：http://www.linkbucks.com/AuL6o
 
 <br>【節目名稱】：皇牌出場.2017-07-08
 <br>【節目頻道】：903
@@ -223,11 +223,11 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210766599
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nK6F5
+<br>【MediaFire】：http://www.linkbucks.com/AuL6o
+<br>【百度網盤】：http://adf.ly/1nK7TE
+<br>【百度網盤】：http://www.linkbucks.com/AuLZd
+<br>【百度密碼】：yqb3
 
 <br>【節目名稱】：一切從音樂開始.2017-07-08
 <br>【節目頻道】：881 & 903
@@ -235,5 +235,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210753150
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nK9BQ
+<br>【MediaFire】：http://www.linkbucks.com/AuLSF
