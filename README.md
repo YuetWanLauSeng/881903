@@ -10,8 +10,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：Reading Time.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210776485
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKHwe
+<br>【MediaFire】：http://www.linkbucks.com/AuIiE
 
 <br>【節目名稱】：一周紅人館.2017-07-09
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【節目時間】：06:00 - 09:00
 <br>【檔案名稱】：Star House.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210778266
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKHye
+<br>【MediaFire】：http://www.linkbucks.com/AuIhb
 
 <br>【節目名稱】：政好星期天.2017-07-09
 <br>【節目頻道】：881
@@ -28,8 +28,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Beautiful Sunday.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210776174
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKIIA
+<br>【MediaFire】：http://www.linkbucks.com/AuIgq
 
 <br>【節目名稱】：Urban Touch.2017-07-09
 <br>【節目頻道】：903
@@ -37,8 +37,8 @@
 <br>【節目時間】：09:00 - 11:00
 <br>【檔案名稱】：Urban Touch.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210780120
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKILx
+<br>【MediaFire】：http://www.linkbucks.com/AuIgd
 
 <br>【節目名稱】：馬路的事我哋的事.2017-07-09
 <br>【節目頻道】：881
@@ -46,8 +46,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Road Co-op.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210776654
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKIUQ
+<br>【MediaFire】：http://www.linkbucks.com/AuIgW
 
 <br>【節目名稱】：同途有心人.2017-07-09
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：The Way We Are.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210779386
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKIXD
+<br>【MediaFire】：http://www.linkbucks.com/AuIgP
 
 <br>【節目名稱】：讀賣Sunday.2017-07-09
 <br>【節目頻道】：903
@@ -64,8 +64,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210778974
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKIXr
+<br>【MediaFire】：http://www.linkbucks.com/AuIi3
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -84,7 +84,7 @@
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-07-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210823238
 <br>【MediaFire】：
 <br>【MediaFire】：
 
