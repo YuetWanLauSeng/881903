@@ -150,9 +150,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211089953
 <br>【MediaFire】：http://adf.ly/1nLJPF
 <br>【MediaFire】：http://www.linkbucks.com/AukoZ
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nLTi0
+<br>【百度網盤】：http://www.linkbucks.com/AuoFX
+<br>【百度密碼】：j6zq
 
 <br>【節目名稱】：口水多過浪花.2017-07-10
 <br>【節目頻道】：903
@@ -162,9 +162,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211095137
 <br>【MediaFire】：http://adf.ly/1nLJOa
 <br>【MediaFire】：http://www.linkbucks.com/Auko3
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nLTjg
+<br>【百度網盤】：http://www.linkbucks.com/AuoAM
+<br>【百度密碼】：v1n3
 
 <br>【節目名稱】：毒檸王國.2017-07-10
 <br>【節目頻道】：903
@@ -174,9 +174,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211116160
 <br>【MediaFire】：http://adf.ly/1nLJPl
 <br>【MediaFire】：http://www.linkbucks.com/AukoX
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nLTkf
+<br>【百度網盤】：http://www.linkbucks.com/Aun9m
+<br>【百度密碼】：9vk5
 
 <br>【節目名稱】：集雜志.2017-07-10
 <br>【節目頻道】：903
@@ -219,9 +219,9 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211143879
+<br>【MediaFire】：http://adf.ly/1nLS8i
+<br>【MediaFire】：http://www.linkbucks.com/Auoij
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -231,7 +231,7 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211146468
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -249,18 +249,18 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-07-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211146261
+<br>【MediaFire】：http://adf.ly/1nLURx
+<br>【MediaFire】：http://www.linkbucks.com/Aunv7
 
 <br>【節目名稱】：光明頂.2017-07-10
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211146818
+<br>【MediaFire】：http://adf.ly/1nLUix
+<br>【MediaFire】：http://www.linkbucks.com/Aunsp
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
