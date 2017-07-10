@@ -156,9 +156,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210883103
 <br>【MediaFire】：http://adf.ly/1nKu8s
 <br>【MediaFire】：http://www.linkbucks.com/AuadD
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nKvde
+<br>【百度網盤】：http://www.linkbucks.com/AuZsJ
+<br>【百度密碼】：3cdy
 
 <br>【節目名稱】：帶一本書去旅行.2017-07-09
 <br>【節目頻道】：881
@@ -177,9 +177,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210881792
 <br>【MediaFire】：http://adf.ly/1nKtpR
 <br>【MediaFire】：http://www.linkbucks.com/AubN5
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nKvJD
+<br>【百度網盤】：http://www.linkbucks.com/AuZ16
+<br>【百度密碼】：gq4t
 
 <br>【節目名稱】：短期租約.2017-07-09
 <br>【節目頻道】：903
@@ -187,8 +187,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210882679
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKv2J
+<br>【MediaFire】：http://www.linkbucks.com/AuZ5O
 
 <br>【節目名稱】：心靈料理.2017-07-09
 <br>【節目頻道】：881
@@ -214,5 +214,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-210881751
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nKvF1
+<br>【MediaFire】：http://www.linkbucks.com/AuZ3E
