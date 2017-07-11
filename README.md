@@ -147,9 +147,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211263126
 <br>【MediaFire】：http://adf.ly/1nM6Y4
 <br>【MediaFire】：http://www.linkbucks.com/Au6GX
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nMVT8
+<br>【百度網盤】：http://www.linkbucks.com/Au0aE
+<br>【百度密碼】：stak
 
 <br>【節目名稱】：口水多過浪花.2017-07-11
 <br>【節目頻道】：903
@@ -159,9 +159,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211263285
 <br>【MediaFire】：http://adf.ly/1nM6XR
 <br>【MediaFire】：http://www.linkbucks.com/Au6Hm
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nMVSV
+<br>【百度網盤】：http://www.linkbucks.com/Au0ak
+<br>【百度密碼】：n529
 
 <br>【節目名稱】：毒檸王國.2017-07-11
 <br>【節目頻道】：903
@@ -171,9 +171,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211267295
 <br>【MediaFire】：http://adf.ly/1nMLAx
 <br>【MediaFire】：http://www.linkbucks.com/AvRjC
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nMVU3
+<br>【百度網盤】：http://www.linkbucks.com/Au0Yk
+<br>【百度密碼】：wsjj
 
 <br>【節目名稱】：集雜志.2017-07-11
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-07-11
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211283431
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nMVRb
+<br>【MediaFire】：http://www.linkbucks.com/Au0cn
 
 <br>【節目名稱】：人民大道中.2017-07-11
 <br>【節目頻道】：881
@@ -190,8 +190,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-07-11
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211282479
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nMVQB
+<br>【MediaFire】：http://www.linkbucks.com/Au0df
 
 <br>【節目名稱】：生活日常.2017-07-11
 <br>【節目頻道】：903
@@ -199,8 +199,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-11
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211281293
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nMVPb
+<br>【MediaFire】：http://www.linkbucks.com/Au0en
 
 <br>【節目名稱】：杏林茶.2017-07-11
 <br>【節目頻道】：881
@@ -208,26 +208,26 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-07-11
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211283380
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nMVQo
+<br>【MediaFire】：http://www.linkbucks.com/Au0dI
 
 <br>【節目名稱】：放榜前夕DSE攻略.2017-07-11
 <br>【節目頻道】：881
 <br>【節目主持】：時美真 | 江慧楓 | 吳詠希
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：DSE.2017-07-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211287144
+<br>【MediaFire】：http://adf.ly/1nMVOW
+<br>【MediaFire】：http://www.linkbucks.com/Au0fz
 
 <br>【節目名稱】：串.2017-07-11
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211287280
+<br>【MediaFire】：http://adf.ly/1nMVP2
+<br>【MediaFire】：http://www.linkbucks.com/Au0fI
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -237,36 +237,43 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211287348
+<br>【MediaFire】：http://adf.ly/1nMVNp
+<br>【MediaFire】：http://www.linkbucks.com/Au0h7
 
 <br>【節目名稱】：歐陽志強.2017-07-11
 <br>【節目頻道】：903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies2017-07-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211287213
+<br>【MediaFire】：http://adf.ly/1nMVWC
+<br>【MediaFire】：http://www.linkbucks.com/Au0Vt
 
 <br>【節目名稱】：書.情.歌.2017-07-11
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-07-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【節目暫停】：改播『再創生機』
+
+<br>【節目名稱】：再創生機.2017-07-11
+<br>【節目頻道】：881
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-07-11
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211287251
+<br>【MediaFire】：http://adf.ly/1nMVWs
+<br>【MediaFire】：http://www.linkbucks.com/Au0Uu
 
 <br>【節目名稱】：光明頂.2017-07-11
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211287713
+<br>【MediaFire】：http://adf.ly/1nMVVd
+<br>【MediaFire】：http://www.linkbucks.com/Au0XJ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
