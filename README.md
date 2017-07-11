@@ -222,9 +222,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211143879
 <br>【MediaFire】：http://adf.ly/1nLS8i
 <br>【MediaFire】：http://www.linkbucks.com/Auoij
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nLsib
+<br>【百度網盤】：http://www.linkbucks.com/Auwtu
+<br>【百度密碼】：7dvx
 
 <br>【節目名稱】：雲妮鍾情.2017-07-10
 <br>【節目頻道】：903
@@ -232,8 +232,8 @@
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211146468
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nLsgk
+<br>【MediaFire】：http://www.linkbucks.com/AuwvO
 
 <br>【節目名稱】：歐陽志強.2017-07-10
 <br>【節目頻道】：903
@@ -241,8 +241,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-07-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211157821
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nLsh3
+<br>【MediaFire】：http://www.linkbucks.com/AuwvI
 
 <br>【節目名稱】：書.情.歌.2017-07-10
 <br>【節目頻道】：881
@@ -261,9 +261,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211146818
 <br>【MediaFire】：http://adf.ly/1nLUix
 <br>【MediaFire】：http://www.linkbucks.com/Aunsp
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nLssc
+<br>【百度網盤】：http://www.linkbucks.com/Auwet
+<br>【百度密碼】：9yta
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-07-10
 <br>【節目頻道】：903
@@ -271,11 +271,11 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-07-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211158129
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nLsgC
+<br>【MediaFire】：http://www.linkbucks.com/Auwvc
+<br>【百度網盤】：http://adf.ly/1nLss7
+<br>【百度網盤】：http://www.linkbucks.com/Auwe1
+<br>【百度密碼】：vpib
 
 <br>【節目名稱】：月光光呵呵呵.2017-07-10
 <br>【節目頻道】：881
@@ -283,8 +283,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-07-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211157862
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nLsfd
+<br>【MediaFire】：http://www.linkbucks.com/Auwvo
 
 <br>【節目名稱】：廣東爆谷.2017-07-10
 <br>【節目頻道】：903
@@ -292,8 +292,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-07-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211157419
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nLsf2
+<br>【MediaFire】：http://www.linkbucks.com/Auwwb
 
 <br>【節目名稱】：一切從音樂開始.2017-07-10
 <br>【節目頻道】：881 & 903
@@ -301,5 +301,5 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211157208
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nLse9
+<br>【MediaFire】：http://www.linkbucks.com/Auww4
