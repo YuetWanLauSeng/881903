@@ -144,9 +144,9 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-07-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211362890
+<br>【MediaFire】：http://adf.ly/1nNXZJ
+<br>【MediaFire】：http://www.linkbucks.com/Au1Ck
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -156,9 +156,9 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-07-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211366435
+<br>【MediaFire】：http://adf.ly/1nNYFz
+<br>【MediaFire】：http://www.linkbucks.com/Au043
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
