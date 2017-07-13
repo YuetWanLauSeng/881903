@@ -103,11 +103,11 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-07-13
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211535379
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nP4Q8
+<br>【MediaFire】：http://www.linkbucks.com/Aury8
+<br>【百度網盤】：http://adf.ly/1nP2Wj
+<br>【百度網盤】：http://www.linkbucks.com/AusMq
+<br>【百度密碼】：7357
 
 <br>【節目名稱】：一點叮一叮.2017-07-13
 <br>【節目頻道】：881
@@ -115,8 +115,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-13
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211539352
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nP4SB
+<br>【MediaFire】：http://www.linkbucks.com/Aurxt
 
 <br>【節目名稱】：人生交叉盤.2017-07-13
 <br>【節目頻道】：881
@@ -124,11 +124,11 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-13
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211537962
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nP4jS
+<br>【MediaFire】：http://www.linkbucks.com/AurmL
+<br>【百度網盤】：http://adf.ly/1nP2bT
+<br>【百度網盤】：http://www.linkbucks.com/AusJ3
+<br>【百度密碼】：5i6k
 
 <br>【節目名稱】：你好嘢.2017-07-13
 <br>【節目頻道】：903
@@ -136,8 +136,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-13
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211542337
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nP4jj
+<br>【MediaFire】：http://www.linkbucks.com/Aurl4
 
 <br>【節目名稱】：大玩派.2017-07-13
 <br>【節目頻道】：881
