@@ -147,9 +147,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211577106
 <br>【MediaFire】：http://adf.ly/1nP7aM
 <br>【MediaFire】：http://www.linkbucks.com/Auq0K
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nPVTs
+<br>【百度網盤】：http://www.linkbucks.com/AvTeK
+<br>【百度密碼】：2y46
 
 <br>【節目名稱】：口水多過浪花.2017-07-13
 <br>【節目頻道】：903
@@ -159,9 +159,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211581994
 <br>【MediaFire】：http://adf.ly/1nP7oM
 <br>【MediaFire】：http://www.linkbucks.com/Auqsq
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nPVSe
+<br>【百度網盤】：http://www.linkbucks.com/AvTeX
+<br>【百度密碼】：qss9
 
 <br>【節目名稱】：毒檸王國.2017-07-13
 <br>【節目頻道】：903
@@ -171,25 +171,25 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211613185
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nPVZs
+<br>【百度網盤】：http://www.linkbucks.com/AvTdl
+<br>【百度密碼】：m42y
 
 <br>【節目名稱】：集雜志.2017-07-13
 <br>【節目頻道】：903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-07-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211676759
+<br>【MediaFire】：http://adf.ly/1nPVOp
+<br>【MediaFire】：http://www.linkbucks.com/AvTfd
 
 <br>【節目名稱】：人民大道中.2017-07-13
 <br>【節目頻道】：881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-07-13
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211675937
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -198,7 +198,7 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-13
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211675501
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -207,18 +207,18 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-07-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211676307
+<br>【MediaFire】：http://adf.ly/1nPVCx
+<br>【MediaFire】：http://www.linkbucks.com/AvTg7
 
 <br>【節目名稱】：串.2017-07-13
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211678188
+<br>【MediaFire】：http://adf.ly/1nPVN2
+<br>【MediaFire】：http://www.linkbucks.com/AvTfz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -228,7 +228,7 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-13
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211679136
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -237,27 +237,27 @@
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-07-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211677738
+<br>【MediaFire】：http://adf.ly/1nPVGY
+<br>【MediaFire】：http://www.linkbucks.com/AvTgw
 
 <br>【節目名稱】：書.情.歌.2017-07-13
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-07-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211677951
+<br>【MediaFire】：http://adf.ly/1nPVKT
+<br>【MediaFire】：http://www.linkbucks.com/AvTgQ
 
 <br>【節目名稱】：光明頂.2017-07-13
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211683782
+<br>【MediaFire】：http://adf.ly/1nPVsS
+<br>【MediaFire】：http://www.linkbucks.com/AvTcR
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
