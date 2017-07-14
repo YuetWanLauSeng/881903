@@ -181,8 +181,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211792629
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nQJJL
+<br>【MediaFire】：http://www.linkbucks.com/AvnRw
 
 <br>【節目名稱】：人民大道中.2017-07-14
 <br>【節目頻道】：881
@@ -190,8 +190,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211791995
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nQJIf
+<br>【MediaFire】：http://www.linkbucks.com/AvnSH
 
 <br>【節目名稱】：生活日常.2017-07-14
 <br>【節目頻道】：903
@@ -199,8 +199,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211791565
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nQJES
+<br>【MediaFire】：http://www.linkbucks.com/AvnVr
 
 <br>【節目名稱】：杏林茶.2017-07-14
 <br>【節目頻道】：881
@@ -208,8 +208,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211792344
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nQJKT
+<br>【MediaFire】：http://www.linkbucks.com/AvnRr
 
 <br>【節目名稱】：串.2017-07-14
 <br>【節目頻道】：881
