@@ -256,8 +256,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-13
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211683782
-<br>【MediaFire】：http://adf.ly/1nPVsS
-<br>【MediaFire】：http://www.linkbucks.com/AvTcR
+<br>【MediaFire】：http://adf.ly/1nPpm2
+<br>【MediaFire】：http://www.linkbucks.com/AvhvQ
 <br>【百度網盤】：http://adf.ly/1nPoS5
 <br>【百度網盤】：http://www.linkbucks.com/AvjYJ
 <br>【百度密碼】：ti3k
