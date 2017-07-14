@@ -2,7 +2,7 @@
 ### 歡迎到本人的論壇進行查閱
 ### http://www.yuetwanlauseng.com
 
-<<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
+<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：有誰共鳴.2017-07-14
 <br>【節目頻道】：903
@@ -22,8 +22,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211749297
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nPvsb
+<br>【MediaFire】：http://www.linkbucks.com/Avafq
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -34,8 +34,8 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211748677
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nPvt5
+<br>【MediaFire】：http://www.linkbucks.com/AvafQ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -46,8 +46,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211749560
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nPvtd
+<br>【MediaFire】：http://www.linkbucks.com/Avaes
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -58,8 +58,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Since 1997.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211749930
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nPvuA
+<br>【MediaFire】：http://www.linkbucks.com/AvaeP
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -70,8 +70,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-07-14
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211748495
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nPvuo
+<br>【MediaFire】：http://www.linkbucks.com/AvaeE
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
