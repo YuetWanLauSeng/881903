@@ -10,8 +10,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：Morning Glory.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211889457
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nR7Rd
+<br>【MediaFire】：http://www.linkbucks.com/AvePn
 
 <br>【節目名稱】：好醒晨.2017-07-15
 <br>【節目頻道】：903
@@ -19,8 +19,8 @@
 <br>【節目時間】：06:00 - 08:00
 <br>【檔案名稱】：So Sunshine.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211890297
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nR7S8
+<br>【MediaFire】：http://www.linkbucks.com/AveIy
 
 <br>【節目名稱】：橙咇咇.2017-07-15
 <br>【節目頻道】：903
@@ -28,8 +28,8 @@
 <br>【節目時間】：08:00 - 09:00
 <br>【檔案名稱】：Orange Day.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211889579
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nR7oI
+<br>【MediaFire】：http://www.linkbucks.com/AveDP
 
 <br>【節目名稱】：政經星期六.2017-07-15
 <br>【節目頻道】：881
@@ -37,8 +37,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Saturday Forum.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211889772
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nR7rY
+<br>【MediaFire】：http://www.linkbucks.com/AveDC
 
 <br>【節目名稱】：西加航空.2017-07-15
 <br>【節目頻道】：903
@@ -46,8 +46,8 @@
 <br>【節目時間】：09:00 - 11:00
 <br>【檔案名稱】：J.A.L.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211888387
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nR7sT
+<br>【MediaFire】：http://www.linkbucks.com/AveCT
 
 <br>【節目名稱】：潮爆開運王.2017-07-15
 <br>【節目頻道】：881
@@ -55,8 +55,8 @@
 <br>【節目時間】：10:00 - 11:00
 <br>【檔案名稱】：Weekend Lucky Star.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211890634
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nR8FW
+<br>【MediaFire】：http://www.linkbucks.com/AveCQ
 
 <br>【節目名稱】：考股專家.2017-07-15
 <br>【節目頻道】：881
@@ -64,11 +64,11 @@
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：Stockaeologist.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211890495
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nR8Fx
+<br>【MediaFire】：http://www.linkbucks.com/AveCK
+<br>【百度網盤】：http://adf.ly/1nR8aQ
+<br>【百度網盤】：http://www.linkbucks.com/AveBc
+<br>【百度密碼】：yx8t
 
 <br>【節目名稱】：專業推介.2017-07-15
 <br>【節目頻道】：903
@@ -76,8 +76,8 @@
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211890900
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nR8JA
+<br>【MediaFire】：http://www.linkbucks.com/AveCG
 
 <br>【節目名稱】：電影圈.2017-07-15
 <br>【節目頻道】：881
@@ -85,8 +85,8 @@
 <br>【節目時間】：12:30 - 14:00
 <br>【檔案名稱】：Movies.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211891109
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nR8Nh
+<br>【MediaFire】：http://www.linkbucks.com/AveCE
 
 <br>【節目名稱】：咪芝蓮.2017-07-15
 <br>【節目頻道】：903
@@ -94,11 +94,11 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211891282
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nR8SE
+<br>【MediaFire】：http://www.linkbucks.com/AveBr
+<br>【百度網盤】：http://adf.ly/1nR8eY
+<br>【百度網盤】：http://www.linkbucks.com/AveBU
+<br>【百度密碼】：sfdb
 
 <br>【節目名稱】：咆哮山莊.2017-07-15
 <br>【節目頻道】：903
