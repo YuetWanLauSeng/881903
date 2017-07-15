@@ -105,7 +105,7 @@
 <br>【節目主持】：DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211913798
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -114,7 +114,7 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211915220
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -123,7 +123,7 @@
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211917152
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -132,7 +132,7 @@
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211918306
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -141,7 +141,7 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211918046
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
