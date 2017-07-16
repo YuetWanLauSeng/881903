@@ -180,7 +180,7 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211972881
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -190,7 +190,7 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973014
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -201,7 +201,7 @@
 <br>【訪問嘉賓】：陳蕾
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973966
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -213,7 +213,7 @@
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973269
 <br>【MediaFire】：
 <br>【MediaFire】：
 
@@ -222,7 +222,7 @@
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973633
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -234,6 +234,6 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-15
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211972057
 <br>【MediaFire】：
 <br>【MediaFire】：
