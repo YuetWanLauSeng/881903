@@ -183,6 +183,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211972881
 <br>【MediaFire】：http://adf.ly/1nRd4J
 <br>【MediaFire】：http://www.linkbucks.com/Avise
+<br>【百度網盤】：http://adf.ly/1nRfP7
+<br>【百度網盤】：http://www.linkbucks.com/AvvA1
+<br>【百度密碼】：jegj
 
 <br>【節目名稱】：與時並進.2017-07-15
 <br>【節目頻道】：881
@@ -193,6 +196,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973014
 <br>【MediaFire】：http://adf.ly/1nRd3T
 <br>【MediaFire】：http://www.linkbucks.com/Avitp
+<br>【百度網盤】：http://adf.ly/1nRfOt
+<br>【百度網盤】：http://www.linkbucks.com/AvvBH
+<br>【百度密碼】：p8d7
 
 <br>【節目名稱】：公子會.2017-07-15
 <br>【節目頻道】：903
@@ -204,9 +210,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973966
 <br>【MediaFire】：http://adf.ly/1nRdct
 <br>【MediaFire】：http://www.linkbucks.com/AvwZw
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nRfOD
+<br>【百度網盤】：http://www.linkbucks.com/AvvBs
+<br>【百度密碼】：fq1i
 
 <br>【節目名稱】：發式生活.2017-07-15
 <br>【節目頻道】：881
@@ -216,6 +222,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973269
 <br>【MediaFire】：http://adf.ly/1nRd3q
 <br>【MediaFire】：http://www.linkbucks.com/Avite
+<br>【百度網盤】：http://adf.ly/1nRfNt
+<br>【百度網盤】：http://www.linkbucks.com/AvvCJ
+<br>【百度密碼】：pdxi
 
 <br>【節目名稱】：皇牌出場.2017-07-15
 <br>【節目頻道】：903
@@ -225,9 +234,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973633
 <br>【MediaFire】：http://adf.ly/1nRddG
 <br>【MediaFire】：http://www.linkbucks.com/AvwZo
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nRfNM
+<br>【百度網盤】：http://www.linkbucks.com/AvvCn
+<br>【百度密碼】：1xvw
 
 <br>【節目名稱】：一切從音樂開始.2017-07-15
 <br>【節目頻道】：881 & 903
@@ -235,5 +244,8 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211972057
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nRfPm
+<br>【MediaFire】：http://www.linkbucks.com/AvvAh
+<br>【百度網盤】：http://adf.ly/1nRfMr
+<br>【百度網盤】：http://www.linkbucks.com/AvvDG
+<br>【百度密碼】：2ef7
