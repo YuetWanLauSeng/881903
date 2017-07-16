@@ -172,8 +172,8 @@
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211934631
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nRd2z
+<br>【MediaFire】：http://www.linkbucks.com/Avit5
 
 <br>【節目名稱】：Chi Chung's Class.2017-07-15
 <br>【節目頻道】：903
@@ -181,8 +181,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211972881
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nRd4J
+<br>【MediaFire】：http://www.linkbucks.com/Avise
 
 <br>【節目名稱】：與時並進.2017-07-15
 <br>【節目頻道】：881
@@ -191,8 +191,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973014
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nRd3T
+<br>【MediaFire】：http://www.linkbucks.com/Avitp
 
 <br>【節目名稱】：公子會.2017-07-15
 <br>【節目頻道】：903
@@ -202,8 +202,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973966
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nRdct
+<br>【MediaFire】：http://www.linkbucks.com/AvwZw
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -214,8 +214,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973269
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nRd3q
+<br>【MediaFire】：http://www.linkbucks.com/Avite
 
 <br>【節目名稱】：皇牌出場.2017-07-15
 <br>【節目頻道】：903
@@ -223,8 +223,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-07-15
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-211973633
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nRddG
+<br>【MediaFire】：http://www.linkbucks.com/AvwZo
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
