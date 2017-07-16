@@ -93,12 +93,12 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-07-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212020919
+<br>【MediaFire】：http://adf.ly/1nRln2
+<br>【MediaFire】：http://www.linkbucks.com/AvrIi
+<br>【百度網盤】：http://adf.ly/1nRlna
+<br>【百度網盤】：http://www.linkbucks.com/AvrIM
+<br>【百度密碼】：6gq7
 
 <br>【節目名稱】：兒童適宜.2017-07-16
 <br>【節目頻道】：903
