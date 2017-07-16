@@ -117,24 +117,24 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-07-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212033033
+<br>【MediaFire】：http://adf.ly/1nRui5
+<br>【MediaFire】：http://www.linkbucks.com/Av0ml
+<br>【百度網盤】：http://adf.ly/1nRugE
+<br>【百度網盤】：http://www.linkbucks.com/Av0na
+<br>【百度密碼】：n7sv
 
 <br>【節目名稱】：串.2017-07-16
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-07-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212033079
+<br>【MediaFire】：http://adf.ly/1nRuiw
+<br>【MediaFire】：http://www.linkbucks.com/Av0mQ
+<br>【百度網盤】：http://adf.ly/1nRuhB
+<br>【百度網盤】：http://www.linkbucks.com/Av0mz
+<br>【百度密碼】：4ib5
 
 <br>【節目名稱】：讀懂中國.2017-07-16
 <br>【節目頻道】：881
