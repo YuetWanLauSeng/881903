@@ -243,24 +243,24 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212167720
+<br>【MediaFire】：http://adf.ly/1nSwow
+<br>【MediaFire】：http://www.linkbucks.com/Awk67
+<br>【百度網盤】：http://adf.ly/1nSwsp
+<br>【百度網盤】：http://www.linkbucks.com/Awk0i
+<br>【百度密碼】：2rek
 
 <br>【節目名稱】：雲妮鍾情.2017-07-17
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212167784
+<br>【MediaFire】：http://adf.ly/1nSwpu
+<br>【MediaFire】：http://www.linkbucks.com/Awk3t
+<br>【百度網盤】：http://adf.ly/1nSws0
+<br>【百度網盤】：http://www.linkbucks.com/Awk1v
+<br>【百度密碼】：2eda
 
 <br>【節目名稱】：歐陽志強.2017-07-17
 <br>【節目頻道】：903
@@ -279,12 +279,12 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212167691
+<br>【MediaFire】：http://adf.ly/1nSwqV
+<br>【MediaFire】：http://www.linkbucks.com/Awk3L
+<br>【百度網盤】：http://adf.ly/1nSwtc
+<br>【百度網盤】：http://www.linkbucks.com/AwkzZ
+<br>【百度密碼】：tbs3
 
 <br>【節目名稱】：光明頂.2017-07-17
 <br>【節目頻道】：881
