@@ -104,48 +104,55 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212119006
+<br>【MediaFire】：http://adf.ly/1nSY3u
+<br>【MediaFire】：http://www.linkbucks.com/AwBNZ
+<br>【百度網盤】：http://adf.ly/1nSY34
+<br>【百度網盤】：http://www.linkbucks.com/AwBOE
+<br>【百度密碼】：w7m3
 
 <br>【節目名稱】：一點叮一叮.2017-07-17
 <br>【節目頻道】：881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212119239
+<br>【MediaFire】：http://adf.ly/1nSY4X
+<br>【MediaFire】：http://www.linkbucks.com/AwBM7
+<br>【百度網盤】：http://adf.ly/1nSY2X
+<br>【百度網盤】：http://www.linkbucks.com/AwBOg
+<br>【百度密碼】：skyd
 
 <br>【節目名稱】：人生交叉盤.2017-07-17
 <br>【節目頻道】：881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212119152
+<br>【MediaFire】：http://adf.ly/1nSY5A
+<br>【MediaFire】：http://www.linkbucks.com/AwBMC
+<br>【百度網盤】：http://adf.ly/1nSY1l
+<br>【百度網盤】：http://www.linkbucks.com/AwBPE
+<br>【百度密碼】：cq24
 
 <br>【節目名稱】：你好嘢.2017-07-17
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『蘇耀一粒鐘』
+
+<br>【節目名稱】：蘇耀一粒鐘.2017-07-17
+<br>【節目頻道】：903
+<br>【節目主持】：細So
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：蘇耀一粒鐘2017-07-17
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212119364
+<br>【MediaFire】：http://adf.ly/1nSY5l
+<br>【MediaFire】：http://www.linkbucks.com/AwBLS
+<br>【百度網盤】：http://adf.ly/1nSY11
+<br>【百度網盤】：http://www.linkbucks.com/AwBPv
+<br>【百度密碼】：gqcp
 
 <br>【節目名稱】：大玩派.2017-07-17
 <br>【節目頻道】：881
