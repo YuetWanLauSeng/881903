@@ -195,24 +195,24 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212152248
+<br>【MediaFire】：http://adf.ly/1nSnao
+<br>【MediaFire】：http://www.linkbucks.com/AwX1q
+<br>【百度網盤】：http://adf.ly/1nSnX8
+<br>【百度網盤】：http://www.linkbucks.com/AwX5V
+<br>【百度密碼】：brpy
 
 <br>【節目名稱】：人民大道中.2017-07-17
 <br>【節目頻道】：881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-07-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212152218
+<br>【MediaFire】：http://adf.ly/1nSnf8
+<br>【MediaFire】：http://www.linkbucks.com/AwXp8
+<br>【百度網盤】：http://adf.ly/1nSnYy
+<br>【百度網盤】：http://www.linkbucks.com/AwX4T
+<br>【百度密碼】：crjh
 
 <br>【節目名稱】：生活日常.2017-07-17
 <br>【節目頻道】：903
