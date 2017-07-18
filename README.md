@@ -195,60 +195,60 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212332832
+<br>【MediaFire】：http://adf.ly/1nTlvQ
+<br>【MediaFire】：http://www.linkbucks.com/AwEbe
+<br>【百度網盤】：http://adf.ly/1nTlsO
+<br>【百度網盤】：http://www.linkbucks.com/AwEct
+<br>【百度密碼】：4krw
 
 <br>【節目名稱】：人民大道中.2017-07-18
 <br>【節目頻道】：881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212332822
+<br>【MediaFire】：http://adf.ly/1nTluu
+<br>【MediaFire】：http://www.linkbucks.com/AwEbu
+<br>【百度網盤】：http://adf.ly/1nTlrh
+<br>【百度網盤】：http://www.linkbucks.com/AwEem
+<br>【百度密碼】：a9h7
 
 <br>【節目名稱】：生活日常.2017-07-18
 <br>【節目頻道】：903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212332810
+<br>【MediaFire】：http://adf.ly/1nTluC
+<br>【MediaFire】：http://www.linkbucks.com/AwEb7
+<br>【百度網盤】：http://adf.ly/1nTlqV
+<br>【百度網盤】：http://www.linkbucks.com/AwEey
+<br>【百度密碼】：qxc9
 
 <br>【節目名稱】：杏林茶.2017-07-18
 <br>【節目頻道】：881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212333886
+<br>【MediaFire】：http://adf.ly/1nTltP
+<br>【MediaFire】：http://www.linkbucks.com/AwEcT
+<br>【百度網盤】：http://adf.ly/1nTlpC
+<br>【百度網盤】：http://www.linkbucks.com/AwEhk
+<br>【百度密碼】：w5vs
 
 <br>【節目名稱】：串.2017-07-18
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212334268
+<br>【MediaFire】：http://adf.ly/1nTlsq
+<br>【MediaFire】：http://www.linkbucks.com/AwEce
+<br>【百度網盤】：http://adf.ly/1nTloO
+<br>【百度網盤】：http://www.linkbucks.com/AwEjZ
+<br>【百度密碼】：ntce
 
 <br>【節目名稱】：雲妮鍾情.2017-07-18
 <br>【節目頻道】：903
