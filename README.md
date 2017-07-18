@@ -298,12 +298,12 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212345644
+<br>【MediaFire】：http://adf.ly/1nTrvf
+<br>【MediaFire】：http://www.linkbucks.com/AwRfC
+<br>【百度網盤】：http://adf.ly/1nTrpV
+<br>【百度網盤】：http://www.linkbucks.com/AwRfY
+<br>【百度密碼】：3twf
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-07-18
 <br>【節目頻道】：903
