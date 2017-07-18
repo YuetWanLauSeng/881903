@@ -255,24 +255,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212339815
+<br>【MediaFire】：http://adf.ly/1nTpGs
+<br>【MediaFire】：http://www.linkbucks.com/Awhwd
+<br>【百度網盤】：http://adf.ly/1nTp8E
+<br>【百度網盤】：http://www.linkbucks.com/Awh7k
+<br>【百度密碼】：9gr8
 
 <br>【節目名稱】：歐陽志強.2017-07-18
 <br>【節目頻道】：903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212339692
+<br>【MediaFire】：http://adf.ly/1nTpEU
+<br>【MediaFire】：http://www.linkbucks.com/AwhzS
+<br>【百度網盤】：http://adf.ly/1nTp9v
+<br>【百度網盤】：http://www.linkbucks.com/Awh6m
+<br>【百度密碼】：5z5h
 
 <br>【節目名稱】：書.情.歌.2017-07-18
 <br>【節目頻道】：881
@@ -286,12 +286,12 @@
 <br>【節目主持】：熊書頤
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-07-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212339739
+<br>【MediaFire】：http://adf.ly/1nTpDd
+<br>【MediaFire】：http://www.linkbucks.com/Awh0e
+<br>【百度網盤】：http://adf.ly/1nTpAp
+<br>【百度網盤】：http://www.linkbucks.com/Awh4C
+<br>【百度密碼】：gzpq
 
 <br>【節目名稱】：光明頂.2017-07-18
 <br>【節目頻道】：881
