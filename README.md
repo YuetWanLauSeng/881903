@@ -243,48 +243,48 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212690212
+<br>【MediaFire】：http://adf.ly/1nUpHQ
+<br>【MediaFire】：http://www.linkbucks.com/Awhbc
+<br>【百度網盤】：http://adf.ly/1nUpQl
+<br>【百度網盤】：http://www.linkbucks.com/Awham
+<br>【百度密碼】：e9hd
 
 <br>【節目名稱】：歐陽志強.2017-07-19
 <br>【節目頻道】：903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212689920
+<br>【MediaFire】：http://adf.ly/1nUpI6
+<br>【MediaFire】：http://www.linkbucks.com/AwhbQ
+<br>【百度網盤】：http://adf.ly/1nUpTf
+<br>【百度網盤】：http://www.linkbucks.com/Awhal
+<br>【百度密碼】：p13d
 
 <br>【節目名稱】：書.情.歌.2017-07-19
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212689997
+<br>【MediaFire】：http://adf.ly/1nUpIT
+<br>【MediaFire】：http://www.linkbucks.com/AwhbH
+<br>【百度網盤】：http://adf.ly/1nUpXu
+<br>【百度網盤】：http://www.linkbucks.com/Awhab
+<br>【百度密碼】：n9ec
 
 <br>【節目名稱】：光明頂.2017-07-19
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212703291
+<br>【MediaFire】：http://adf.ly/1nUpLE
+<br>【MediaFire】：http://www.linkbucks.com/Awha3
+<br>【百度網盤】：http://adf.ly/1nUpb6
+<br>【百度網盤】：http://www.linkbucks.com/AwhaK
+<br>【百度密碼】：dkrm
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-07-19
 <br>【節目頻道】：903
