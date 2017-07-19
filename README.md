@@ -104,36 +104,36 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 15:00
 <br>【檔案名稱】：903 Music.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212529390
+<br>【MediaFire】：http://adf.ly/1nUOtP
+<br>【MediaFire】：http://www.linkbucks.com/AwSFy
+<br>【百度網盤】：http://adf.ly/1nUOoS
+<br>【百度網盤】：http://www.linkbucks.com/AwSKp
+<br>【百度密碼】：xm66
 
 <br>【節目名稱】：一點叮一叮.2017-07-19
 <br>【節目頻道】：881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212529539
+<br>【MediaFire】：http://adf.ly/1nUOqq
+<br>【MediaFire】：http://www.linkbucks.com/AwSIl
+<br>【百度網盤】：http://adf.ly/1nUOpL
+<br>【百度網盤】：http://www.linkbucks.com/AwSKI
+<br>【百度密碼】：j5cx
 
 <br>【節目名稱】：人生交叉盤.2017-07-19
 <br>【節目頻道】：881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212529463
+<br>【MediaFire】：http://adf.ly/1nUOrG
+<br>【MediaFire】：http://www.linkbucks.com/AwSIK
+<br>【百度網盤】：http://adf.ly/1nUOq8
+<br>【百度網盤】：http://www.linkbucks.com/AwSJG
+<br>【百度密碼】：g84d
 
 <br>【節目名稱】：你好嘢.2017-07-19
 <br>【節目頻道】：903
