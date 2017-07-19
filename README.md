@@ -171,36 +171,36 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212604001
+<br>【MediaFire】：http://adf.ly/1nUgaE
+<br>【MediaFire】：http://www.linkbucks.com/AwbLG
+<br>【百度網盤】：http://adf.ly/1nUgcB
+<br>【百度網盤】：http://www.linkbucks.com/AwbBc
+<br>【百度密碼】：swy7
 
 <br>【節目名稱】：集雜志.2017-07-19
 <br>【節目頻道】：903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212604136
+<br>【MediaFire】：http://adf.ly/1nUgZd
+<br>【MediaFire】：http://www.linkbucks.com/AwbLT
+<br>【百度網盤】：http://adf.ly/1nUgbY
+<br>【百度網盤】：http://www.linkbucks.com/AwbBv
+<br>【百度密碼】：gtxc
 
 <br>【節目名稱】：人民大道中.2017-07-19
 <br>【節目頻道】：881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-07-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212627681
+<br>【MediaFire】：http://adf.ly/1nUgYt
+<br>【MediaFire】：http://www.linkbucks.com/AwbLn
+<br>【百度網盤】：http://adf.ly/1nUgaw
+<br>【百度網盤】：http://www.linkbucks.com/AwbKv
+<br>【百度密碼】：4yva
 
 <br>【節目名稱】：生活日常.2017-07-19
 <br>【節目頻道】：903
