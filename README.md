@@ -207,84 +207,84 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212967555
+<br>【MediaFire】：http://adf.ly/1nVfhk
+<br>【MediaFire】：http://www.linkbucks.com/AxRXt
+<br>【百度網盤】：http://adf.ly/1nVfgt
+<br>【百度網盤】：http://www.linkbucks.com/AxRXz
+<br>【百度密碼】：bvyv
 
 <br>【節目名稱】：杏林茶.2017-07-20
 <br>【節目頻道】：881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-07-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212967771
+<br>【MediaFire】：http://adf.ly/1nVfiL
+<br>【MediaFire】：http://www.linkbucks.com/AxRXl
+<br>【百度網盤】：http://adf.ly/1nVfg7
+<br>【百度網盤】：http://www.linkbucks.com/AxRYP
+<br>【百度密碼】：5ucf
 
 <br>【節目名稱】：串.2017-07-20
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212967715
+<br>【MediaFire】：http://adf.ly/1nVfj2
+<br>【MediaFire】：http://www.linkbucks.com/AxRXi
+<br>【百度網盤】：http://adf.ly/1nVffB
+<br>【百度網盤】：http://www.linkbucks.com/AxRYp
+<br>【百度密碼】：h37v
 
 <br>【節目名稱】：雲妮鍾情.2017-07-20
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212967866
+<br>【MediaFire】：http://adf.ly/1nVfjk
+<br>【MediaFire】：http://www.linkbucks.com/AxRWc
+<br>【百度網盤】：http://adf.ly/1nVfeH
+<br>【百度網盤】：http://www.linkbucks.com/AxRY3
+<br>【百度密碼】：d5hg
 
 <br>【節目名稱】：歐陽志強.2017-07-20
 <br>【節目頻道】：903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-07-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212966569
+<br>【MediaFire】：http://adf.ly/1nVfml
+<br>【MediaFire】：http://www.linkbucks.com/AxRRV
+<br>【百度網盤】：http://adf.ly/1nVfdc
+<br>【百度網盤】：http://www.linkbucks.com/AxRZK
+<br>【百度密碼】：xxx7
 
 <br>【節目名稱】：書.情.歌.2017-07-20
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-07-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212967632
+<br>【MediaFire】：http://adf.ly/1nVfnc
+<br>【MediaFire】：http://www.linkbucks.com/AxRQz
+<br>【百度網盤】：http://adf.ly/1nVfce
+<br>【百度網盤】：http://www.linkbucks.com/AxRZW
+<br>【百度密碼】：wgpz
 
 <br>【節目名稱】：光明頂.2017-07-20
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-212972278
+<br>【MediaFire】：http://adf.ly/1nVfoC
+<br>【MediaFire】：http://www.linkbucks.com/AxRQU
+<br>【百度網盤】：http://adf.ly/1nVfa1
+<br>【百度網盤】：http://www.linkbucks.com/AxRZ2
+<br>【百度密碼】：f4qe
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-07-20
 <br>【節目頻道】：903
