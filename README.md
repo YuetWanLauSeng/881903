@@ -231,36 +231,36 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213137386
+<br>【MediaFire】：http://adf.ly/1nWTeV
+<br>【MediaFire】：http://www.linkbucks.com/AxQFf
+<br>【百度網盤】：http://adf.ly/1nWThb
+<br>【百度網盤】：http://www.linkbucks.com/AxQHJ
+<br>【百度密碼】：6uxi
 
 <br>【節目名稱】：雲妮鍾情.2017-07-21
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213137399
+<br>【MediaFire】：http://adf.ly/1nWTfF
+<br>【MediaFire】：http://www.linkbucks.com/AxQF8
+<br>【百度網盤】：http://adf.ly/1nWTfs
+<br>【百度網盤】：http://www.linkbucks.com/AxQGi
+<br>【百度密碼】：hgtn
 
 <br>【節目名稱】：歐陽志強.2017-07-21
 <br>【節目頻道】：903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213137368
+<br>【MediaFire】：http://adf.ly/1nWTf0
+<br>【MediaFire】：http://www.linkbucks.com/AxQFv
+<br>【百度網盤】：http://adf.ly/1nWTiC
+<br>【百度網盤】：http://www.linkbucks.com/AxQHn
+<br>【百度密碼】：bqfv
 
 <br>【節目名稱】：書.情.歌.2017-07-21
 <br>【節目頻道】：881
@@ -274,24 +274,24 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213137388
+<br>【MediaFire】：http://adf.ly/1nWTdx
+<br>【MediaFire】：http://www.linkbucks.com/AxQFJ
+<br>【百度網盤】：http://adf.ly/1nWTgm
+<br>【百度網盤】：http://www.linkbucks.com/AxQG6
+<br>【百度密碼】：vea6
 
 <br>【節目名稱】：光明頂.2017-07-21
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213137777
+<br>【MediaFire】：http://adf.ly/1nWUFw
+<br>【MediaFire】：http://www.linkbucks.com/AxPzQ
+<br>【百度網盤】：http://adf.ly/1nWUGo
+<br>【百度網盤】：http://www.linkbucks.com/AxPzJ
+<br>【百度密碼】：5gqe
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-07-21
 <br>【節目頻道】：903
