@@ -102,50 +102,45 @@
 <br>【節目名稱】：叱咤樂壇.2017-07-21
 <br>【節目頻道】：903
 <br>【節目主持】：謝茜嘉 | 梁文禮
-<br>【節目時間】：12:00 - 14:00
+<br>【節目時間】：12:00 - 15:00
 <br>【檔案名稱】：903 Music.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213096576
+<br>【MediaFire】：http://adf.ly/1nW8E1
+<br>【MediaFire】：http://www.linkbucks.com/AxRqR
+<br>【百度網盤】：http://adf.ly/1nW8BN
+<br>【百度網盤】：http://www.linkbucks.com/AxRqo
+<br>【百度密碼】：krfm
 
 <br>【節目名稱】：一點叮一叮.2017-07-21
 <br>【節目頻道】：881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213096637
+<br>【MediaFire】：http://adf.ly/1nW8HT
+<br>【MediaFire】：http://www.linkbucks.com/AxRoP
+<br>【百度網盤】：http://adf.ly/1nW895
+<br>【百度網盤】：http://www.linkbucks.com/AxRrx
+<br>【百度密碼】：t2wh
 
 <br>【節目名稱】：人生交叉盤.2017-07-21
 <br>【節目頻道】：881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213096605
+<br>【MediaFire】：http://adf.ly/1nW8Mh
+<br>【MediaFire】：http://www.linkbucks.com/AxRnq
+<br>【百度網盤】：http://adf.ly/1nW83w
+<br>【百度網盤】：http://www.linkbucks.com/AxRtn
+<br>【百度密碼】：ahec
 
 <br>【節目名稱】：你好嘢.2017-07-21
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：續播『叱咤樂壇』
 
 <br>【節目名稱】：大玩派.2017-07-21
 <br>【節目頻道】：881
