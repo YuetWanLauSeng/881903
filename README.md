@@ -129,12 +129,12 @@
 <br>【節目主持】：DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-07-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213188951
+<br>【MediaFire】：http://adf.ly/1nWvKP
+<br>【MediaFire】：http://www.linkbucks.com/Aw6jM
+<br>【百度網盤】：http://adf.ly/1nWvJx
+<br>【百度網盤】：http://www.linkbucks.com/Aw6jl
+<br>【百度密碼】：i9fx
 
 <br>【節目名稱】：1圈圈 (周末版).2017-07-22
 <br>【節目頻道】：881
