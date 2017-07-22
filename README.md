@@ -213,24 +213,24 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-07-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213242789
+<br>【MediaFire】：http://adf.ly/1nXKSS
+<br>【MediaFire】：http://www.linkbucks.com/Aw8ll
+<br>【百度網盤】：http://adf.ly/1nXKNp
+<br>【百度網盤】：http://www.linkbucks.com/Aw8nE
+<br>【百度密碼】：esat
 
 <br>【節目名稱】：Chi Chung's Class.2017-07-22
 <br>【節目頻道】：903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-07-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213242847
+<br>【MediaFire】：http://adf.ly/1nXKRc
+<br>【MediaFire】：http://www.linkbucks.com/Aw8mH
+<br>【百度網盤】：http://adf.ly/1nXKOl
+<br>【百度網盤】：http://www.linkbucks.com/Aw8mw
+<br>【百度密碼】：ftbz
 
 <br>【節目名稱】：與時並進.2017-07-22
 <br>【節目頻道】：881
