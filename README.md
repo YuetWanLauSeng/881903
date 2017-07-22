@@ -141,48 +141,48 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-07-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213222095
+<br>【MediaFire】：http://adf.ly/1nX8Z6
+<br>【MediaFire】：http://www.linkbucks.com/AxDco
+<br>【百度網盤】：http://adf.ly/1nX8Xd
+<br>【百度網盤】：http://www.linkbucks.com/AxDcI
+<br>【百度密碼】：fh1v
 
 <br>【節目名稱】：豁達推介.2017-07-22
 <br>【節目頻道】：903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-07-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213222171
+<br>【MediaFire】：http://adf.ly/1nX8Yl
+<br>【MediaFire】：http://www.linkbucks.com/AxDcg
+<br>【百度網盤】：http://adf.ly/1nX8Wa
+<br>【百度網盤】：http://www.linkbucks.com/AxDb2
+<br>【百度密碼】：a4rv
 
 <br>【節目名稱】：大鐵人.2017-07-22
 <br>【節目頻道】：881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-07-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213222205
+<br>【MediaFire】：http://adf.ly/1nX8YL
+<br>【MediaFire】：http://www.linkbucks.com/AxDcT
+<br>【百度網盤】：http://adf.ly/1nX8W4
+<br>【百度網盤】：http://www.linkbucks.com/AxDbo
+<br>【百度密碼】：urt1
 
 <br>【節目名稱】：3號螺絲釘.2017-07-22
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-07-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213222418
+<br>【MediaFire】：http://adf.ly/1nX8be
+<br>【MediaFire】：http://www.linkbucks.com/AxDdU
+<br>【百度網盤】：http://adf.ly/1nX8VC
+<br>【百度網盤】：http://www.linkbucks.com/AxDbU
+<br>【百度密碼】：ncny
 
 <br>【節目名稱】：第三齡接觸.2017-07-22
 <br>【節目頻道】：881
