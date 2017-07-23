@@ -69,24 +69,24 @@
 <br>【節目主持】：麥詠宜
 <br>【節目時間】：11:00 - 12:00
 <br>【檔案名稱】：The Way We Are.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213305483
+<br>【MediaFire】：http://adf.ly/1nXhBq
+<br>【MediaFire】：http://www.linkbucks.com/AxVDA
+<br>【百度網盤】：http://adf.ly/1nXhA9
+<br>【百度網盤】：http://www.linkbucks.com/AxVEQ
+<br>【百度密碼】：98qn
 
 <br>【節目名稱】：讀賣Sunday.2017-07-23
 <br>【節目頻道】：903
 <br>【節目主持】：占 | 王貽興
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213305464
+<br>【MediaFire】：http://adf.ly/1nXhCH
+<br>【MediaFire】：http://www.linkbucks.com/AxVCW
+<br>【百度網盤】：http://adf.ly/1nXhAe
+<br>【百度網盤】：http://www.linkbucks.com/AxVDo
+<br>【百度密碼】：3jp8
 
 <br>【節目名稱】：無定向喪煲病狂.2017-07-23
 <br>【節目頻道】：903
