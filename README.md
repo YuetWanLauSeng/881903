@@ -140,37 +140,37 @@
 <br>【節目頻道】：881
 <br>【節目主持】：樂樂
 <br>【節目時間】：15:00 - 16:00
-<br>【檔案名稱】：Venus’ Secret Garden.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：Venus’Secret Garden.2017-07-23
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213334048
+<br>【MediaFire】：http://adf.ly/1nXpU5
+<br>【MediaFire】：http://www.linkbucks.com/AxrYL
+<br>【百度網盤】：http://adf.ly/1nXoaf
+<br>【百度網盤】：http://www.linkbucks.com/Axsa0
+<br>【百度密碼】：rjp5
 
 <br>【節目名稱】：細眉細眼調查科.2017-07-23
 <br>【節目頻道】：881
 <br>【節目主持】：吳詠希
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Trivial Vestigation.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213334035
+<br>【MediaFire】：http://adf.ly/1nXpUn
+<br>【MediaFire】：http://www.linkbucks.com/AxrXf
+<br>【百度網盤】：http://adf.ly/1nXpSz
+<br>【百度網盤】：http://www.linkbucks.com/AxrZk
+<br>【百度密碼】：pt2p
 
 <br>【節目名稱】：兒童適宜.2017-07-23
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213334017
+<br>【MediaFire】：http://adf.ly/1nXpVJ
+<br>【MediaFire】：http://www.linkbucks.com/AxrXK
+<br>【百度網盤】：http://adf.ly/1nXpTg
+<br>【百度網盤】：http://www.linkbucks.com/AxrYx
+<br>【百度密碼】：rxyb
 
 <br>【節目名稱】：聽楓的歌.2017-07-23
 <br>【節目頻道】：881
