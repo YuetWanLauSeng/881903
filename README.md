@@ -88,6 +88,42 @@
 <br>【百度網盤】：http://www.linkbucks.com/AxVDo
 <br>【百度密碼】：3jp8
 
+<br>【節目名稱】：暑期作業.2017-07-23
+<br>【節目頻道】：881
+<br>【節目主持】：張子君
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：Summer Homework.2017-07-23
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213315680
+<br>【MediaFire】：http://adf.ly/1nXkj8
+<br>【MediaFire】：http://www.linkbucks.com/Axvlt
+<br>【百度網盤】：http://adf.ly/1nXki1
+<br>【百度網盤】：http://www.linkbucks.com/Axvns
+<br>【百度密碼】：4pw2
+
+<br>【節目名稱】：都是我的流行曲.2017-07-23
+<br>【節目頻道】：881
+<br>【節目主持】：江健聰
+<br>【節目時間】：13:00 - 14:00
+<br>【檔案名稱】：Oldies Buddy.2017-07-23
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213315670
+<br>【MediaFire】：http://adf.ly/1nXkjS
+<br>【MediaFire】：http://www.linkbucks.com/Axvlf
+<br>【百度網盤】：http://adf.ly/1nXkiR
+<br>【百度網盤】：http://www.linkbucks.com/Axvm6
+<br>【百度密碼】：5ar1
+
+<br>【節目名稱】：貼身科技局.2017-07-23
+<br>【節目頻道】：881
+<br>【節目主持】：譚嘉昇 | 伍甄琪
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Daily I.T. Bureau.2017-07-23
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213315636
+<br>【MediaFire】：http://adf.ly/1nXkk8
+<br>【MediaFire】：http://www.linkbucks.com/Axvky
+<br>【百度網盤】：http://adf.ly/1nXkir
+<br>【百度網盤】：http://www.linkbucks.com/AxvmA
+<br>【百度密碼】：pgqh
+
 <br>【節目名稱】：無定向喪煲病狂.2017-07-23
 <br>【節目頻道】：903
 <br>【節目主持】：鄒凱光 | 檸
@@ -100,11 +136,47 @@
 <br>【百度網盤】：
 <br>【百度密碼】：
 
+<br>【節目名稱】：樂樂的後花園.2017-07-23
+<br>【節目頻道】：881
+<br>【節目主持】：樂樂
+<br>【節目時間】：15:00 - 16:00
+<br>【檔案名稱】：Venus’ Secret Garden.2017-07-23
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：細眉細眼調查科.2017-07-23
+<br>【節目頻道】：881
+<br>【節目主持】：吳詠希
+<br>【節目時間】：16:00 - 17:00
+<br>【檔案名稱】：Trivial Vestigation.2017-07-23
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
 <br>【節目名稱】：兒童適宜.2017-07-23
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-07-23
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：聽楓的歌.2017-07-23
+<br>【節目頻道】：881
+<br>【節目主持】：江慧楓
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Maple Swing.2017-07-23
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
