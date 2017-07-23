@@ -177,36 +177,36 @@
 <br>【節目主持】：江慧楓
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Maple Swing.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213360339
+<br>【MediaFire】：http://adf.ly/1nXykP
+<br>【MediaFire】：http://www.linkbucks.com/Ax36B
+<br>【百度網盤】：http://adf.ly/1nXybQ
+<br>【百度網盤】：http://www.linkbucks.com/Ax4IQ
+<br>【百度密碼】：jpgd
 
 <br>【節目名稱】：Mali Mali Home.2017-07-23
 <br>【節目頻道】：903
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213360317
+<br>【MediaFire】：http://adf.ly/1nXywX
+<br>【MediaFire】：http://www.linkbucks.com/Ax33A
+<br>【百度網盤】：http://adf.ly/1nXydt
+<br>【百度網盤】：http://www.linkbucks.com/Ax4DH
+<br>【百度密碼】：j9d3
 
 <br>【節目名稱】：串.2017-07-23
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213360355
+<br>【MediaFire】：http://adf.ly/1nXygv
+<br>【MediaFire】：http://www.linkbucks.com/Ax39P
+<br>【百度網盤】：http://adf.ly/1nXyaG
+<br>【百度網盤】：http://www.linkbucks.com/Ax4Po
+<br>【百度密碼】：aav5
 
 <br>【節目名稱】：讀懂中國.2017-07-23
 <br>【節目頻道】：881
