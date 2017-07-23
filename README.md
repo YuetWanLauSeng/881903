@@ -129,12 +129,7 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：
 
 <br>【節目名稱】：樂樂的後花園.2017-07-23
 <br>【節目頻道】：881
@@ -261,36 +256,36 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213383541
+<br>【MediaFire】：http://adf.ly/1nY8u1
+<br>【MediaFire】：http://www.linkbucks.com/Axf4s
+<br>【百度網盤】：http://adf.ly/1nY8ix
+<br>【百度網盤】：http://www.linkbucks.com/AxgNu
+<br>【百度密碼】：ucu8
 
 <br>【節目名稱】：帶一本書去旅行.2017-07-23
 <br>【節目頻道】：881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213383527
+<br>【MediaFire】：http://adf.ly/1nY8tW
+<br>【MediaFire】：http://www.linkbucks.com/Axf5m
+<br>【百度網盤】：http://adf.ly/1nY8jZ
+<br>【百度網盤】：http://www.linkbucks.com/AxgK0
+<br>【百度密碼】：zfpz
 
 <br>【節目名稱】：葛民教育.2017-07-23
 <br>【節目頻道】：881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-07-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213383497
+<br>【MediaFire】：http://adf.ly/1nY8sv
+<br>【MediaFire】：http://www.linkbucks.com/Axf6P
+<br>【百度網盤】：http://adf.ly/1nY8ki
+<br>【百度網盤】：http://www.linkbucks.com/AxgJ7
+<br>【百度密碼】：rw1j
 
 <br>【節目名稱】：短期租約.2017-07-23
 <br>【節目頻道】：903
