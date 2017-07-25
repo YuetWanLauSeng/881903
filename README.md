@@ -236,12 +236,12 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-25
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213655744
+<br>【MediaFire】：http://adf.ly/1nZgkD
+<br>【MediaFire】：http://www.linkbucks.com/Ax39D
+<br>【百度網盤】：http://adf.ly/1nZghz
+<br>【百度網盤】：http://www.linkbucks.com/Ax39L
+<br>【百度密碼】：wv3y
 
 <br>【節目名稱】：雲妮鍾情.2017-07-25
 <br>【節目頻道】：903
