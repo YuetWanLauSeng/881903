@@ -17,8 +17,7 @@
 <br>【百度密碼】：en6e
 
 <br>【節目名稱】：在晴朗的一天出發（881）.2017-07-26
-<br>【節目頻道】：881
-<br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 符靜琳 | 李兆綸
+<br>【節目頻道】：881子君 | 符靜琳 | 李兆綸
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-07-26
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213702405
@@ -104,48 +103,48 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-07-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213735327
+<br>【MediaFire】：http://adf.ly/1naHKZ
+<br>【MediaFire】：http://www.linkbucks.com/AyQWa
+<br>【百度網盤】：http://adf.ly/1naHQF
+<br>【百度網盤】：http://www.linkbucks.com/AyQM2
+<br>【百度密碼】：7drt
 
 <br>【節目名稱】：一點叮一叮.2017-07-26
 <br>【節目頻道】：881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213735435
+<br>【MediaFire】：http://adf.ly/1naHL7
+<br>【MediaFire】：http://www.linkbucks.com/AyQV2
+<br>【百度網盤】：http://adf.ly/1naHPE
+<br>【百度網盤】：http://www.linkbucks.com/AyQPf
+<br>【百度密碼】：4rih
 
 <br>【節目名稱】：人生交叉盤.2017-07-26
 <br>【節目頻道】：881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213735375
+<br>【MediaFire】：http://adf.ly/1naHLj
+<br>【MediaFire】：http://www.linkbucks.com/AyQU4
+<br>【百度網盤】：http://adf.ly/1naHR6
+<br>【百度網盤】：http://www.linkbucks.com/AyQKp
+<br>【百度密碼】：u4a5
 
 <br>【節目名稱】：你好嘢.2017-07-26
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213735481
+<br>【MediaFire】：http://adf.ly/1naHMM
+<br>【MediaFire】：http://www.linkbucks.com/AyQTD
+<br>【百度網盤】：http://adf.ly/1naHRj
+<br>【百度網盤】：http://www.linkbucks.com/AyQKV
+<br>【百度密碼】：e4qq
 
 <br>【節目名稱】：大玩派.2017-07-26
 <br>【節目頻道】：881
