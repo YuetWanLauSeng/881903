@@ -80,24 +80,24 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-07-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213722345
+<br>【MediaFire】：http://adf.ly/1naDdh
+<br>【MediaFire】：http://www.linkbucks.com/AyYQM
+<br>【百度網盤】：http://adf.ly/1naDcD
+<br>【百度網盤】：http://www.linkbucks.com/AyYSd
+<br>【百度密碼】：ix4d
 
 <br>【節目名稱】：十八樓C座.2017-07-26
 <br>【節目頻道】：881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-07-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213722195
+<br>【MediaFire】：http://adf.ly/1naDdB
+<br>【MediaFire】：http://www.linkbucks.com/AyYRT
+<br>【百度網盤】：http://adf.ly/1naDbe
+<br>【百度網盤】：http://www.linkbucks.com/AyYS9
+<br>【百度密碼】：gen6
 
 <br>【節目名稱】：叱咤樂壇.2017-07-26
 <br>【節目頻道】：903
