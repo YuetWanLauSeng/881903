@@ -17,7 +17,8 @@
 <br>【百度密碼】：en6e
 
 <br>【節目名稱】：在晴朗的一天出發（881）.2017-07-26
-<br>【節目頻道】：881子君 | 符靜琳 | 李兆綸
+<br>【節目頻道】：881
+<br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 符靜琳 | 李兆綸
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-07-26
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213702405
@@ -151,24 +152,24 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-07-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213740773
+<br>【MediaFire】：http://adf.ly/1naJVm
+<br>【MediaFire】：http://www.linkbucks.com/Ayntv
+<br>【百度網盤】：http://adf.ly/1naJTq
+<br>【百度網盤】：http://www.linkbucks.com/AynwZ
+<br>【百度密碼】：67n2
 
 <br>【節目名稱】：口水多過浪花.2017-07-26
 <br>【節目頻道】：903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-07-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213740823
+<br>【MediaFire】：http://adf.ly/1naJZA
+<br>【MediaFire】：http://www.linkbucks.com/Aynqf
+<br>【百度網盤】：http://adf.ly/1naJUx
+<br>【百度網盤】：http://www.linkbucks.com/Aynuz
+<br>【百度密碼】：3txs
 
 <br>【節目名稱】：毒檸王國.2017-07-26
 <br>【節目頻道】：903
