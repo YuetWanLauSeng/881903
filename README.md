@@ -68,24 +68,24 @@
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-07-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213947700
+<br>【MediaFire】：http://adf.ly/1nbj2y
+<br>【MediaFire】：http://www.linkbucks.com/AyQFL
+<br>【百度網盤】：http://adf.ly/1nbj03
+<br>【百度網盤】：http://www.linkbucks.com/AyQCy
+<br>【百度密碼】：57r9
 
 <br>【節目名稱】：1圈圈.2017-07-28
 <br>【節目頻道】：881
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-07-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-213947354
+<br>【MediaFire】：http://www.linkbucks.com/AyQDz
+<br>【MediaFire】：http://adf.ly/1nbj0p
+<br>【百度網盤】：http://adf.ly/1nbj0K
+<br>【百度網盤】：http://www.linkbucks.com/AyQDP
+<br>【百度密碼】：rvvd
 
 <br>【節目名稱】：十八樓C座.2017-07-28
 <br>【節目頻道】：881
