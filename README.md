@@ -189,24 +189,31 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214055308
+<br>【MediaFire】：http://adf.ly/1ncrxx
+<br>【MediaFire】：http://www.linkbucks.com/AzO6H
+<br>【百度網盤】：http://adf.ly/1ncs1C
+<br>【百度網盤】：http://www.linkbucks.com/AzO3Q
+<br>【百度密碼】：1b8t
 
 <br>【節目名稱】：西瓜大發.2017-07-29
 <br>【節目頻道】：903
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『叱咤樂壇』
+
+<br>【節目名稱】：叱咤樂壇.2017-07-29
+<br>【節目頻道】：903
+<br>【節目主持】：梁文禮 | 謝茜嘉
+<br>【節目時間】：19:00 - 21:00
+<br>【檔案名稱】：903 Music.2017-07-29
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214055000
+<br>【MediaFire】：http://adf.ly/1ncryd
+<br>【MediaFire】：http://www.linkbucks.com/AzO5Q
+<br>【百度網盤】：http://adf.ly/1ncs3p
+<br>【百度網盤】：http://www.linkbucks.com/AzOzj
+<br>【百度密碼】：wuzt
 
 <br>【節目名稱】：雷霆音樂圈.2017-07-29
 <br>【節目頻道】：881
