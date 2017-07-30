@@ -2,8 +2,6 @@
 ### 歡迎到本人的論壇進行查閱
 ### http://www.yuetwanlauseng.com
 
-<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
-
 <br>【節目名稱】：書.情.歌.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
@@ -141,48 +139,48 @@
 <br>【節目主持】：樂樂
 <br>【節目時間】：15:00 - 16:00
 <br>【檔案名稱】：Venus’Secret Garden.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214102212
+<br>【MediaFire】：http://adf.ly/1ndUjW
+<br>【MediaFire】：http://www.linkbucks.com/Ayq3V
+<br>【百度網盤】：http://adf.ly/1ndUgZ
+<br>【百度網盤】：http://www.linkbucks.com/Ayq5D
+<br>【百度密碼】：r7rw
 
 <br>【節目名稱】：細眉細眼調查科.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：吳詠希
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Trivial Vestigation.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214102015
+<br>【MediaFire】：http://adf.ly/1ndUjn
+<br>【MediaFire】：http://www.linkbucks.com/Ayq3I
+<br>【百度網盤】：http://adf.ly/1ndUhH
+<br>【百度網盤】：http://www.linkbucks.com/Ayq4p
+<br>【百度密碼】：8n27
 
 <br>【節目名稱】：兒童適宜.2017-07-30
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214101807
+<br>【MediaFire】：http://adf.ly/1ndUj1
+<br>【MediaFire】：http://www.linkbucks.com/Ayq3j
+<br>【百度網盤】：http://adf.ly/1ndUhp
+<br>【百度網盤】：http://www.linkbucks.com/Ayq4L
+<br>【百度密碼】：8dwy
 
 <br>【節目名稱】：聽楓的歌.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：江慧楓
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Maple Swing.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214102689
+<br>【MediaFire】：http://adf.ly/1ndUiQ
+<br>【MediaFire】：http://www.linkbucks.com/Ayq3y
+<br>【百度網盤】：http://adf.ly/1ndUfa
+<br>【百度網盤】：http://www.linkbucks.com/Ayq5Q
+<br>【百度密碼】：phjt
 
 <br>【節目名稱】：Mali Mali Home.2017-07-30
 <br>【節目頻道】：903
