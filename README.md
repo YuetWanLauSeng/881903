@@ -225,36 +225,36 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214118299
+<br>【MediaFire】：http://adf.ly/1ndcWW
+<br>【MediaFire】：http://www.linkbucks.com/Ayzme
+<br>【百度網盤】：http://adf.ly/1ndclo
+<br>【百度網盤】：http://www.linkbucks.com/Ayzdf
+<br>【百度密碼】：e2ak
 
 <br>【節目名稱】：泡菜粉絲煲.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214118489
+<br>【MediaFire】：http://adf.ly/1ndcV1
+<br>【MediaFire】：http://www.linkbucks.com/AyznG
+<br>【百度網盤】：http://adf.ly/1ndclC
+<br>【百度網盤】：http://www.linkbucks.com/Ayze3
+<br>【百度密碼】：i5jq
 
 <br>【節目名稱】：細路強.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214118616
+<br>【MediaFire】：http://adf.ly/1ndcRq
+<br>【MediaFire】：http://www.linkbucks.com/AyznR
+<br>【百度網盤】：http://adf.ly/1ndcav
+<br>【百度網盤】：http://www.linkbucks.com/AyzkP
+<br>【百度密碼】：my45
 
 <br>【節目名稱】：國民教育.2017-07-30
 <br>【節目頻道】：903
