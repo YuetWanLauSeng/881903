@@ -220,24 +220,24 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214073433
+<br>【MediaFire】：http://adf.ly/1ndHYy
+<br>【MediaFire】：http://www.linkbucks.com/Ayxb3
+<br>【百度網盤】：http://adf.ly/1ndHTa
+<br>【百度網盤】：http://www.linkbucks.com/AyxSc
+<br>【百度密碼】：1ipj
 
 <br>【節目名稱】：Chi Chung's Class.2017-07-29
 <br>【節目頻道】：903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214073677
+<br>【MediaFire】：http://adf.ly/1ndHYA
+<br>【MediaFire】：http://www.linkbucks.com/AyxX3
+<br>【百度網盤】：http://adf.ly/1ndHRl
+<br>【百度網盤】：http://www.linkbucks.com/AyxQx
+<br>【百度密碼】：ekha
 
 <br>【節目名稱】：與時並進.2017-07-29
 <br>【節目頻道】：881
@@ -245,59 +245,59 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214073710
+<br>【MediaFire】：http://adf.ly/1ndHWS
+<br>【MediaFire】：http://www.linkbucks.com/AyxVq
+<br>【百度網盤】：http://adf.ly/1ndHRI
+<br>【百度網盤】：http://www.linkbucks.com/AyxQV
+<br>【百度密碼】：czan
 
 <br>【節目名稱】：公子會.2017-07-29
 <br>【節目頻道】：903
 <br>【節目日期】：2017-07-29
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：劉美君
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214073739
+<br>【MediaFire】：http://adf.ly/1ndHYX
+<br>【MediaFire】：http://www.linkbucks.com/AyxZR
+<br>【百度網盤】：http://adf.ly/1ndHNy
+<br>【百度網盤】：http://www.linkbucks.com/AyxMY
+<br>【百度密碼】：6nsd
 
 <br>【節目名稱】：發式生活.2017-07-29
 <br>【節目頻道】：881
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214073779
+<br>【MediaFire】：http://adf.ly/1ndHXo
+<br>【MediaFire】：http://www.linkbucks.com/AyxXE
+<br>【百度網盤】：http://adf.ly/1ndHQC
+<br>【百度網盤】：http://www.linkbucks.com/AyxPf
+<br>【百度密碼】：yr9x
 
 <br>【節目名稱】：皇牌出場.2017-07-29
 <br>【節目頻道】：903
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214073827
+<br>【MediaFire】：http://adf.ly/1ndHX5
+<br>【MediaFire】：http://www.linkbucks.com/AyxWa
+<br>【百度網盤】：http://adf.ly/1ndHP0
+<br>【百度網盤】：http://www.linkbucks.com/AyxOW
+<br>【百度密碼】：kfka
 
 <br>【節目名稱】：一切從音樂開始.2017-07-29
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214073614
+<br>【MediaFire】：http://adf.ly/1ndHZA
+<br>【MediaFire】：http://www.linkbucks.com/Ayxb9
+<br>【百度網盤】：http://adf.ly/1ndHSL
+<br>【百度網盤】：http://www.linkbucks.com/AyxRy
+<br>【百度密碼】：5xed
