@@ -212,36 +212,36 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214191028
+<br>【MediaFire】：http://adf.ly/1neG8x
+<br>【MediaFire】：http://www.linkbucks.com/AzO58
+<br>【百度網盤】：http://adf.ly/1neGB5
+<br>【百度網盤】：http://www.linkbucks.com/AzO5L
+<br>【百度密碼】：6akj
 
 <br>【節目名稱】：杏林茶.2017-07-31
 <br>【節目頻道】：881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214191109
+<br>【MediaFire】：http://adf.ly/1neG8M
+<br>【MediaFire】：http://www.linkbucks.com/AzPE9
+<br>【百度網盤】：http://adf.ly/1neG9W
+<br>【百度網盤】：http://www.linkbucks.com/AzO5w
+<br>【百度密碼】：yhze
 
 <br>【節目名稱】：串.2017-07-31
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214192856
+<br>【MediaFire】：http://adf.ly/1neGDj
+<br>【MediaFire】：http://www.linkbucks.com/AzO3g
+<br>【百度網盤】：http://adf.ly/1neGBj
+<br>【百度網盤】：http://www.linkbucks.com/AzO4t
+<br>【百度密碼】：2b6s
 
 <br>【節目名稱】：雲妮鍾情.2017-07-31
 <br>【節目頻道】：903
