@@ -261,81 +261,81 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214138541
+<br>【MediaFire】：http://adf.ly/1ndu70
+<br>【MediaFire】：http://www.linkbucks.com/AzAGI
+<br>【百度網盤】：http://adf.ly/1ndu2f
+<br>【百度網盤】：http://www.linkbucks.com/AzAQM
+<br>【百度密碼】：9g88
 
 <br>【節目名稱】：帶一本書去旅行.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214137965
+<br>【MediaFire】：http://adf.ly/1ndu7N
+<br>【MediaFire】：http://www.linkbucks.com/AzAF4
+<br>【百度網盤】：http://adf.ly/1ndu44
+<br>【百度網盤】：http://www.linkbucks.com/AzAPB
+<br>【百度密碼】：fzv1
 
 <br>【節目名稱】：葛民教育.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214137952
+<br>【MediaFire】：http://adf.ly/1ndu8d
+<br>【MediaFire】：http://www.linkbucks.com/AzAFy
+<br>【百度網盤】：http://adf.ly/1ndu4S
+<br>【百度網盤】：http://www.linkbucks.com/AzAOq
+<br>【百度密碼】：vh45
 
 <br>【節目名稱】：短期租約.2017-07-30
 <br>【節目頻道】：903
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214138324
+<br>【MediaFire】：http://adf.ly/1ndu6Q
+<br>【MediaFire】：http://www.linkbucks.com/AzAGr
+<br>【百度網盤】：http://adf.ly/1ndu33
+<br>【百度網盤】：http://www.linkbucks.com/AzAP2
+<br>【百度密碼】：94dv
 
 <br>【節目名稱】：心靈料理.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214137942
+<br>【MediaFire】：http://adf.ly/1ndu7g
+<br>【MediaFire】：http://www.linkbucks.com/AzAF3
+<br>【百度網盤】：http://adf.ly/1ndu4u
+<br>【百度網盤】：http://www.linkbucks.com/AzAOE
+<br>【百度密碼】：74ii
 
 <br>【節目名稱】：寫生活.2017-07-30
 <br>【節目頻道】：881
 <br>【節目主持】：主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214137832
+<br>【MediaFire】：http://adf.ly/1ndu8C
+<br>【MediaFire】：http://www.linkbucks.com/AzAF1
+<br>【百度網盤】：http://adf.ly/1ndu5u
+<br>【百度網盤】：http://www.linkbucks.com/AzAHM
+<br>【百度密碼】：86mg
 
 <br>【節目名稱】：一切從音樂開始.2017-07-30
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-07-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214137926
+<br>【MediaFire】：http://adf.ly/1ndu6B
+<br>【MediaFire】：http://www.linkbucks.com/AzAG5
+<br>【百度網盤】：http://adf.ly/1ndu5V
+<br>【百度網盤】：http://www.linkbucks.com/AzANn
+<br>【百度密碼】：amd5
