@@ -92,96 +92,96 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214177887
+<br>【MediaFire】：http://adf.ly/1neBkY
+<br>【MediaFire】：http://www.linkbucks.com/AzLc3
+<br>【百度網盤】：http://adf.ly/1neBuf
+<br>【百度網盤】：http://www.linkbucks.com/AzLk7
+<br>【百度密碼】：m7er
 
 <br>【節目名稱】：叱咤樂壇.2017-07-31
 <br>【節目頻道】：903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214178086
+<br>【MediaFire】：http://adf.ly/1neBlM
+<br>【MediaFire】：http://www.linkbucks.com/AzLdK
+<br>【百度網盤】：http://adf.ly/1neBth
+<br>【百度網盤】：http://www.linkbucks.com/AzLjY
+<br>【百度密碼】：qmk9
 
 <br>【節目名稱】：一點叮一叮.2017-07-31
 <br>【節目頻道】：881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214178529
+<br>【MediaFire】：http://adf.ly/1neBln
+<br>【MediaFire】：http://www.linkbucks.com/AzLds
+<br>【百度網盤】：http://adf.ly/1neBtB
+<br>【百度網盤】：http://www.linkbucks.com/AzLi8
+<br>【百度密碼】：jqhv
 
 <br>【節目名稱】：人生交叉盤.2017-07-31
 <br>【節目頻道】：881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214178171
+<br>【MediaFire】：http://adf.ly/1neBmZ
+<br>【MediaFire】：http://www.linkbucks.com/AzLeG
+<br>【百度網盤】：http://adf.ly/1neBrg
+<br>【百度網盤】：http://www.linkbucks.com/AzLh1
+<br>【百度密碼】：hq9s
 
 <br>【節目名稱】：你好嘢.2017-07-31
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214178667
+<br>【MediaFire】：http://adf.ly/1neBn4
+<br>【MediaFire】：http://www.linkbucks.com/AzLeV
+<br>【百度網盤】：http://adf.ly/1neBr2
+<br>【百度網盤】：http://www.linkbucks.com/AzLhZ
+<br>【百度密碼】：jjv1
 
 <br>【節目名稱】：大玩派.2017-07-31
 <br>【節目頻道】：881
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214178597
+<br>【MediaFire】：http://adf.ly/1neBnb
+<br>【MediaFire】：http://www.linkbucks.com/AzLe1
+<br>【百度網盤】：http://adf.ly/1neBqG
+<br>【百度網盤】：http://www.linkbucks.com/AzLhA
+<br>【百度密碼】：yb5k
 
 <br>【節目名稱】：口水多過浪花.2017-07-31
 <br>【節目頻道】：903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214178640
+<br>【MediaFire】：http://adf.ly/1neBnp
+<br>【MediaFire】：http://www.linkbucks.com/AzLfb
+<br>【百度網盤】：http://adf.ly/1neBpN
+<br>【百度網盤】：http://www.linkbucks.com/AzLgg
+<br>【百度密碼】：cxpa
 
 <br>【節目名稱】：毒檸王國.2017-07-31
 <br>【節目頻道】：903
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-07-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214178352
+<br>【MediaFire】：http://adf.ly/1neBoE
+<br>【MediaFire】：http://www.linkbucks.com/AzLfl
+<br>【百度網盤】：http://adf.ly/1neBoq
+<br>【百度網盤】：http://www.linkbucks.com/AzLgC
+<br>【百度密碼】：sdnp
 
 <br>【節目名稱】：集雜志.2017-07-31
 <br>【節目頻道】：903
