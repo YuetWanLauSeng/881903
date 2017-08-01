@@ -1,5 +1,4 @@
-### 更豐富的節目資源，更多樣的下載方式
-### 歡迎到本人的論壇進行查閱
+### 歡迎進入本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
 <br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
