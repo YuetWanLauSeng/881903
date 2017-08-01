@@ -1,4 +1,4 @@
-### 歡迎進入本人的電台論壇
+### 歡迎瀏覽本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
 <br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
