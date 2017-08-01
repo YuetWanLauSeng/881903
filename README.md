@@ -67,24 +67,24 @@
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-08-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214237819
+<br>【MediaFire】：http://adf.ly/1necMq
+<br>【MediaFire】：http://www.linkbucks.com/AzxqP
+<br>【百度網盤】：http://adf.ly/1necJo
+<br>【百度網盤】：http://www.linkbucks.com/Azxth
+<br>【百度密碼】：czt3
 
 <br>【節目名稱】：1圈圈.2017-08-01
 <br>【節目頻道】：881
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-08-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214237814
+<br>【MediaFire】：http://adf.ly/1necKI
+<br>【MediaFire】：http://www.linkbucks.com/Azxsi
+<br>【百度網盤】：http://adf.ly/1necJO
+<br>【百度網盤】：http://www.linkbucks.com/Azxtv
+<br>【百度密碼】：crrh
 
 <br>【節目名稱】：十八樓C座.2017-08-01
 <br>【節目頻道】：881
