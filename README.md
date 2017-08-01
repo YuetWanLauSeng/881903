@@ -187,24 +187,24 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-08-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214258428
+<br>【MediaFire】：http://adf.ly/1netRL
+<br>【MediaFire】：http://www.linkbucks.com/Az0md
+<br>【百度網盤】：http://adf.ly/1netSl
+<br>【百度網盤】：http://www.linkbucks.com/Az0lh
+<br>【百度密碼】：5bej
 
 <br>【節目名稱】：人民大道中.2017-08-01
 <br>【節目頻道】：881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-08-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214258406
+<br>【MediaFire】：http://adf.ly/1netRm
+<br>【MediaFire】：http://www.linkbucks.com/Az0mG
+<br>【百度網盤】：http://adf.ly/1netez
+<br>【百度網盤】：http://www.linkbucks.com/Az0cy
+<br>【百度密碼】：mhjp
 
 <br>【節目名稱】：生活日常.2017-08-01
 <br>【節目頻道】：903
@@ -245,8 +245,20 @@
 <br>【節目名稱】：雲妮鍾情.2017-08-01
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
-<br>【節目時間】：21:00 - 23:00
+<br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-01
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：歐陽志強.2017-08-01
+<br>【節目頻道】：903
+<br>【節目主持】：歐楊羚 | 司徒志強
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：From Girls To Ladies.2017-08-01
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
@@ -259,6 +271,13 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-08-01
+<br>【節目暫停】：改播『再創生機』
+
+<br>【節目名稱】：再創生機.2017-08-01
+<br>【節目頻道】：881
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-08-01
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
