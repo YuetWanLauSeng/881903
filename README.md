@@ -188,8 +188,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-08-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214404704
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ng34e
+<br>【MediaFire】：http://www.linkbucks.com/AziLl
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -200,8 +200,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-08-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214403766
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ng33N
+<br>【MediaFire】：http://www.linkbucks.com/AziMZ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -212,8 +212,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-08-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214403239
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ng32P
+<br>【MediaFire】：http://www.linkbucks.com/AziNk
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -248,8 +248,8 @@
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214407432
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ng330
+<br>【MediaFire】：http://www.linkbucks.com/AziM2
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -260,8 +260,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-08-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214406284
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ng35U
+<br>【MediaFire】：http://www.linkbucks.com/AziK4
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -272,8 +272,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-08-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214406670
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ng27a
+<br>【MediaFire】：http://www.linkbucks.com/AzjCD
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -295,9 +295,9 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-08-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214442004
+<br>【MediaFire】：http://adf.ly/1ng287
+<br>【MediaFire】：http://www.linkbucks.com/AzjFJ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -307,9 +307,9 @@
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-08-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214441663
+<br>【MediaFire】：http://adf.ly/1ng358
+<br>【MediaFire】：http://www.linkbucks.com/AziLN
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -319,9 +319,9 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-08-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214440902
+<br>【MediaFire】：http://adf.ly/1ng33k
+<br>【MediaFire】：http://www.linkbucks.com/AziML
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -331,9 +331,9 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214440730
+<br>【MediaFire】：http://adf.ly/1ng3Pv
+<br>【MediaFire】：http://www.linkbucks.com/Azh42
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
