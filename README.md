@@ -128,7 +128,7 @@
 <br>【節目主持】：DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214645044
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -140,7 +140,7 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214646163
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -152,7 +152,7 @@
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214646610
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -164,7 +164,7 @@
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214646884
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -176,7 +176,7 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214646708
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
