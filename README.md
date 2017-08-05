@@ -306,9 +306,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214622818
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhu9J
+<br>【百度網盤】：http://www.linkbucks.com/A0NnD
+<br>【百度密碼】：5r35
 
 <br>【節目名稱】：月光光呵呵呵.2017-08-04
 <br>【節目頻道】：881
@@ -318,9 +318,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623083
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhuAE
+<br>【百度網盤】：http://www.linkbucks.com/A0Nn2
+<br>【百度密碼】：usjg
 
 <br>【節目名稱】：廣東爆谷.2017-08-04
 <br>【節目頻道】：903
@@ -330,9 +330,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214622609
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhuB5
+<br>【百度網盤】：http://www.linkbucks.com/A0Nts
+<br>【百度密碼】：ge4b
 
 <br>【節目名稱】：一切從音樂開始.2017-08-04
 <br>【節目頻道】：881 & 903
@@ -342,6 +342,6 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214622551
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nhuBj
+<br>【百度網盤】：http://www.linkbucks.com/A0NXs
+<br>【百度密碼】：2k4r
