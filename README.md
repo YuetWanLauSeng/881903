@@ -9,8 +9,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603150
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni785
+<br>【MediaFire】：http://www.linkbucks.com/A0TAz
 <br>【百度網盤】：http://adf.ly/1nhnxr
 <br>【百度網盤】：http://www.linkbucks.com/A0U9h
 <br>【百度密碼】：4f5a
@@ -21,8 +21,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603647
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni6st
+<br>【MediaFire】：http://www.linkbucks.com/A0TE9
 <br>【百度網盤】：http://adf.ly/1nhnzm
 <br>【百度網盤】：http://www.linkbucks.com/A0VAl
 <br>【百度密碼】：w9ue
@@ -33,8 +33,7 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214602881
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7I9
 <br>【百度網盤】：http://adf.ly/1nho0v
 <br>【百度網盤】：http://www.linkbucks.com/A0VBg
 <br>【百度密碼】：rqyp
@@ -45,8 +44,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603066
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni72O
+<br>【MediaFire】：http://www.linkbucks.com/A0TCd
 <br>【百度網盤】：http://adf.ly/1nho21
 <br>【百度網盤】：http://www.linkbucks.com/A0VCn
 <br>【百度密碼】：hxdr
@@ -57,8 +56,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Management Master Class.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214602967
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7Eq
+<br>【MediaFire】：http://www.linkbucks.com/A0S7y
 <br>【百度網盤】：http://adf.ly/1nho2r
 <br>【百度網盤】：http://www.linkbucks.com/A0VDa
 <br>【百度密碼】：j9je
@@ -69,8 +68,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214602803
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni6xH
+<br>【MediaFire】：http://www.linkbucks.com/A0TD9
 <br>【百度網盤】：http://adf.ly/1nho3x
 <br>【百度網盤】：http://www.linkbucks.com/A0VE3
 <br>【百度密碼】：cx99
@@ -81,8 +80,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214602614
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni763
+<br>【MediaFire】：http://www.linkbucks.com/A0TBU
 <br>【百度網盤】：http://adf.ly/1nho53
 <br>【百度網盤】：http://www.linkbucks.com/A0VGt
 <br>【百度密碼】：46dh
@@ -93,8 +92,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214602435
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni73T
+<br>【MediaFire】：http://www.linkbucks.com/A0TCE
 <br>【百度網盤】：http://adf.ly/1nho6L
 <br>【百度網盤】：http://www.linkbucks.com/A0VIN
 <br>【百度密碼】：tsx1
@@ -105,8 +104,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214602554
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni6wf
+<br>【MediaFire】：http://www.linkbucks.com/A0TEU
 <br>【百度網盤】：http://adf.ly/1nho8D
 <br>【百度網盤】：http://www.linkbucks.com/A0VJi
 <br>【百度密碼】：s8ja
@@ -117,8 +116,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214602932
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7Ik
+<br>【MediaFire】：http://www.linkbucks.com/A0S6X
 <br>【百度網盤】：http://adf.ly/1nhokp
 <br>【百度網盤】：http://www.linkbucks.com/A0UIz
 <br>【百度密碼】：ky7r
@@ -129,8 +128,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214602666
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7K1
+<br>【MediaFire】：http://www.linkbucks.com/A0S6M
 <br>【百度網盤】：http://adf.ly/1nholy
 <br>【百度網盤】：http://www.linkbucks.com/A0UH4
 <br>【百度密碼】：jbdr
@@ -141,8 +140,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603209
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni78o
+<br>【MediaFire】：http://www.linkbucks.com/A0S9j
 <br>【百度網盤】：http://adf.ly/1nhouc
 <br>【百度網盤】：http://www.linkbucks.com/A0T97
 <br>【百度密碼】：j72p
@@ -153,8 +152,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214620605
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni74U
+<br>【MediaFire】：http://www.linkbucks.com/A0TBt
 <br>【百度網盤】：http://adf.ly/1nhpbN
 <br>【百度網盤】：http://www.linkbucks.com/A0TXH
 <br>【百度密碼】：qdgk
@@ -165,8 +164,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214605504
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni70B
+<br>【MediaFire】：http://www.linkbucks.com/A0TDB
 <br>【百度網盤】：http://adf.ly/1nhpb0
 <br>【百度網盤】：http://www.linkbucks.com/A0TFx
 <br>【百度密碼】：uh9m
@@ -177,8 +176,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603283
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7Kf
+<br>【MediaFire】：http://www.linkbucks.com/A0S56
 <br>【百度網盤】：http://adf.ly/1nhpae
 <br>【百度網盤】：http://www.linkbucks.com/A0THG
 <br>【百度密碼】：j6t9
@@ -189,8 +188,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214605534
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7LF
+<br>【MediaFire】：http://www.linkbucks.com/A0S5o
 <br>【百度網盤】：http://adf.ly/1nhpZG
 <br>【百度網盤】：http://www.linkbucks.com/A0TBu
 <br>【百度密碼】：wcq6
@@ -201,8 +200,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603727
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni775
+<br>【MediaFire】：http://www.linkbucks.com/A0TA6
 <br>【百度網盤】：http://adf.ly/1nhpZ2
 <br>【百度網盤】：http://www.linkbucks.com/A0TDE
 <br>【百度密碼】：j554
@@ -213,8 +212,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603498
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni6vx
+<br>【MediaFire】：http://www.linkbucks.com/A0TEl
 <br>【百度網盤】：http://adf.ly/1nhpYD
 <br>【百度網盤】：http://www.linkbucks.com/A0TH8
 <br>【百度密碼】：1dja
@@ -225,8 +224,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214604223
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7MI
+<br>【MediaFire】：http://www.linkbucks.com/A0S5j
 <br>【百度網盤】：http://adf.ly/1nhpXD
 <br>【百度網盤】：http://www.linkbucks.com/A0TDV
 <br>【百度密碼】：mj8h
@@ -237,8 +236,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603880
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7Mj
+<br>【MediaFire】：http://www.linkbucks.com/A0S5a
 <br>【百度網盤】：http://adf.ly/1nhpWR
 <br>【百度網盤】：http://www.linkbucks.com/A0TI9
 <br>【百度密碼】：p7k3
@@ -249,8 +248,8 @@
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214620867
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni75F
+<br>【MediaFire】：http://www.linkbucks.com/A0TBg
 <br>【百度網盤】：http://adf.ly/1nhpGH
 <br>【百度網盤】：http://www.linkbucks.com/A0Tqs
 <br>【百度密碼】：ks7g
@@ -261,8 +260,8 @@
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214603346
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7O0
+<br>【MediaFire】：http://www.linkbucks.com/A0S5C
 <br>【百度網盤】：http://adf.ly/1nhpEz
 <br>【百度網盤】：http://www.linkbucks.com/A0Tq5
 <br>【百度密碼】：m4c5
@@ -280,8 +279,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214604328
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7Ft
+<br>【MediaFire】：http://www.linkbucks.com/A0S7q
 <br>【百度網盤】：http://adf.ly/1nhpDQ
 <br>【百度網盤】：http://www.linkbucks.com/A0TsU
 <br>【百度密碼】：ak2q
@@ -292,8 +291,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214605735
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7Pd
+<br>【MediaFire】：http://www.linkbucks.com/A0S4p
 <br>【百度網盤】：http://adf.ly/1nhpBv
 <br>【百度網盤】：http://www.linkbucks.com/A0TtE
 <br>【百度密碼】：bwhj
@@ -304,8 +303,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214622818
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni6ul
+<br>【MediaFire】：http://www.linkbucks.com/A0TEq
 <br>【百度網盤】：http://adf.ly/1nhu9J
 <br>【百度網盤】：http://www.linkbucks.com/A0NnD
 <br>【百度密碼】：5r35
@@ -316,8 +315,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214623083
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7Aj
+<br>【MediaFire】：http://www.linkbucks.com/A0S85
 <br>【百度網盤】：http://adf.ly/1nhuAE
 <br>【百度網盤】：http://www.linkbucks.com/A0Nn2
 <br>【百度密碼】：usjg
@@ -328,8 +327,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214622609
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni79U
+<br>【MediaFire】：http://www.linkbucks.com/A0S9S
 <br>【百度網盤】：http://adf.ly/1nhuB5
 <br>【百度網盤】：http://www.linkbucks.com/A0Nts
 <br>【百度密碼】：ge4b
@@ -340,8 +339,8 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-04
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214622551
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ni7QK
+<br>【MediaFire】：http://www.linkbucks.com/A0S4c
 <br>【百度網盤】：http://adf.ly/1nhuBj
 <br>【百度網盤】：http://www.linkbucks.com/A0NXs
 <br>【百度密碼】：2k4r
