@@ -189,8 +189,8 @@
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214696948
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1njHAy
+<br>【MediaFire】：http://www.linkbucks.com/A0jX1
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -200,9 +200,9 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214697393
+<br>【MediaFire】：http://adf.ly/1njHAE
+<br>【MediaFire】：http://www.linkbucks.com/A0jYH
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
