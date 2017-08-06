@@ -189,8 +189,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-08-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214658192
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1niohX
+<br>【MediaFire】：http://www.linkbucks.com/A0WoQ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -201,8 +201,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-08-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214667173
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1niogx
+<br>【MediaFire】：http://www.linkbucks.com/A0Wo3
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -225,8 +225,8 @@
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-08-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657120
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1niomm
+<br>【MediaFire】：http://www.linkbucks.com/A0Ksh
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -238,8 +238,8 @@
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-08-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657260
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nioiD
+<br>【MediaFire】：http://www.linkbucks.com/A0Wnj
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -252,8 +252,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-08-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214659877
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1niolI
+<br>【MediaFire】：http://www.linkbucks.com/A0M1G
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -264,8 +264,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-08-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657615
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nioln
+<br>【MediaFire】：http://www.linkbucks.com/A0L9i
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -276,8 +276,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-08-05
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657768
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1niomB
+<br>【MediaFire】：http://www.linkbucks.com/A0L9V
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
