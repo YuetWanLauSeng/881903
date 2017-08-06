@@ -212,9 +212,9 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214701084
+<br>【MediaFire】：http://adf.ly/1njKAR
+<br>【MediaFire】：http://www.linkbucks.com/A0iFO
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -224,9 +224,9 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214700579
+<br>【MediaFire】：http://adf.ly/1njK8r
+<br>【MediaFire】：http://www.linkbucks.com/A0iGD
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -236,9 +236,9 @@
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214700940
+<br>【MediaFire】：http://adf.ly/1njK9W
+<br>【MediaFire】：http://www.linkbucks.com/A0iFY
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
