@@ -248,9 +248,9 @@
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214707405
+<br>【MediaFire】：http://adf.ly/1njOtF
+<br>【MediaFire】：http://www.linkbucks.com/A0gbl
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -260,9 +260,9 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214709555
+<br>【MediaFire】：http://adf.ly/1njPUe
+<br>【MediaFire】：http://www.linkbucks.com/A0gUm
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -272,9 +272,9 @@
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214707693
+<br>【MediaFire】：http://adf.ly/1njOup
+<br>【MediaFire】：http://www.linkbucks.com/A0gbX
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -284,9 +284,9 @@
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214707243
+<br>【MediaFire】：http://adf.ly/1njOvR
+<br>【MediaFire】：http://www.linkbucks.com/A0ga6
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
