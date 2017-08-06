@@ -93,8 +93,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Summer Homework.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214688102
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nj69I
+<br>【MediaFire】：http://www.linkbucks.com/Az5uo
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -105,8 +105,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Oldies Buddy.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214687921
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nj6A4
+<br>【MediaFire】：http://www.linkbucks.com/Az5uW
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -117,8 +117,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Daily I.T. Bureau.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214687595
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nj68T
+<br>【MediaFire】：http://www.linkbucks.com/Az5rz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -129,8 +129,8 @@
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214687317
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nj67X
+<br>【MediaFire】：http://www.linkbucks.com/Az5uy
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
