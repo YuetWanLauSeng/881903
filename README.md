@@ -140,7 +140,7 @@
 <br>【節目主持】：樂樂
 <br>【節目時間】：15:00 - 16:00
 <br>【檔案名稱】：Venus’Secret Garden.2017-08-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214694376
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -152,7 +152,7 @@
 <br>【節目主持】：吳詠希
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Trivial Vestigation.2017-08-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214694135
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -164,7 +164,7 @@
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-08-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214693942
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
