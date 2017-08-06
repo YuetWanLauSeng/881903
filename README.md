@@ -32,7 +32,7 @@
 <br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Beautiful Sunday.2017-08-06
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214683500
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214683364
 <br>【MediaFire】：http://adf.ly/1nj3RM
 <br>【MediaFire】：http://www.linkbucks.com/Az6u0
 <br>【百度網盤】：
