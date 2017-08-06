@@ -188,7 +188,7 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214658192
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -200,7 +200,7 @@
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214667173
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -212,7 +212,7 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214656362
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -224,7 +224,7 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657120
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -237,7 +237,7 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657260
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -248,10 +248,10 @@
 <br>【節目頻道】：903
 <br>【節目日期】：2017-08-05
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：袁澧林
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214659877
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -263,7 +263,7 @@
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657615
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -275,7 +275,7 @@
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214657768
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -287,7 +287,7 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-05
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214669255
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
