@@ -141,8 +141,8 @@
 <br>【節目時間】：15:00 - 16:00
 <br>【檔案名稱】：Venus’Secret Garden.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214694376
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1njE5E
+<br>【MediaFire】：http://www.linkbucks.com/A0kNv
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -153,8 +153,8 @@
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Trivial Vestigation.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214694135
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1njE4D
+<br>【MediaFire】：http://www.linkbucks.com/A0kOz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -165,8 +165,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214693942
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1njE2J
+<br>【MediaFire】：http://www.linkbucks.com/A0kPb
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -176,9 +176,9 @@
 <br>【節目主持】：江慧楓
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Maple Swing.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214695641
+<br>【MediaFire】：http://adf.ly/1njE3X
+<br>【MediaFire】：http://www.linkbucks.com/A0kPI
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -188,7 +188,7 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-08-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214696948
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
