@@ -153,8 +153,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-07
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214751335
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nk4fF
+<br>【MediaFire】：http://www.linkbucks.com/A0OJd
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -237,8 +237,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-08-07
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214756367
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nk3m1
+<br>【MediaFire】：http://www.linkbucks.com/A0OaR
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -246,9 +246,28 @@
 <br>【節目名稱】：雲妮鍾情.2017-08-07
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
-<br>【節目時間】：21:00 - 23:00
+<br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-07
-<br>【城通網盤】：
+<br>【節目暫停】：改播『廣東爆谷』
+
+<br>【節目名稱】：廣東爆谷.2017-08-07
+<br>【節目頻道】：903
+<br>【節目主持】：Colin
+<br>【節目時間】：21:00 - 22:30
+<br>【檔案名稱】：Canto Pop.2017-08-07a
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214758185
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：歐陽志強.2017-08-07
+<br>【節目頻道】：903
+<br>【節目主持】：歐楊羚 | 司徒志強
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：From Girls To Ladies.2017-08-07
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214758252
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -260,7 +279,7 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-08-07
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214758347
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -307,7 +326,7 @@
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Canto Pop.2017-08-07
+<br>【檔案名稱】：Canto Pop.2017-08-07b
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
