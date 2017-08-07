@@ -45,8 +45,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-08-07
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214751059
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nk3H9
+<br>【MediaFire】：http://www.linkbucks.com/A0OkX
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -69,8 +69,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-08-07
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214748837
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nk3Iq
+<br>【MediaFire】：http://www.linkbucks.com/A0Oj6
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -93,8 +93,8 @@
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-08-07
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214747161
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nk3Ha
+<br>【MediaFire】：http://www.linkbucks.com/A0OkM
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -165,8 +165,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-08-07
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214751480
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nk3G2
+<br>【MediaFire】：http://www.linkbucks.com/A0OlQ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -236,7 +236,7 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-08-07
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214756367
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
