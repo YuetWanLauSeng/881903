@@ -296,7 +296,7 @@
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-08-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214722003
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -308,9 +308,9 @@
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214721488
+<br>【MediaFire】：http://adf.ly/1njeXj
+<br>【MediaFire】：http://www.linkbucks.com/A0Evb
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -320,9 +320,9 @@
 <br>【節目主持】：主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-08-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214721292
+<br>【MediaFire】：http://adf.ly/1njeY9
+<br>【MediaFire】：http://www.linkbucks.com/A0EvV
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -332,7 +332,7 @@
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-06
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214721453
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
