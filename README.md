@@ -117,8 +117,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-08-07
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214749079
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nk5i3
+<br>【MediaFire】：http://www.linkbucks.com/Cc8Zz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -268,8 +268,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-08-07
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214758252
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nk5id
+<br>【MediaFire】：http://www.linkbucks.com/Cc8Xz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -291,9 +291,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-08-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214758915
+<br>【MediaFire】：http://adf.ly/1nk5no
+<br>【MediaFire】：http://www.linkbucks.com/Cc8Hz
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
