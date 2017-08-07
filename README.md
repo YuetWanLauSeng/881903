@@ -297,8 +297,8 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214722003
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1njg5F
+<br>【MediaFire】：http://www.linkbucks.com/A0EFf
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -333,8 +333,8 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214721453
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1njg4k
+<br>【MediaFire】：http://www.linkbucks.com/A0EFp
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
