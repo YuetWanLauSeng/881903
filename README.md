@@ -9,8 +9,8 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214784039
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkSd7
+<br>【MediaFire】：http://www.linkbucks.com/A1A0W
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -21,8 +21,8 @@
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214783534
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkSZD
+<br>【MediaFire】：http://www.linkbucks.com/A1A5P
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -33,8 +33,7 @@
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey, Learners.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214781974
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkSdN
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -45,8 +44,8 @@
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214783718
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkSca
+<br>【MediaFire】：http://www.linkbucks.com/A1A07
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -57,8 +56,8 @@
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Management Master Class.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214782221
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkSeC
+<br>【MediaFire】：http://www.linkbucks.com/A1AyM
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -69,8 +68,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214781646
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkSby
+<br>【MediaFire】：http://www.linkbucks.com/A1A1s
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
