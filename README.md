@@ -212,8 +212,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-08-08
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkjh9
+<br>【MediaFire】：http://www.linkbucks.com/AyuRN
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -224,8 +224,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-08-08
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkjhc
+<br>【MediaFire】：http://www.linkbucks.com/AytCU
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -235,9 +235,9 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-08-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214869743
+<br>【MediaFire】：http://adf.ly/1nkkG7
+<br>【MediaFire】：http://www.linkbucks.com/AwNAG
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -247,6 +247,13 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-08
+<br>【節目暫停】：改播『廣東爆谷』
+
+<br>【節目名稱】：廣東爆谷.2017-08-08
+<br>【節目頻道】：903
+<br>【節目主持】：Colin
+<br>【節目時間】：21:00 - 22:30
+<br>【檔案名稱】：Canto Pop.2017-08-08a
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
@@ -259,9 +266,9 @@
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-08-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214869703
+<br>【MediaFire】：http://adf.ly/1nkkHn
+<br>【MediaFire】：http://www.linkbucks.com/Av6AJ
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -290,9 +297,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-08-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214870666
+<br>【MediaFire】：http://adf.ly/1nkkOg
+<br>【MediaFire】：http://www.linkbucks.com/Au9Va
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -325,7 +332,7 @@
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Canto Pop.2017-08-08
+<br>【檔案名稱】：Canto Pop.2017-08-08b
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
