@@ -305,9 +305,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214767005
 <br>【MediaFire】：http://adf.ly/1nkLE1
 <br>【MediaFire】：http://www.linkbucks.com/A1LU3
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nkNiW
+<br>【百度網盤】：http://www.linkbucks.com/A1IhX
+<br>【百度密碼】：g8wk
 
 <br>【節目名稱】：月光光呵呵呵.2017-08-07
 <br>【節目頻道】：881
@@ -317,9 +317,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214766789
 <br>【MediaFire】：http://adf.ly/1nkLEa
 <br>【MediaFire】：http://www.linkbucks.com/A1LT4
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nkOVN
+<br>【百度網盤】：http://www.linkbucks.com/A1Hct
+<br>【百度密碼】：g5h5
 
 <br>【節目名稱】：廣東爆谷.2017-08-07
 <br>【節目頻道】：903
@@ -329,18 +329,18 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214766675
 <br>【MediaFire】：http://adf.ly/1nkLEA
 <br>【MediaFire】：http://www.linkbucks.com/A1LUR
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nkOUw
+<br>【百度網盤】：http://www.linkbucks.com/A1Hed
+<br>【百度密碼】：14d6
 
 <br>【節目名稱】：一切從音樂開始.2017-08-07
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-07
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214767835
 <br>【MediaFire】：http://adf.ly/1nkLDU
 <br>【MediaFire】：http://www.linkbucks.com/A1LVd
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nkNot
+<br>【百度網盤】：http://www.linkbucks.com/A1IbC
+<br>【百度密碼】：7i8u
