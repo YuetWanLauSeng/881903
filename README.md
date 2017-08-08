@@ -103,9 +103,9 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-08-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214832547
+<br>【MediaFire】：http://adf.ly/1nkX5e
+<br>【MediaFire】：http://www.linkbucks.com/A1SyX
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -115,9 +115,9 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-08-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214832940
+<br>【MediaFire】：http://adf.ly/1nkX56
+<br>【MediaFire】：http://www.linkbucks.com/A1Sy2
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -127,9 +127,9 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-08-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214832716
+<br>【MediaFire】：http://adf.ly/1nkX4H
+<br>【MediaFire】：http://www.linkbucks.com/A1Szp
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
