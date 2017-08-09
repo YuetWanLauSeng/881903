@@ -128,8 +128,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-08-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214958530
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlOkw
+<br>【MediaFire】：http://www.linkbucks.com/A1FS5
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -152,8 +152,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214961432
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlOjQ
+<br>【MediaFire】：http://www.linkbucks.com/A1FTG
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -176,8 +176,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-08-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214958715
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlOiI
+<br>【MediaFire】：http://www.linkbucks.com/A1FTm
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -224,8 +224,8 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-08-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214964805
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlOik
+<br>【MediaFire】：http://www.linkbucks.com/A1FTa
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -236,8 +236,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-08-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214965134
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlOlV
+<br>【MediaFire】：http://www.linkbucks.com/A1FSk
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -247,7 +247,7 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214966875
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -271,7 +271,7 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214966458
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -283,9 +283,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-08-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214968171
+<br>【MediaFire】：http://adf.ly/1nlOxo
+<br>【MediaFire】：http://www.linkbucks.com/A1FNO
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
