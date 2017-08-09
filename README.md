@@ -79,7 +79,7 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214957653
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -91,7 +91,7 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214956943
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -103,7 +103,7 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214957341
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -115,7 +115,7 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214959574
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -127,7 +127,7 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214958530
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -139,7 +139,7 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214962172
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -151,7 +151,7 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214961432
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -163,7 +163,7 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214961846
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -175,7 +175,7 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-08-09
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214958715
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
