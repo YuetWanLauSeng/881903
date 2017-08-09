@@ -140,8 +140,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214880607
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkzsY
+<br>【MediaFire】：http://www.linkbucks.com/A1SV3
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -255,8 +255,8 @@
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Canto Pop.2017-08-08a
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214877232
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkzsH
+<br>【MediaFire】：http://www.linkbucks.com/A1SWw
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -286,8 +286,8 @@
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214878352
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkzsy
+<br>【MediaFire】：http://www.linkbucks.com/A1SVH
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -310,8 +310,8 @@
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214879822
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkzqX
+<br>【MediaFire】：http://www.linkbucks.com/A1SZV
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -322,8 +322,8 @@
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214878011
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkzru
+<br>【MediaFire】：http://www.linkbucks.com/A1SXS
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -334,8 +334,8 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-08-08b
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214877066
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkzrU
+<br>【MediaFire】：http://www.linkbucks.com/A1SX6
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -346,8 +346,8 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-08
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214877013
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nkzpy
+<br>【MediaFire】：http://www.linkbucks.com/A1SZ0
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
