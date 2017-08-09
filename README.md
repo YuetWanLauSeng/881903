@@ -139,7 +139,7 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-08-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214880607
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -211,7 +211,7 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-08-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214879377
 <br>【MediaFire】：http://adf.ly/1nkjh9
 <br>【MediaFire】：http://www.linkbucks.com/AyuRN
 <br>【百度網盤】：
@@ -223,7 +223,7 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-08-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214880303
 <br>【MediaFire】：http://adf.ly/1nkjhc
 <br>【MediaFire】：http://www.linkbucks.com/AytCU
 <br>【百度網盤】：
@@ -254,7 +254,7 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Canto Pop.2017-08-08a
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214877232
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -285,7 +285,7 @@
 <br>【節目主持】：熊書頤
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-08-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214878352
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -309,7 +309,7 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-08-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214879822
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -321,7 +321,7 @@
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-08-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214878011
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -333,7 +333,7 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-08-08b
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214877066
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -345,7 +345,7 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-08
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214877013
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
