@@ -104,8 +104,8 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041396
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3qL
+<br>【MediaFire】：http://www.linkbucks.com/A1O6q
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -116,8 +116,8 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041743
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3qm
+<br>【MediaFire】：http://www.linkbucks.com/A1O6O
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -140,8 +140,8 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041946
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3ue
+<br>【MediaFire】：http://www.linkbucks.com/A1O5L
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -188,8 +188,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215048135
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3vF
+<br>【MediaFire】：http://www.linkbucks.com/A1O5A
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -200,8 +200,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215047719
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3vc
+<br>【MediaFire】：http://www.linkbucks.com/A1O49
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -212,8 +212,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215048557
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3w1
+<br>【MediaFire】：http://www.linkbucks.com/A1O42
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -236,8 +236,8 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215049756
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nm3wd
+<br>【MediaFire】：http://www.linkbucks.com/A1O4u
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -247,7 +247,7 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215053923
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -259,7 +259,7 @@
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-08-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215053199
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -271,7 +271,7 @@
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-08-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215053352
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -283,9 +283,9 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-08-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215053678
+<br>【MediaFire】：http://adf.ly/1nm4LZ
+<br>【MediaFire】：http://www.linkbucks.com/A1OzP
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
