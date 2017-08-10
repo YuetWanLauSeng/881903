@@ -79,7 +79,7 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-08-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041507
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -91,9 +91,9 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-08-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041181
+<br>【MediaFire】：http://adf.ly/1nluoy
+<br>【MediaFire】：http://www.linkbucks.com/A0xRw
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -103,7 +103,7 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-08-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041396
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -115,7 +115,7 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-08-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041743
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -127,7 +127,7 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-08-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041638
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
@@ -139,7 +139,7 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-08-10
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041946
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
