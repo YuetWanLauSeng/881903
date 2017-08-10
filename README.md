@@ -80,8 +80,8 @@
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215041507
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlz2P
+<br>【MediaFire】：http://www.linkbucks.com/A1Qrs
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -152,8 +152,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215044763
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlz52
+<br>【MediaFire】：http://www.linkbucks.com/A1Qoq
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -164,8 +164,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215044919
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlz4Y
+<br>【MediaFire】：http://www.linkbucks.com/A1Qox
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
@@ -176,8 +176,8 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215043976
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlz31
+<br>【MediaFire】：http://www.linkbucks.com/A1Qrf
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
