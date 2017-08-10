@@ -262,9 +262,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214976660
 <br>【MediaFire】：http://adf.ly/1nldNz
 <br>【MediaFire】：http://www.linkbucks.com/A1Inc
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nlfBT
+<br>【百度網盤】：http://www.linkbucks.com/A1IFH
+<br>【百度密碼】：u4ns
 
 <br>【節目名稱】：書.情.歌.2017-08-09
 <br>【節目頻道】：881
@@ -286,9 +286,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214968171
 <br>【MediaFire】：http://adf.ly/1nlOxo
 <br>【MediaFire】：http://www.linkbucks.com/A1FNO
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nlfUE
+<br>【百度網盤】：http://www.linkbucks.com/A1H8E
+<br>【百度密碼】：g5hu
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-08-09
 <br>【節目頻道】：903
@@ -298,9 +298,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214977673
 <br>【MediaFire】：http://adf.ly/1nldLM
 <br>【MediaFire】：http://www.linkbucks.com/A1In8
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nlfTh
+<br>【百度網盤】：http://www.linkbucks.com/A1H8M
+<br>【百度密碼】：69b2
 
 <br>【節目名稱】：月光光呵呵呵.2017-08-09
 <br>【節目頻道】：881
@@ -310,9 +310,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214976834
 <br>【MediaFire】：http://adf.ly/1nldN0
 <br>【MediaFire】：http://www.linkbucks.com/A1Ino
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nlf6w
+<br>【百度網盤】：http://www.linkbucks.com/A1IHY
+<br>【百度密碼】：r8xi
 
 <br>【節目名稱】：廣東爆谷.2017-08-09
 <br>【節目頻道】：903
@@ -322,9 +322,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214976223
 <br>【MediaFire】：http://adf.ly/1nldMQ
 <br>【MediaFire】：http://www.linkbucks.com/A1Int
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nlfE4
+<br>【百度網盤】：http://www.linkbucks.com/A1IC2
+<br>【百度密碼】：sci1
 
 <br>【節目名稱】：一切從音樂開始.2017-08-09
 <br>【節目頻道】：881 & 903
@@ -332,8 +332,8 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-09
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-214976182
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1nldoy
+<br>【MediaFire】：http://www.linkbucks.com/A1IgP
+<br>【百度網盤】：http://adf.ly/1nlfEd
+<br>【百度網盤】：http://www.linkbucks.com/A1ICh
+<br>【百度密碼】：ehfe
