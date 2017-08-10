@@ -68,8 +68,8 @@
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-08-10
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215006382
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nlkn1
+<br>【MediaFire】：http://www.linkbucks.com/A00mH
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
