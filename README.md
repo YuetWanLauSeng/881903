@@ -151,36 +151,36 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215108149
+<br>【MediaFire】：http://adf.ly/1nmbv5
+<br>【MediaFire】：http://www.linkbucks.com/ANiU2
+<br>【百度網盤】：http://adf.ly/1nmbpX
+<br>【百度網盤】：http://www.linkbucks.com/zWi
+<br>【百度密碼】：49cq
 
 <br>【節目名稱】：口水多過浪花.2017-08-11
 <br>【節目頻道】：903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215108155
+<br>【MediaFire】：http://adf.ly/1nmbuG
+<br>【MediaFire】：http://www.linkbucks.com/AIZGV
+<br>【百度網盤】：http://adf.ly/1nmbnh
+<br>【百度網盤】：http://www.linkbucks.com/0SD
+<br>【百度密碼】：fv3d
 
 <br>【節目名稱】：毒檸王國.2017-08-11
 <br>【節目頻道】：903
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215108112
+<br>【MediaFire】：http://adf.ly/1nmbvZ
+<br>【MediaFire】：http://www.linkbucks.com/AIY2C
+<br>【百度網盤】：http://adf.ly/1nmbrE
+<br>【百度網盤】：http://www.linkbucks.com/AKDb4
+<br>【百度密碼】：apwt
 
 <br>【節目名稱】：集雜志.2017-08-11
 <br>【節目頻道】：903
