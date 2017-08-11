@@ -235,24 +235,24 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215117573
+<br>【MediaFire】：http://adf.ly/1nmkz9
+<br>【MediaFire】：http://www.linkbucks.com/A08Ef
+<br>【百度網盤】：http://adf.ly/1nmkv8
+<br>【百度網盤】：http://www.linkbucks.com/A08Fj
+<br>【百度密碼】：j4ui
 
 <br>【節目名稱】：雲妮鍾情.2017-08-11
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215117581
+<br>【MediaFire】：http://adf.ly/1nmkzx
+<br>【MediaFire】：http://www.linkbucks.com/A08EZ
+<br>【百度網盤】：http://adf.ly/1nmkwb
+<br>【百度網盤】：http://www.linkbucks.com/A08Fe
+<br>【百度密碼】：kte6
 
 <br>【節目名稱】：歐陽志強.2017-08-11
 <br>【節目頻道】：903
@@ -278,24 +278,24 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215118068
+<br>【MediaFire】：http://adf.ly/1nml0b
+<br>【MediaFire】：http://www.linkbucks.com/A08EV
+<br>【百度網盤】：http://adf.ly/1nmkxa
+<br>【百度網盤】：http://www.linkbucks.com/A08Ew
+<br>【百度密碼】：y8ss
 
 <br>【節目名稱】：光明頂.2017-08-11
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215118064
+<br>【MediaFire】：http://adf.ly/1nml11
+<br>【MediaFire】：http://www.linkbucks.com/A08ES
+<br>【百度網盤】：http://adf.ly/1nmkyT
+<br>【百度網盤】：http://www.linkbucks.com/A08Eg
+<br>【百度密碼】：a8i9
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-08-11
 <br>【節目頻道】：903
