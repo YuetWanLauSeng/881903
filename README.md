@@ -214,9 +214,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215048557
 <br>【MediaFire】：http://adf.ly/1nm3w1
 <br>【MediaFire】：http://www.linkbucks.com/A1O42
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nmKS1
+<br>【百度網盤】：http://www.linkbucks.com/A1RsK
+<br>【百度密碼】：nh7d
 
 <br>【節目名稱】：杏林茶.2017-08-10
 <br>【節目頻道】：881
