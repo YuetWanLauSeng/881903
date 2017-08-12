@@ -259,12 +259,12 @@
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215136962
+<br>【MediaFire】：http://adf.ly/1nn74B
+<br>【MediaFire】：http://www.linkbucks.com/A1AY2
+<br>【百度網盤】：http://adf.ly/1nn74v
+<br>【百度網盤】：http://www.linkbucks.com/A1AYo
+<br>【百度密碼】：hajh
 
 <br>【節目名稱】：書.情.歌.2017-08-11
 <br>【節目頻道】：881
@@ -302,45 +302,45 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215135068
+<br>【MediaFire】：http://adf.ly/1nn75l
+<br>【MediaFire】：http://www.linkbucks.com/A1AYh
+<br>【百度網盤】：http://adf.ly/1nn77G
+<br>【百度網盤】：http://www.linkbucks.com/A1AYb
+<br>【百度密碼】：6zrf
 
 <br>【節目名稱】：月光光呵呵呵.2017-08-11
 <br>【節目頻道】：881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215134805
+<br>【MediaFire】：http://adf.ly/1nn78F
+<br>【MediaFire】：http://www.linkbucks.com/A1AYH
+<br>【百度網盤】：http://adf.ly/1nn78e
+<br>【百度網盤】：http://www.linkbucks.com/A1AX1
+<br>【百度密碼】：4m4y
 
 <br>【節目名稱】：廣東爆谷.2017-08-11
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215134765
+<br>【MediaFire】：http://adf.ly/1nn79L
+<br>【MediaFire】：http://www.linkbucks.com/A1AXz
+<br>【百度網盤】：http://adf.ly/1nn79x
+<br>【百度網盤】：http://www.linkbucks.com/A1AXy
+<br>【百度密碼】：ja23
 
 <br>【節目名稱】：一切從音樂開始.2017-08-11
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215134736
+<br>【MediaFire】：http://adf.ly/1nn7Am
+<br>【MediaFire】：http://www.linkbucks.com/A1AXt
+<br>【百度網盤】：http://adf.ly/1nn7BK
+<br>【百度網盤】：http://www.linkbucks.com/A1AXm
+<br>【百度密碼】：6z4e
