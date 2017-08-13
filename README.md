@@ -80,36 +80,36 @@
 <br>【節目主持】：占 | 王貽興
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：Sunny Day Readings.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215313920
+<br>【MediaFire】：http://adf.ly/1noHd2
+<br>【MediaFire】：http://www.linkbucks.com/A1xDm
+<br>【百度網盤】：http://adf.ly/1noHZO
+<br>【百度網盤】：http://www.linkbucks.com/A1xMS
+<br>【百度密碼】：r88f
 
 <br>【節目名稱】：暑期作業.2017-08-13
 <br>【節目頻道】：881
 <br>【節目主持】：張子君
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Summer Homework.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215313871
+<br>【MediaFire】：http://adf.ly/1noHan
+<br>【MediaFire】：http://www.linkbucks.com/A1xLi
+<br>【百度網盤】：http://adf.ly/1noHZp
+<br>【百度網盤】：http://www.linkbucks.com/A1xMM
+<br>【百度密碼】：6ya8
 
 <br>【節目名稱】：都是我的流行曲.2017-08-13
 <br>【節目頻道】：881
 <br>【節目主持】：江健聰
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Oldies Buddy.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215313808
+<br>【MediaFire】：http://adf.ly/1noHb7
+<br>【MediaFire】：http://www.linkbucks.com/A1xLJ
+<br>【百度網盤】：http://adf.ly/1noHaN
+<br>【百度網盤】：http://www.linkbucks.com/A1xME
+<br>【百度密碼】：7hg8
 
 <br>【節目名稱】：貼身科技局.2017-08-13
 <br>【節目頻道】：881
