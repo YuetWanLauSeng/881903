@@ -159,12 +159,12 @@
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-08-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215296151
+<br>【MediaFire】：http://adf.ly/1noCZu
+<br>【MediaFire】：http://www.linkbucks.com/A1rUt
+<br>【百度網盤】：http://adf.ly/1noCVQ
+<br>【百度網盤】：http://www.linkbucks.com/A1ykT
+<br>【百度密碼】：inmp
 
 <br>【節目名稱】：3號螺絲釘.2017-08-12
 <br>【節目頻道】：903
@@ -207,24 +207,24 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-08-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215295988
+<br>【MediaFire】：http://adf.ly/1noCkl
+<br>【MediaFire】：http://www.linkbucks.com/A1rHa
+<br>【百度網盤】：http://adf.ly/1noCZU
+<br>【百度網盤】：http://www.linkbucks.com/A1rU5
+<br>【百度密碼】：qa84
 
 <br>【節目名稱】：Chi Chung's Class.2017-08-12
 <br>【節目頻道】：903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-08-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215296035
+<br>【MediaFire】：http://adf.ly/1noCgG
+<br>【MediaFire】：http://www.linkbucks.com/A1rLP
+<br>【百度網盤】：http://adf.ly/1noCY6
+<br>【百度網盤】：http://www.linkbucks.com/A1yic
+<br>【百度密碼】：cgut
 
 <br>【節目名稱】：與時並進.2017-08-12
 <br>【節目頻道】：881
@@ -232,59 +232,59 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-08-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215296041
+<br>【MediaFire】：http://adf.ly/1noCaN
+<br>【MediaFire】：http://www.linkbucks.com/A1rUX
+<br>【百度網盤】：http://adf.ly/1noCXU
+<br>【百度網盤】：http://www.linkbucks.com/A1yi0
+<br>【百度密碼】：1pm2
 
 <br>【節目名稱】：公子會.2017-08-12
 <br>【節目頻道】：903
 <br>【節目日期】：2017-08-12
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：卓楓而
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-08-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215296159
+<br>【MediaFire】：http://adf.ly/1noCdM
+<br>【MediaFire】：http://www.linkbucks.com/A1rSJ
+<br>【百度網盤】：http://adf.ly/1noCV4
+<br>【百度網盤】：http://www.linkbucks.com/A1ykk
+<br>【百度密碼】：nwpr
 
 <br>【節目名稱】：發式生活.2017-08-12
 <br>【節目頻道】：881
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-08-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215296086
+<br>【MediaFire】：http://adf.ly/1noCbF
+<br>【MediaFire】：http://www.linkbucks.com/A1rTy
+<br>【百度網盤】：http://adf.ly/1noCX1
+<br>【百度網盤】：http://www.linkbucks.com/A1yjg
+<br>【百度密碼】：v5ij
 
 <br>【節目名稱】：皇牌出場.2017-08-12
 <br>【節目頻道】：903
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-08-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215296127
+<br>【MediaFire】：http://adf.ly/1noCal
+<br>【MediaFire】：http://www.linkbucks.com/A1rUL
+<br>【百度網盤】：http://adf.ly/1noCWR
+<br>【百度網盤】：http://www.linkbucks.com/A1ykH
+<br>【百度密碼】：c37a
 
 <br>【節目名稱】：一切從音樂開始.2017-08-12
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215296025
+<br>【MediaFire】：http://adf.ly/1noCzV
+<br>【MediaFire】：http://www.linkbucks.com/A1q6e
+<br>【百度網盤】：http://adf.ly/1noCZA
+<br>【百度網盤】：http://www.linkbucks.com/A1rVN
+<br>【百度密碼】：pmvt
