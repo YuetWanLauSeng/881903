@@ -152,72 +152,72 @@
 <br>【節目主持】：吳詠希
 <br>【節目時間】：16:00 - 17:00
 <br>【檔案名稱】：Trivial Vestigation.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215348016
+<br>【MediaFire】：http://adf.ly/1noRul
+<br>【MediaFire】：http://www.linkbucks.com/A1W4V
+<br>【百度網盤】：http://adf.ly/1noRvM
+<br>【百度網盤】：http://www.linkbucks.com/A1W3M
+<br>【百度密碼】：b25h
 
 <br>【節目名稱】：兒童適宜.2017-08-13
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215347820
+<br>【MediaFire】：http://adf.ly/1noRz1
+<br>【MediaFire】：http://www.linkbucks.com/A1WnP
+<br>【百度網盤】：http://adf.ly/1noRwW
+<br>【百度網盤】：http://www.linkbucks.com/A1Wzn
+<br>【百度密碼】：dpym
 
 <br>【節目名稱】：聽楓的歌.2017-08-13
 <br>【節目頻道】：881
 <br>【節目主持】：江慧楓
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Maple Swing.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215347918
+<br>【MediaFire】：http://adf.ly/1noRxH
+<br>【MediaFire】：http://www.linkbucks.com/A1Wzi
+<br>【百度網盤】：http://adf.ly/1noRy1
+<br>【百度網盤】：http://www.linkbucks.com/A1Wyj
+<br>【百度密碼】：f68s
 
 <br>【節目名稱】：Mali Mali Home.2017-08-13
 <br>【節目頻道】：903
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215347869
+<br>【MediaFire】：http://adf.ly/1noRz1
+<br>【MediaFire】：http://www.linkbucks.com/A1WxA
+<br>【百度網盤】：http://adf.ly/1noRzh
+<br>【百度網盤】：http://www.linkbucks.com/A1Wub
+<br>【百度密碼】：v6ah
 
 <br>【節目名稱】：串.2017-08-13
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215347981
+<br>【MediaFire】：http://adf.ly/1noS0W
+<br>【MediaFire】：http://www.linkbucks.com/A1WrT
+<br>【百度網盤】：http://adf.ly/1noS1P
+<br>【百度網盤】：http://www.linkbucks.com/A1Wqu
+<br>【百度密碼】：qz9j
 
 <br>【節目名稱】：讀懂中國.2017-08-13
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215347944
+<br>【MediaFire】：http://adf.ly/1noS1t
+<br>【MediaFire】：http://www.linkbucks.com/A1Wp8
+<br>【百度網盤】：http://adf.ly/1noS2S
+<br>【百度網盤】：http://www.linkbucks.com/A1Wo7
+<br>【百度密碼】：5z5m
 
 <br>【節目名稱】：國語類.2017-08-13
 <br>【節目頻道】：903
