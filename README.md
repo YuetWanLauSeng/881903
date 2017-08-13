@@ -116,36 +116,36 @@
 <br>【節目主持】：譚嘉昇 | 伍甄琪
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Daily I.T. Bureau.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215345187
+<br>【MediaFire】：http://adf.ly/1noPCK
+<br>【MediaFire】：http://www.linkbucks.com/A1u6c
+<br>【百度網盤】：http://adf.ly/1noP9m
+<br>【百度網盤】：http://www.linkbucks.com/A1u7l
+<br>【百度密碼】：gj58
 
 <br>【節目名稱】：無定向喪煲病狂.2017-08-13
 <br>【節目頻道】：903
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215345164
+<br>【MediaFire】：http://adf.ly/1noPE1
+<br>【MediaFire】：http://www.linkbucks.com/A1u5B
+<br>【百度網盤】：http://adf.ly/1noPAm
+<br>【百度網盤】：http://www.linkbucks.com/A1u7c
+<br>【百度密碼】：e87c
 
 <br>【節目名稱】：樂樂的後花園.2017-08-13
 <br>【節目頻道】：881
 <br>【節目主持】：樂樂
 <br>【節目時間】：15:00 - 16:00
 <br>【檔案名稱】：Venus’Secret Garden.2017-08-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215345198
+<br>【MediaFire】：http://adf.ly/1noPBh
+<br>【MediaFire】：http://www.linkbucks.com/A1u7G
+<br>【百度網盤】：http://adf.ly/1noP9D
+<br>【百度網盤】：http://www.linkbucks.com/A1u8S
+<br>【百度密碼】：w8tu
 
 <br>【節目名稱】：細眉細眼調查科.2017-08-13
 <br>【節目頻道】：881
