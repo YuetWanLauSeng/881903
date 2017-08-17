@@ -142,9 +142,9 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215911270
 <br>【MediaFire】：http://adf.ly/1nr8E4
 <br>【MediaFire】：http://www.linkbucks.com/A126f
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nr8TV
+<br>【百度網盤】：http://www.linkbucks.com/A1202
+<br>【百度密碼】：sn2u
 
 <br>【節目名稱】：大玩派.2017-08-17
 <br>【節目頻道】：881
