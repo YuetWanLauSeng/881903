@@ -94,54 +94,54 @@
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215899531
 <br>【MediaFire】：http://adf.ly/1nr3Ze
 <br>【MediaFire】：http://www.linkbucks.com/A14F2
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nr4YY
+<br>【百度網盤】：http://www.linkbucks.com/A13iv
+<br>【百度密碼】：ay2v
 
 <br>【節目名稱】：叱咤樂壇.2017-08-17
 <br>【節目頻道】：903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-08-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215911223
+<br>【MediaFire】：http://adf.ly/1nr8DX
+<br>【MediaFire】：http://www.linkbucks.com/A126q
+<br>【百度網盤】：http://adf.ly/1nr8CQ
+<br>【百度網盤】：http://www.linkbucks.com/A127E
+<br>【百度密碼】：ipe7
 
 <br>【節目名稱】：一點叮一叮.2017-08-17
 <br>【節目頻道】：881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-08-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215911243
+<br>【MediaFire】：http://adf.ly/1nr8EO
+<br>【MediaFire】：http://www.linkbucks.com/A126V
+<br>【百度網盤】：http://adf.ly/1nr8G0
+<br>【百度網盤】：http://www.linkbucks.com/A124F
+<br>【百度密碼】：u9sm
 
 <br>【節目名稱】：人生交叉盤.2017-08-17
 <br>【節目頻道】：881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-08-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215911235
+<br>【MediaFire】：http://adf.ly/1nr8Ey
+<br>【MediaFire】：http://www.linkbucks.com/A125j
+<br>【百度網盤】：http://adf.ly/1nr8D7
+<br>【百度網盤】：http://www.linkbucks.com/A1268
+<br>【百度密碼】：1t8g
 
 <br>【節目名稱】：你好嘢.2017-08-17
 <br>【節目頻道】：903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-08-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-215911270
+<br>【MediaFire】：http://adf.ly/1nr8E4
+<br>【MediaFire】：http://www.linkbucks.com/A126f
 <br>【百度網盤】：
 <br>【百度網盤】：
 <br>【百度密碼】：
