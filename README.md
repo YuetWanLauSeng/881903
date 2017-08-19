@@ -92,41 +92,36 @@
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216173172
+<br>【MediaFire】：http://adf.ly/1nsqUk
+<br>【MediaFire】：http://www.linkbucks.com/A2Aef
+<br>【百度網盤】：http://adf.ly/1nsqWV
+<br>【百度網盤】：http://www.linkbucks.com/A2AeA
+<br>【百度密碼】：yweu
 
 <br>【節目名稱】：電影圈.2017-08-19
 <br>【節目頻道】：881
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：12:30 - 14:00
 <br>【檔案名稱】：Movies.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216173180
+<br>【MediaFire】：http://adf.ly/1nsqV8
+<br>【MediaFire】：http://www.linkbucks.com/A2AeT
+<br>【百度網盤】：http://adf.ly/1nsqVs
+<br>【百度網盤】：http://www.linkbucks.com/A2AeJ
+<br>【百度密碼】：3aay
 
 <br>【節目名稱】：咪芝蓮.2017-08-19
 <br>【節目頻道】：903
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『咆哮山莊』
 
 <br>【節目名稱】：咆哮山莊.2017-08-19
 <br>【節目頻道】：903
 <br>【節目主持】：DJ
-<br>【節目時間】：14:00 - 15:00
+<br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-08-19
 <br>【城通網盤】：
 <br>【MediaFire】：
