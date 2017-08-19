@@ -183,24 +183,24 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-08-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260313
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nt8c2
+<br>【百度網盤】：http://www.linkbucks.com/A2GF7
+<br>【百度密碼】：ytf5
 
 <br>【節目名稱】：西瓜大發.2017-08-19
 <br>【節目頻道】：903
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-08-19
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260443
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1nt7pf
+<br>【百度網盤】：http://www.linkbucks.com/A2GOq
+<br>【百度密碼】：bnv8
 
 <br>【節目名稱】：雷霆音樂圈.2017-08-19
 <br>【節目頻道】：881
