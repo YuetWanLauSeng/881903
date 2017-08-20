@@ -92,48 +92,48 @@
 <br>【節目主持】：張子君
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Summer Homework.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216366888
+<br>【MediaFire】：http://adf.ly/1ntlr7
+<br>【MediaFire】：http://www.linkbucks.com/APVx7
+<br>【百度網盤】：http://adf.ly/1ntkw7
+<br>【百度網盤】：http://www.linkbucks.com/A2cEG
+<br>【百度密碼】：qjh6
 
 <br>【節目名稱】：都是我的流行曲.2017-08-20
 <br>【節目頻道】：881
 <br>【節目主持】：江健聰
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Oldies Buddy.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216366877
+<br>【MediaFire】：http://adf.ly/1ntlGF
+<br>【MediaFire】：http://www.linkbucks.com/A2b4X
+<br>【百度網盤】：http://adf.ly/1ntlDC
+<br>【百度網盤】：http://www.linkbucks.com/A2b7t
+<br>【百度密碼】：r3p4
 
 <br>【節目名稱】：貼身科技局.2017-08-20
 <br>【節目頻道】：881
 <br>【節目主持】：譚嘉昇 | 伍甄琪
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Daily I.T. Bureau.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216366867
+<br>【MediaFire】：http://adf.ly/1ntlGk
+<br>【MediaFire】：http://www.linkbucks.com/AR3EM
+<br>【百度網盤】：http://adf.ly/1ntlEU
+<br>【百度網盤】：http://www.linkbucks.com/A2b7k
+<br>【百度密碼】：upnm
 
 <br>【節目名稱】：無定向喪煲病狂.2017-08-20
 <br>【節目頻道】：903
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216366844
+<br>【MediaFire】：http://adf.ly/1ntlFp
+<br>【MediaFire】：http://www.linkbucks.com/A2b5S
+<br>【百度網盤】：http://adf.ly/1ntlFC
+<br>【百度網盤】：http://www.linkbucks.com/A2b6x
+<br>【百度密碼】：suxf
 
 <br>【節目名稱】：樂樂的後花園.2017-08-20
 <br>【節目頻道】：881
