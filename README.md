@@ -3,288 +3,338 @@
 
 <br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
 
-<br>【節目名稱】：祝君早安.2017-08-19
+<br>【節目名稱】：書.情.歌.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：蔡靜怡
+<br>【節目主持】：葉宇澄
 <br>【節目時間】：06:00 - 08:00
-<br>【檔案名稱】：Morning Glory.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216163852
-<br>【MediaFire】：http://adf.ly/1nsnLh
-<br>【MediaFire】：http://www.linkbucks.com/A2A29
-<br>【百度網盤】：http://adf.ly/1nsnTi
-<br>【百度網盤】：http://www.linkbucks.com/A2A2N
-<br>【百度密碼】：iv1r
+<br>【檔案名稱】：Reading Time.2017-08-20
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216364809
+<br>【MediaFire】：http://adf.ly/1ntje8
+<br>【MediaFire】：http://www.linkbucks.com/A2dZC
+<br>【百度網盤】：http://adf.ly/1ntjSw
+<br>【百度網盤】：http://www.linkbucks.com/A2drR
+<br>【百度密碼】：wu8c
 
-<br>【節目名稱】：好醒晨.2017-08-19
+<br>【節目名稱】：一周紅人館.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：細So
-<br>【節目時間】：06:00 - 08:00
-<br>【檔案名稱】：So Sunshine.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216163965
-<br>【MediaFire】：http://adf.ly/1nsnJv
-<br>【MediaFire】：http://www.linkbucks.com/A2A3Z
-<br>【百度網盤】：http://adf.ly/1nsnSD
-<br>【百度網盤】：http://www.linkbucks.com/A2A2W
-<br>【百度密碼】：qr3t
+<br>【節目主持】：903 DJ
+<br>【節目時間】：06:00 - 09:00
+<br>【檔案名稱】：Star House.2017-08-20
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216364954
+<br>【MediaFire】：http://adf.ly/1ntjbl
+<br>【MediaFire】：http://www.linkbucks.com/A2ddd
+<br>【百度網盤】：http://adf.ly/1ntjQY
+<br>【百度網盤】：http://www.linkbucks.com/A2duF
+<br>【百度密碼】：xgh9
 
-<br>【節目名稱】：橙咇咇.2017-08-19
-<br>【節目頻道】：903
-<br>【節目主持】：強
-<br>【節目時間】：08:00 - 09:00
-<br>【檔案名稱】：Orange Day.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216163892
-<br>【MediaFire】：http://adf.ly/1nsnM3
-<br>【MediaFire】：http://www.linkbucks.com/A2A2s
-<br>【百度網盤】：http://adf.ly/1nsnT2
-<br>【百度網盤】：http://www.linkbucks.com/A2A2P
-<br>【百度密碼】：yr7c
-
-<br>【節目名稱】：政經星期六.2017-08-19
+<br>【節目名稱】：政好星期天.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：陳淑薇 | 羅輝
+<br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：Saturday Forum.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216163939
-<br>【MediaFire】：http://adf.ly/1nsnL3
-<br>【MediaFire】：http://www.linkbucks.com/A2A3R
-<br>【百度網盤】：http://adf.ly/1nsnSb
-<br>【百度網盤】：http://www.linkbucks.com/A2A2T
-<br>【百度密碼】：wibd
+<br>【檔案名稱】：Beautiful Sunday.2017-08-20
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216364618
+<br>【MediaFire】：http://adf.ly/1ntjcY
+<br>【MediaFire】：http://www.linkbucks.com/A2da0
+<br>【百度網盤】：http://adf.ly/1ntjTR
+<br>【百度網盤】：http://www.linkbucks.com/A2dpI
+<br>【百度密碼】：cvbk
 
-<br>【節目名稱】：西加航空.2017-08-19
+<br>【節目名稱】：Urban Touch.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：謝茜嘉
+<br>【節目主持】：急急子
 <br>【節目時間】：09:00 - 11:00
-<br>【檔案名稱】：J.A.L.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216163783
-<br>【MediaFire】：http://adf.ly/1nsnLK
-<br>【MediaFire】：http://www.linkbucks.com/A2A3J
-<br>【百度網盤】：http://adf.ly/1nsnUa
-<br>【百度網盤】：http://www.linkbucks.com/A2A2H
-<br>【百度密碼】：cezm
+<br>【檔案名稱】：Urban Touch.2017-08-20
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216365095
+<br>【MediaFire】：http://adf.ly/1ntjdj
+<br>【MediaFire】：http://www.linkbucks.com/A2dZf
+<br>【百度網盤】：http://adf.ly/1ntjNP
+<br>【百度網盤】：http://www.linkbucks.com/A2dys
+<br>【百度密碼】：ea89
 
-<br>【節目名稱】：潮爆開運王.2017-08-19
+<br>【節目名稱】：馬路的事我哋的事.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：李居明 | 江美儀 | 林寄韻
+<br>【節目主持】：林偉豪
 <br>【節目時間】：10:00 - 11:00
-<br>【檔案名稱】：Weekend Lucky Star.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216164001
-<br>【MediaFire】：http://adf.ly/1nsnMg
-<br>【MediaFire】：http://www.linkbucks.com/A2A2k
-<br>【百度網盤】：http://adf.ly/1nsnQm
-<br>【百度網盤】：http://www.linkbucks.com/A2A2a
-<br>【百度密碼】：4mqk
+<br>【檔案名稱】：Road Co-op.2017-08-20
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216364857
+<br>【MediaFire】：http://adf.ly/1ntjeS
+<br>【MediaFire】：http://www.linkbucks.com/A2dYb
+<br>【百度網盤】：http://adf.ly/1ntjRU
+<br>【百度網盤】：http://www.linkbucks.com/A2dsf
+<br>【百度密碼】：q84e
 
-<br>【節目名稱】：考股專家.2017-08-19
+<br>【節目名稱】：同途有心人.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：陳永陸 | 伍甄琪
+<br>【節目主持】：麥詠宜
 <br>【節目時間】：11:00 - 12:00
-<br>【檔案名稱】：Stockaeologist.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216163981
-<br>【MediaFire】：http://adf.ly/1nsnN0
-<br>【MediaFire】：http://www.linkbucks.com/A2A2g
-<br>【百度網盤】：http://adf.ly/1nsnRZ
-<br>【百度網盤】：http://www.linkbucks.com/A2A2X
-<br>【百度密碼】：yfhp
+<br>【檔案名稱】：The Way We Are.2017-08-20
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216365031
+<br>【MediaFire】：http://adf.ly/1ntjf9
+<br>【MediaFire】：http://www.linkbucks.com/A2dX6
+<br>【百度網盤】：http://adf.ly/1ntjOH
+<br>【百度網盤】：http://www.linkbucks.com/A2dxX
+<br>【百度密碼】：bwvd
 
-<br>【節目名稱】：專業推介.2017-08-19
+<br>【節目名稱】：讀賣Sunday.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：Donald
+<br>【節目主持】：占 | 王貽興
 <br>【節目時間】：11:00 - 13:00
-<br>【檔案名稱】：903 Top 20.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216173172
-<br>【MediaFire】：http://adf.ly/1nsqUk
-<br>【MediaFire】：http://www.linkbucks.com/A2Aef
-<br>【百度網盤】：http://adf.ly/1nsqWV
-<br>【百度網盤】：http://www.linkbucks.com/A2AeA
-<br>【百度密碼】：yweu
+<br>【檔案名稱】：Sunny Day Readings.2017-08-20
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216364988
+<br>【MediaFire】：http://adf.ly/1ntjd8
+<br>【MediaFire】：http://www.linkbucks.com/A2daV
+<br>【百度網盤】：http://adf.ly/1ntjPP
+<br>【百度網盤】：http://www.linkbucks.com/A2dv5
+<br>【百度密碼】：myub
 
-<br>【節目名稱】：電影圈.2017-08-19
+<br>【節目名稱】：暑期作業.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：馮志豐 | 鄔家麟
-<br>【節目時間】：12:30 - 14:00
-<br>【檔案名稱】：Movies.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216173180
-<br>【MediaFire】：http://adf.ly/1nsqV8
-<br>【MediaFire】：http://www.linkbucks.com/A2AeT
-<br>【百度網盤】：http://adf.ly/1nsqVs
-<br>【百度網盤】：http://www.linkbucks.com/A2AeJ
-<br>【百度密碼】：3aay
+<br>【節目主持】：張子君
+<br>【節目時間】：12:30 - 13:00
+<br>【檔案名稱】：Summer Homework.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：咪芝蓮.2017-08-19
-<br>【節目頻道】：903
-<br>【節目主持】：小儀
+<br>【節目名稱】：都是我的流行曲.2017-08-20
+<br>【節目頻道】：881
+<br>【節目主持】：江健聰
 <br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Mr Chef.2017-08-19
-<br>【節目暫停】：改播『咆哮山莊』
+<br>【檔案名稱】：Oldies Buddy.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：咆哮山莊.2017-08-19
+<br>【節目名稱】：貼身科技局.2017-08-20
+<br>【節目頻道】：881
+<br>【節目主持】：譚嘉昇 | 伍甄琪
+<br>【節目時間】：14:00 - 15:00
+<br>【檔案名稱】：Daily I.T. Bureau.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：無定向喪煲病狂.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：DJ
+<br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
-<br>【檔案名稱】：903 Band Time.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216176195
-<br>【MediaFire】：http://adf.ly/1nsuMH
-<br>【MediaFire】：http://www.linkbucks.com/A17EY
-<br>【百度網盤】：http://adf.ly/1nsuGS
-<br>【百度網盤】：http://www.linkbucks.com/A19wD
-<br>【百度密碼】：qus1
+<br>【檔案名稱】：Binge-Watch.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：1圈圈 (周末版).2017-08-19
+<br>【節目名稱】：樂樂的後花園.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
-<br>【節目時間】：14:00 - 17:00
-<br>【檔案名稱】：Circles.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248626
-<br>【MediaFire】：http://adf.ly/1nt607
-<br>【MediaFire】：http://www.linkbucks.com/A2Gla
-<br>【百度網盤】：http://adf.ly/1nt5RU
-<br>【百度網盤】：http://www.linkbucks.com/A2Grf
-<br>【百度密碼】：b2xt
+<br>【節目主持】：樂樂
+<br>【節目時間】：15:00 - 16:00
+<br>【檔案名稱】：Venus’Secret Garden.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：豁達推介.2017-08-19
+<br>【節目名稱】：細眉細眼調查科.2017-08-20
+<br>【節目頻道】：881
+<br>【節目主持】：吳詠希
+<br>【節目時間】：16:00 - 17:00
+<br>【檔案名稱】：Trivial Vestigation.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：兒童適宜.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：梁文禮
+<br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：Quote Chart.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248644
-<br>【MediaFire】：http://adf.ly/1nt5Sd
-<br>【MediaFire】：http://www.linkbucks.com/A2GrV
-<br>【百度網盤】：http://adf.ly/1nt5Qj
-<br>【百度網盤】：http://www.linkbucks.com/A2Grp
-<br>【百度密碼】：3acs
+<br>【檔案名稱】：Kiss Kiss Kids.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：大鐵人.2017-08-19
+<br>【節目名稱】：聽楓的歌.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：楊樂笙 | 熊書頤
+<br>【節目主持】：江慧楓
 <br>【節目時間】：17:00 - 18:00
-<br>【檔案名稱】：The Big Sportsman.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248681
-<br>【MediaFire】：http://adf.ly/1nt61Q
-<br>【MediaFire】：http://www.linkbucks.com/A2GlS
-<br>【百度網盤】：http://adf.ly/1nt5OS
-<br>【百度網盤】：http://www.linkbucks.com/A2GsJ
-<br>【百度密碼】：ai6k
+<br>【檔案名稱】：Maple Swing.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：3號螺絲釘.2017-08-19
+<br>【節目名稱】：Mali Mali Home.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：Colin
+<br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Screw No.3.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216248662
-<br>【MediaFire】：http://adf.ly/1nt5Tb
-<br>【MediaFire】：http://www.linkbucks.com/A2GlJ
-<br>【百度網盤】：http://adf.ly/1nt5Pj
-<br>【百度網盤】：http://www.linkbucks.com/A2Gr5
-<br>【百度密碼】：fgyc
+<br>【檔案名稱】：Mali Mali Home.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：第三齡接觸.2017-08-19
+<br>【節目名稱】：串.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：朱菁 | 黃日安
-<br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Silver Age Club.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260313
-<br>【MediaFire】：http://adf.ly/1ntZVd
-<br>【MediaFire】：http://www.linkbucks.com/A2J9b
-<br>【百度網盤】：http://adf.ly/1nt8c2
-<br>【百度網盤】：http://www.linkbucks.com/A2GF7
-<br>【百度密碼】：ytf5
+<br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
+<br>【節目時間】：18:30 - 19:00
+<br>【檔案名稱】：Sino Stream.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：西瓜大發.2017-08-19
+<br>【節目名稱】：讀懂中國.2017-08-20
+<br>【節目頻道】：881
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目時間】：19:00 - 20:00
+<br>【檔案名稱】：Sino Stream - Reading.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：國語類.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：西瓜
+<br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：WonderMelon.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260443
-<br>【MediaFire】：http://adf.ly/1ntZVt
-<br>【MediaFire】：http://www.linkbucks.com/A2J9Z
-<br>【百度網盤】：http://adf.ly/1nt7pf
-<br>【百度網盤】：http://www.linkbucks.com/A2GOq
-<br>【百度密碼】：bnv8
+<br>【檔案名稱】：Bo Po Mo Fo.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：雷霆音樂圈.2017-08-19
+<br>【節目名稱】：泡菜粉絲煲.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：楊美琪
-<br>【節目時間】：20:00 - 23:00
-<br>【檔案名稱】：881 Music Station.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216327562
-<br>【MediaFire】：http://adf.ly/1ntZvo
-<br>【MediaFire】：http://www.linkbucks.com/A2J4u
-<br>【百度網盤】：http://adf.ly/1ntZbn
-<br>【百度網盤】：http://www.linkbucks.com/A2J8a
-<br>【百度密碼】：gfc3
+<br>【節目主持】：伍甄琪 | 伍悅
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Kimchi Fans Club.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：Chi Chung's Class.2017-08-19
+<br>【節目名稱】：細路強.2017-08-20
+<br>【節目頻道】：881
+<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+<br>【節目時間】：21:00 - 22:00 
+<br>【檔案名稱】：Mighty Kids Mighty Parents.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：國民教育.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：黃志淙
+<br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Chi Chung's Class.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216331518
-<br>【MediaFire】：http://adf.ly/1ntbu2
-<br>【MediaFire】：http://www.linkbucks.com/A2Jcl
-<br>【百度網盤】：http://adf.ly/1ntbxF
-<br>【百度網盤】：http://www.linkbucks.com/A2mPz
-<br>【百度密碼】：kng5
+<br>【檔案名稱】：Time's Up Pen's Down.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：與時並進.2017-08-19
+<br>【節目名稱】：帶一本書去旅行.2017-08-20
 <br>【節目頻道】：881
-<br>【節目日期】：2017-08-19
-<br>【節目主持】：時美真
-<br>【節目時間】：23:00 - 00:00
-<br>【檔案名稱】：Education Forum.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216331523
-<br>【MediaFire】：http://adf.ly/1ntbtT
-<br>【MediaFire】：http://www.linkbucks.com/A2Jcm
-<br>【百度網盤】：http://adf.ly/1ntbw1
-<br>【百度網盤】：http://www.linkbucks.com/A2mP5
-<br>【百度密碼】：6hcs
+<br>【節目主持】：阮子健
+<br>【節目時間】：22:00 - 23:00
+<br>【檔案名稱】：Readers for Riders.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：公子會.2017-08-19
-<br>【節目頻道】：903
-<br>【節目日期】：2017-08-19
-<br>【節目主持】：森美
-<br>【訪問嘉賓】：汪明荃
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：The Playtoy Mansion.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216327630
-<br>【MediaFire】：http://adf.ly/1ntZnk
-<br>【MediaFire】：http://www.linkbucks.com/A2J6K
-<br>【百度網盤】：http://adf.ly/1ntZaA
-<br>【百度網盤】：http://www.linkbucks.com/A2J8v
-<br>【百度密碼】：e8x4
-
-<br>【節目名稱】：發式生活.2017-08-19
+<br>【節目名稱】：葛民教育.2017-08-20
 <br>【節目頻道】：881
-<br>【節目主持】：余宜發
-<br>【節目時間】：00:30 - 02:00
-<br>【檔案名稱】：Fat’s Lifestyle.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216331525
-<br>【MediaFire】：http://adf.ly/1ntbuL
-<br>【MediaFire】：http://www.linkbucks.com/A2Jca
-<br>【百度網盤】：http://adf.ly/1ntbvd
-<br>【百度網盤】：http://www.linkbucks.com/A2mQX
-<br>【百度密碼】：5gyx
+<br>【節目主持】：葛民輝
+<br>【節目時間】：23:00 - 23:30
+<br>【檔案名稱】：Kot’s ology.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：皇牌出場.2017-08-19
+<br>【節目名稱】：短期租約.2017-08-20
 <br>【節目頻道】：903
-<br>【節目主持】：Marco | Keyman
+<br>【節目主持】：Wasabi
+<br>【節目時間】：23:00 - 02:00
+<br>【檔案名稱】：Short-term Lease.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：心靈料理.2017-08-20
+<br>【節目頻道】：881
+<br>【節目主持】：劉丹心 | 伍甄琪
+<br>【節目時間】：23:30 - 01:00
+<br>【檔案名稱】：Feed Your Soul.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：寫生活.2017-08-20
+<br>【節目頻道】：881
+<br>【節目主持】：主持人
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Losing Eleven.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216331536
-<br>【MediaFire】：http://adf.ly/1ntbuf
-<br>【MediaFire】：http://www.linkbucks.com/A2JcV
-<br>【百度網盤】：http://adf.ly/1ntbvA
-<br>【百度網盤】：http://www.linkbucks.com/A2JcM
-<br>【百度密碼】：mg9i
+<br>【檔案名稱】：Bedtime Readings.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：一切從音樂開始.2017-08-19
+<br>【節目名稱】：一切從音樂開始.2017-08-20
 <br>【節目頻道】：881 & 903
-<br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
-<br>【檔案名稱】：Begin with Music.2017-08-19
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216351005
-<br>【MediaFire】：http://adf.ly/1ntfE4
-<br>【MediaFire】：http://www.linkbucks.com/A2hwT
-<br>【百度網盤】：http://adf.ly/1ntfEX
-<br>【百度網盤】：http://www.linkbucks.com/A2hwN
-<br>【百度密碼】：yp2i
+<br>【檔案名稱】：Begin with Music.2017-08-20
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
