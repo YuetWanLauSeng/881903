@@ -212,24 +212,24 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216387013
+<br>【MediaFire】：http://adf.ly/1ntyoh
+<br>【MediaFire】：http://www.linkbucks.com/A2MjL
+<br>【百度網盤】：http://adf.ly/1ntyrT
+<br>【百度網盤】：http://www.linkbucks.com/A2Mhr
+<br>【百度密碼】：h8fb
 
 <br>【節目名稱】：國語類.2017-08-20
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216386996
+<br>【MediaFire】：http://adf.ly/1ntynv
+<br>【MediaFire】：http://www.linkbucks.com/A2MpN
+<br>【百度網盤】：http://adf.ly/1ntyyn
+<br>【百度網盤】：http://www.linkbucks.com/A2Mhq
+<br>【百度密碼】：tt3u
 
 <br>【節目名稱】：泡菜粉絲煲.2017-08-20
 <br>【節目頻道】：881
