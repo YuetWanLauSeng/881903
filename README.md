@@ -184,8 +184,8 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-08-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260313
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ntZVd
+<br>【MediaFire】：http://www.linkbucks.com/A2J9b
 <br>【百度網盤】：http://adf.ly/1nt8c2
 <br>【百度網盤】：http://www.linkbucks.com/A2GF7
 <br>【百度密碼】：ytf5
@@ -196,8 +196,8 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-08-19
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216260443
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1ntZVt
+<br>【MediaFire】：http://www.linkbucks.com/A2J9Z
 <br>【百度網盤】：http://adf.ly/1nt7pf
 <br>【百度網盤】：http://www.linkbucks.com/A2GOq
 <br>【百度密碼】：bnv8
@@ -207,12 +207,12 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216327562
+<br>【MediaFire】：http://adf.ly/1ntZvo
+<br>【MediaFire】：http://www.linkbucks.com/A2J4u
+<br>【百度網盤】：http://adf.ly/1ntZbn
+<br>【百度網盤】：http://www.linkbucks.com/A2J8a
+<br>【百度密碼】：gfc3
 
 <br>【節目名稱】：Chi Chung's Class.2017-08-19
 <br>【節目頻道】：903
@@ -243,15 +243,15 @@
 <br>【節目頻道】：903
 <br>【節目日期】：2017-08-19
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：汪明荃
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216327630
+<br>【MediaFire】：http://adf.ly/1ntZnk
+<br>【MediaFire】：http://www.linkbucks.com/A2J6K
+<br>【百度網盤】：http://adf.ly/1ntZaA
+<br>【百度網盤】：http://www.linkbucks.com/A2J8v
+<br>【百度密碼】：e8x4
 
 <br>【節目名稱】：發式生活.2017-08-19
 <br>【節目頻道】：881
