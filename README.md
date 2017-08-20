@@ -260,36 +260,36 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216393523
+<br>【MediaFire】：http://adf.ly/1nu4CN
+<br>【MediaFire】：http://www.linkbucks.com/A2LEX
+<br>【百度網盤】：http://adf.ly/1nu4Go
+<br>【百度網盤】：http://www.linkbucks.com/A2LCe
+<br>【百度密碼】：rx9w
 
 <br>【節目名稱】：帶一本書去旅行.2017-08-20
 <br>【節目頻道】：881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216393816
+<br>【MediaFire】：http://adf.ly/1nu4Ao
+<br>【MediaFire】：http://www.linkbucks.com/A2LE5
+<br>【百度網盤】：http://adf.ly/1nu4Fd
+<br>【百度網盤】：http://www.linkbucks.com/A2LCl
+<br>【百度密碼】：gaes
 
 <br>【節目名稱】：葛民教育.2017-08-20
 <br>【節目頻道】：881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216394019
+<br>【MediaFire】：http://adf.ly/1nu49L
+<br>【MediaFire】：http://www.linkbucks.com/A2LFN
+<br>【百度網盤】：http://adf.ly/1nu4EN
+<br>【百度網盤】：http://www.linkbucks.com/A2LDV
+<br>【百度密碼】：1et2
 
 <br>【節目名稱】：短期租約.2017-08-20
 <br>【節目頻道】：903
