@@ -236,24 +236,24 @@
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216389540
+<br>【MediaFire】：http://adf.ly/1nu07g
+<br>【MediaFire】：http://www.linkbucks.com/A2MKW
+<br>【百度網盤】：http://adf.ly/1nu0Ak
+<br>【百度網盤】：http://www.linkbucks.com/A2MHs
+<br>【百度密碼】：fkvg
 
 <br>【節目名稱】：細路強.2017-08-20
 <br>【節目頻道】：881
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216389556
+<br>【MediaFire】：http://adf.ly/1nu08S
+<br>【MediaFire】：http://www.linkbucks.com/A2MKO
+<br>【百度網盤】：http://adf.ly/1nu09O
+<br>【百度網盤】：http://www.linkbucks.com/A2MIn
+<br>【百度密碼】：ddwg
 
 <br>【節目名稱】：國民教育.2017-08-20
 <br>【節目頻道】：903
