@@ -282,9 +282,9 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216351005
+<br>【MediaFire】：http://adf.ly/1ntfE4
+<br>【MediaFire】：http://www.linkbucks.com/A2hwT
+<br>【百度網盤】：http://adf.ly/1ntfEX
+<br>【百度網盤】：http://www.linkbucks.com/A2hwN
+<br>【百度密碼】：yp2i
