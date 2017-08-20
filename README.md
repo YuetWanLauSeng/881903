@@ -219,12 +219,12 @@
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216331518
+<br>【MediaFire】：http://adf.ly/1ntbu2
+<br>【MediaFire】：http://www.linkbucks.com/A2Jcl
+<br>【百度網盤】：http://adf.ly/1ntbxF
+<br>【百度網盤】：http://www.linkbucks.com/A2mPz
+<br>【百度密碼】：kng5
 
 <br>【節目名稱】：與時並進.2017-08-19
 <br>【節目頻道】：881
@@ -232,12 +232,12 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216331523
+<br>【MediaFire】：http://adf.ly/1ntbtT
+<br>【MediaFire】：http://www.linkbucks.com/A2Jcm
+<br>【百度網盤】：http://adf.ly/1ntbw1
+<br>【百度網盤】：http://www.linkbucks.com/A2mP5
+<br>【百度密碼】：6hcs
 
 <br>【節目名稱】：公子會.2017-08-19
 <br>【節目頻道】：903
@@ -258,24 +258,24 @@
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216331525
+<br>【MediaFire】：http://adf.ly/1ntbuL
+<br>【MediaFire】：http://www.linkbucks.com/A2Jca
+<br>【百度網盤】：http://adf.ly/1ntbvd
+<br>【百度網盤】：http://www.linkbucks.com/A2mQX
+<br>【百度密碼】：5gyx
 
 <br>【節目名稱】：皇牌出場.2017-08-19
 <br>【節目頻道】：903
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-08-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216331536
+<br>【MediaFire】：http://adf.ly/1ntbuf
+<br>【MediaFire】：http://www.linkbucks.com/A2JcV
+<br>【百度網盤】：http://adf.ly/1ntbvA
+<br>【百度網盤】：http://www.linkbucks.com/A2JcM
+<br>【百度密碼】：mg9i
 
 <br>【節目名稱】：一切從音樂開始.2017-08-19
 <br>【節目頻道】：881 & 903
