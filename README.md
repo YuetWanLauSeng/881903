@@ -296,45 +296,45 @@
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216409978
+<br>【MediaFire】：http://adf.ly/1nuQgZ
+<br>【MediaFire】：http://www.linkbucks.com/A2RaD
+<br>【百度網盤】：http://adf.ly/1nuQiz
+<br>【百度網盤】：http://www.linkbucks.com/A2RY8
+<br>【百度密碼】：dgui
 
 <br>【節目名稱】：心靈料理.2017-08-20
 <br>【節目頻道】：881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216409808
+<br>【MediaFire】：http://adf.ly/1nuQiI
+<br>【MediaFire】：http://www.linkbucks.com/A2RZK
+<br>【百度網盤】：http://adf.ly/1nuQky
+<br>【百度網盤】：http://www.linkbucks.com/A2RYm
+<br>【百度密碼】：bxr5
 
 <br>【節目名稱】：寫生活.2017-08-20
 <br>【節目頻道】：881
 <br>【節目主持】：主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216409402
+<br>【MediaFire】：http://adf.ly/1nuQhT
+<br>【MediaFire】：http://www.linkbucks.com/A2RZk
+<br>【百度網盤】：http://adf.ly/1nuQmL
+<br>【百度網盤】：http://www.linkbucks.com/A2RYY
+<br>【百度密碼】：h9bn
 
 <br>【節目名稱】：一切從音樂開始.2017-08-20
 <br>【節目頻道】：881 & 903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216409772
+<br>【MediaFire】：http://adf.ly/1nuQfi
+<br>【MediaFire】：http://www.linkbucks.com/A2RaR
+<br>【百度網盤】：http://adf.ly/1nuQlf
+<br>【百度網盤】：http://www.linkbucks.com/A2RYa
+<br>【百度密碼】：qhrr
