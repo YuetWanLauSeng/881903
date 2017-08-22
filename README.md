@@ -152,8 +152,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-22
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216624294
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nvc04
+<br>【MediaFire】：http://www.linkbucks.com/A2vla
 <br>【百度網盤】：http://adf.ly/1nvUxo
 <br>【百度網盤】：http://www.linkbucks.com/AL4nN
 <br>【百度密碼】：ryen
@@ -164,8 +164,8 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-08-22
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216624339
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1nvc0l
+<br>【MediaFire】：http://www.linkbucks.com/A2vk4
 <br>【百度網盤】：http://adf.ly/1nvUyP
 <br>【百度網盤】：http://www.linkbucks.com/ABvPe
 <br>【百度密碼】：hc87
@@ -175,60 +175,60 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216637877
+<br>【MediaFire】：http://adf.ly/1nvdiU
+<br>【MediaFire】：http://www.linkbucks.com/A2t1O
+<br>【百度網盤】：http://adf.ly/1nvdoT
+<br>【百度網盤】：http://www.linkbucks.com/A2txp
+<br>【百度密碼】：vqe6
 
 <br>【節目名稱】：集雜志.2017-08-22
 <br>【節目頻道】：903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216638031
+<br>【MediaFire】：http://adf.ly/1nvdjE
+<br>【MediaFire】：http://www.linkbucks.com/A2t1K
+<br>【百度網盤】：http://adf.ly/1nvdkC
+<br>【百度網盤】：http://www.linkbucks.com/A2t0P
+<br>【百度密碼】：4a3j
 
 <br>【節目名稱】：人民大道中.2017-08-22
 <br>【節目頻道】：881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216637976
+<br>【MediaFire】：http://adf.ly/1nvdhv
+<br>【MediaFire】：http://www.linkbucks.com/A2t1e
+<br>【百度網盤】：http://adf.ly/1nvdlr
+<br>【百度網盤】：http://www.linkbucks.com/A2tyd
+<br>【百度密碼】：f9ke
 
 <br>【節目名稱】：生活日常.2017-08-22
 <br>【節目頻道】：903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216637947
+<br>【MediaFire】：http://adf.ly/1nvdhN
+<br>【MediaFire】：http://www.linkbucks.com/A2t1v
+<br>【百度網盤】：http://adf.ly/1nvdmi
+<br>【百度網盤】：http://www.linkbucks.com/A2tx6
+<br>【百度密碼】：7kkd
 
 <br>【節目名稱】：杏林茶.2017-08-22
 <br>【節目頻道】：881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216638009
+<br>【MediaFire】：http://adf.ly/1nvdjo
+<br>【MediaFire】：http://www.linkbucks.com/A2t0w
+<br>【百度網盤】：http://adf.ly/1nvdl2
+<br>【百度網盤】：http://www.linkbucks.com/A2t0M
+<br>【百度密碼】：pyh7
 
 <br>【節目名稱】：串.2017-08-22
 <br>【節目頻道】：881
