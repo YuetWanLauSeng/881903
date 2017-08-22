@@ -247,48 +247,55 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216645460
+<br>【MediaFire】：http://adf.ly/1nvjvL
+<br>【MediaFire】：http://www.linkbucks.com/A2qpn
+<br>【百度網盤】：http://adf.ly/1nvjt6
+<br>【百度網盤】：http://www.linkbucks.com/A2qqY
+<br>【百度密碼】：yekm
 
 <br>【節目名稱】：歐陽志強.2017-08-22
 <br>【節目頻道】：903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216645375
+<br>【MediaFire】：http://adf.ly/1nvjw2
+<br>【MediaFire】：http://www.linkbucks.com/A2qpQ
+<br>【百度網盤】：http://adf.ly/1nvjut
+<br>【百度網盤】：http://www.linkbucks.com/A2qqA
+<br>【百度密碼】：u2w6
 
 <br>【節目名稱】：書.情.歌.2017-08-22
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『再創生機』
+
+<br>【節目名稱】：再創生機.2017-08-22
+<br>【節目頻道】：881
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-08-22
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216645389
+<br>【MediaFire】：http://adf.ly/1nvjwa
+<br>【MediaFire】：http://www.linkbucks.com/A2qo0
+<br>【百度網盤】：http://adf.ly/1nvju5
+<br>【百度網盤】：http://www.linkbucks.com/A2qqM
+<br>【百度密碼】：5g4g
 
 <br>【節目名稱】：光明頂.2017-08-22
 <br>【節目頻道】：881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-08-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216646448
+<br>【MediaFire】：http://adf.ly/1nvkdy
+<br>【MediaFire】：http://www.linkbucks.com/A2qGs
+<br>【百度網盤】：http://adf.ly/1nvkd0
+<br>【百度網盤】：http://www.linkbucks.com/A2qIS
+<br>【百度密碼】：3kkr
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-08-22
 <br>【節目頻道】：903
