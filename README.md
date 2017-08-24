@@ -280,15 +280,16 @@
 
 <br>【節目名稱】：光明頂.2017-08-24
 <br>【節目頻道】：881
-<br>【節目主持】：陶傑 | 嘉賓主持
+<br>【節目主持】：陶傑 | 馮智政
+<br>【節目話題】：英國教育
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-08-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216954474
+<br>【MediaFire】：http://adf.ly/1nxNhc
+<br>【MediaFire】：http://www.linkbucks.com/A23vJ
+<br>【百度網盤】：http://adf.ly/1nxNfF
+<br>【百度網盤】：http://www.linkbucks.com/A23vg
+<br>【百度密碼】：2fyb
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-08-24
 <br>【節目頻道】：903
