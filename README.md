@@ -211,72 +211,72 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-08-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216945784
+<br>【MediaFire】：http://adf.ly/1nxMVr
+<br>【MediaFire】：http://www.linkbucks.com/A24HY
+<br>【百度網盤】：http://adf.ly/1nxMSY
+<br>【百度網盤】：http://www.linkbucks.com/A24Ic
+<br>【百度密碼】：3nbn
 
 <br>【節目名稱】：杏林茶.2017-08-24
 <br>【節目頻道】：881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-08-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216945890
+<br>【MediaFire】：http://adf.ly/1nxMYl
+<br>【MediaFire】：http://www.linkbucks.com/A24Gj
+<br>【百度網盤】：http://adf.ly/1nxMQP
+<br>【百度網盤】：http://www.linkbucks.com/A24JM
+<br>【百度密碼】：4t5u
 
 <br>【節目名稱】：串.2017-08-24
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-08-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216945806
+<br>【MediaFire】：http://adf.ly/1nxMZf
+<br>【MediaFire】：http://www.linkbucks.com/A24GY
+<br>【百度網盤】：http://adf.ly/1nxMRo
+<br>【百度網盤】：http://www.linkbucks.com/A24Iv
+<br>【百度密碼】：xv3n
 
 <br>【節目名稱】：雲妮鍾情.2017-08-24
 <br>【節目頻道】：903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-08-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216949022
+<br>【MediaFire】：http://adf.ly/1nxMTd
+<br>【MediaFire】：http://www.linkbucks.com/A24H0
+<br>【百度網盤】：http://adf.ly/1nxMNg
+<br>【百度網盤】：http://www.linkbucks.com/A24J3
+<br>【百度密碼】：61vq
 
 <br>【節目名稱】：歐陽志強.2017-08-24
 <br>【節目頻道】：903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-08-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216948950
+<br>【MediaFire】：http://adf.ly/1nxMUE
+<br>【MediaFire】：http://www.linkbucks.com/A24Hr
+<br>【百度網盤】：http://adf.ly/1nxMPc
+<br>【百度網盤】：http://www.linkbucks.com/A24Jb
+<br>【百度密碼】：1bns
 
 <br>【節目名稱】：書.情.歌.2017-08-24
 <br>【節目頻道】：881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-08-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-216948971
+<br>【MediaFire】：http://adf.ly/1nxMV2
+<br>【MediaFire】：http://www.linkbucks.com/A24Hi
+<br>【百度網盤】：http://adf.ly/1nxMOY
+<br>【百度網盤】：http://www.linkbucks.com/A24Jo
+<br>【百度密碼】：6qv9
 
 <br>【節目名稱】：光明頂.2017-08-24
 <br>【節目頻道】：881
