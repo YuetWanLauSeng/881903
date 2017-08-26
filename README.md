@@ -140,48 +140,48 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217138607
+<br>【MediaFire】：http://adf.ly/1nynKo
+<br>【MediaFire】：http://www.linkbucks.com/CHJsN
+<br>【百度網盤】：http://adf.ly/1nyn5Y
+<br>【百度網盤】：http://www.linkbucks.com/CHKLE
+<br>【百度密碼】：1jgw
 
 <br>【節目名稱】：豁達推介.2017-08-26
 <br>【節目頻道】：903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217138773
+<br>【MediaFire】：http://adf.ly/1nynDp
+<br>【MediaFire】：http://www.linkbucks.com/CHJ7x
+<br>【百度網盤】：http://adf.ly/1nyn3f
+<br>【百度網盤】：http://www.linkbucks.com/CHKOw
+<br>【百度密碼】：ybqh
 
 <br>【節目名稱】：大鐵人.2017-08-26
 <br>【節目頻道】：881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217138869
+<br>【MediaFire】：http://adf.ly/1nynCH
+<br>【MediaFire】：http://www.linkbucks.com/CHKAo
+<br>【百度網盤】：http://adf.ly/1nyn1n
+<br>【百度網盤】：http://www.linkbucks.com/CHDPz
+<br>【百度密碼】：kdqi
 
 <br>【節目名稱】：3號螺絲釘.2017-08-26
 <br>【節目頻道】：903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217138835
+<br>【MediaFire】：http://adf.ly/1nynCt
+<br>【MediaFire】：http://www.linkbucks.com/CHJ9P
+<br>【百度網盤】：http://adf.ly/1nyn2r
+<br>【百度網盤】：http://www.linkbucks.com/CHDPg
+<br>【百度密碼】：qpxa
 
 <br>【節目名稱】：第三齡接觸.2017-08-26
 <br>【節目頻道】：881
