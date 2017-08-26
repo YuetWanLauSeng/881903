@@ -212,24 +212,24 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217155486
+<br>【MediaFire】：http://adf.ly/1nytZt
+<br>【MediaFire】：http://www.linkbucks.com/CHYsJ
+<br>【百度網盤】：http://adf.ly/1nytX9
+<br>【百度網盤】：http://www.linkbucks.com/CHYxx
+<br>【百度密碼】：47v5
 
 <br>【節目名稱】：Chi Chung's Class.2017-08-26
 <br>【節目頻道】：903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217155515
+<br>【MediaFire】：http://adf.ly/1nytYM
+<br>【MediaFire】：http://www.linkbucks.com/CHYvo
+<br>【百度網盤】：http://adf.ly/1nytWK
+<br>【百度網盤】：http://www.linkbucks.com/CHYzD
+<br>【百度密碼】：qawg
 
 <br>【節目名稱】：與時並進.2017-08-26
 <br>【節目頻道】：881
@@ -248,7 +248,7 @@
 <br>【節目頻道】：903
 <br>【節目日期】：2017-08-26
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：陳潔玲
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-08-26
 <br>【城通網盤】：
