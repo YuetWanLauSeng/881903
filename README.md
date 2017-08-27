@@ -251,12 +251,12 @@
 <br>【訪問嘉賓】：陳潔玲
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-08-26
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217180686
-<br>【MediaFire】：http://adf.ly/1nzCra
-<br>【MediaFire】：http://www.linkbucks.com/CH7Lg
-<br>【百度網盤】：http://adf.ly/1nzCit
-<br>【百度網盤】：http://www.linkbucks.com/CH7Nf
-<br>【百度密碼】：mnz6
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
 <br>【節目名稱】：發式生活.2017-08-26
 <br>【節目頻道】：881
@@ -275,7 +275,7 @@
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-08-26
-<br>【城通網盤】：
+<br>【城通網盤】：待定
 <br>【MediaFire】：
 <br>【MediaFire】：
 <br>【百度網盤】：
