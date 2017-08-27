@@ -237,12 +237,12 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217180625
+<br>【MediaFire】：http://adf.ly/1nzCpT
+<br>【MediaFire】：http://www.linkbucks.com/CH7Ly
+<br>【百度網盤】：http://adf.ly/1nzClp
+<br>【百度網盤】：http://www.linkbucks.com/CH7M9
+<br>【百度密碼】：ptgn
 
 <br>【節目名稱】：公子會.2017-08-26
 <br>【節目頻道】：903
@@ -251,24 +251,24 @@
 <br>【訪問嘉賓】：陳潔玲
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217180686
+<br>【MediaFire】：http://adf.ly/1nzCra
+<br>【MediaFire】：http://www.linkbucks.com/CH7Lg
+<br>【百度網盤】：http://adf.ly/1nzCit
+<br>【百度網盤】：http://www.linkbucks.com/CH7Nf
+<br>【百度密碼】：mnz6
 
 <br>【節目名稱】：發式生活.2017-08-26
 <br>【節目頻道】：881
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217180660
+<br>【MediaFire】：http://adf.ly/1nzCr6
+<br>【MediaFire】：http://www.linkbucks.com/CH7Lr
+<br>【百度網盤】：http://adf.ly/1nzCjR
+<br>【百度網盤】：http://www.linkbucks.com/CH7Nc
+<br>【百度密碼】：ezu9
 
 <br>【節目名稱】：皇牌出場.2017-08-26
 <br>【節目頻道】：903
@@ -287,9 +287,9 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-26
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217180596
+<br>【MediaFire】：http://adf.ly/1nzCxX
+<br>【MediaFire】：http://www.linkbucks.com/CH7At
+<br>【百度網盤】：http://adf.ly/1nzCmu
+<br>【百度網盤】：http://www.linkbucks.com/CH7Mt
+<br>【百度密碼】：i957
