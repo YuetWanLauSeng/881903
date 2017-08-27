@@ -248,48 +248,48 @@
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-08-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217226139
+<br>【MediaFire】：http://adf.ly/1nzZJZ
+<br>【MediaFire】：http://www.linkbucks.com/CIgPX
+<br>【百度網盤】：http://adf.ly/1nzZOj
+<br>【百度網盤】：http://www.linkbucks.com/CIgKM
+<br>【百度密碼】：t6x7
 
 <br>【節目名稱】：國民教育.2017-08-27
 <br>【節目頻道】：903
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-08-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217226164
+<br>【MediaFire】：http://adf.ly/1nzZIt
+<br>【MediaFire】：http://www.linkbucks.com/CIgQN
+<br>【百度網盤】：http://adf.ly/1nzZPY
+<br>【百度網盤】：http://www.linkbucks.com/CIgJU
+<br>【百度密碼】：6csa
 
 <br>【節目名稱】：帶一本書去旅行.2017-08-27
 <br>【節目頻道】：881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-08-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217226320
+<br>【MediaFire】：http://adf.ly/1nzZIV
+<br>【MediaFire】：http://www.linkbucks.com/CIgRJ
+<br>【百度網盤】：http://adf.ly/1nzZQ4
+<br>【百度網盤】：http://www.linkbucks.com/CIgIc
+<br>【百度密碼】：21vq
 
 <br>【節目名稱】：葛民教育.2017-08-27
 <br>【節目頻道】：881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-08-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217226415
+<br>【MediaFire】：http://adf.ly/1nzZI8
+<br>【MediaFire】：http://www.linkbucks.com/CIgRK
+<br>【百度網盤】：http://adf.ly/1nzZR1
+<br>【百度網盤】：http://www.linkbucks.com/CIgHJ
+<br>【百度密碼】：d2pz
 
 <br>【節目名稱】：短期租約.2017-08-27
 <br>【節目頻道】：903
