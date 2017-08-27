@@ -224,24 +224,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-08-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217221428
+<br>【MediaFire】：http://adf.ly/1nzUlT
+<br>【MediaFire】：http://www.linkbucks.com/CIVr8
+<br>【百度網盤】：http://adf.ly/1nzUpo
+<br>【百度網盤】：http://www.linkbucks.com/CIVaw
+<br>【百度密碼】：9ubn
 
 <br>【節目名稱】：泡菜粉絲煲.2017-08-27
 <br>【節目頻道】：881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-08-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217221465
+<br>【MediaFire】：http://adf.ly/1nzUmV
+<br>【MediaFire】：http://www.linkbucks.com/CIVju
+<br>【百度網盤】：http://adf.ly/1nzUrb
+<br>【百度網盤】：http://www.linkbucks.com/CIVaS
+<br>【百度密碼】：3bq8
 
 <br>【節目名稱】：細路強.2017-08-27
 <br>【節目頻道】：881
