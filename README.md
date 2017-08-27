@@ -128,8 +128,8 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-08-27
-<br>【城通網盤】：後補
-<br>【MediaFire】：
+<br>【城通網盤】： 
+<br>【MediaFire】：節目源出錯,將盡快補回
 <br>【MediaFire】：
 <br>【百度網盤】：
 <br>【百度網盤】：
@@ -200,24 +200,24 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-08-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217219743
+<br>【MediaFire】：http://adf.ly/1nzTZl
+<br>【MediaFire】：http://www.linkbucks.com/CIPJL
+<br>【百度網盤】：http://adf.ly/1nzThz
+<br>【百度網盤】：http://www.linkbucks.com/CIOy5
+<br>【百度密碼】：8phn
 
 <br>【節目名稱】：讀懂中國.2017-08-27
 <br>【節目頻道】：881
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-08-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217219729
+<br>【MediaFire】：http://adf.ly/1nzTZV
+<br>【MediaFire】：http://www.linkbucks.com/CIPLY
+<br>【百度網盤】：http://adf.ly/1nzThO
+<br>【百度網盤】：http://www.linkbucks.com/CIO0g
+<br>【百度密碼】：bg4b
 
 <br>【節目名稱】：國語類.2017-08-27
 <br>【節目頻道】：903
