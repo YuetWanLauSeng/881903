@@ -188,48 +188,48 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-08-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217315393
+<br>【MediaFire】：http://adf.ly/1o0AnT
+<br>【MediaFire】：http://www.linkbucks.com/CJhPR
+<br>【百度網盤】：http://adf.ly/1o0ArP
+<br>【百度網盤】：http://www.linkbucks.com/CJhMH
+<br>【百度密碼】：yvx5
 
 <br>【節目名稱】：人民大道中.2017-08-28
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-08-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217315123
+<br>【MediaFire】：http://adf.ly/1o0AmI
+<br>【MediaFire】：http://www.linkbucks.com/CJhQ7
+<br>【百度網盤】：http://adf.ly/1o0AuH
+<br>【百度網盤】：http://www.linkbucks.com/CJhIp
+<br>【百度密碼】：62s2
 
 <br>【節目名稱】：生活日常.2017-08-28
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-08-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217314641
+<br>【MediaFire】：http://adf.ly/1o0All
+<br>【MediaFire】：http://www.linkbucks.com/CJhRI
+<br>【百度網盤】：http://adf.ly/1o0Avp
+<br>【百度網盤】：http://www.linkbucks.com/CJhIc
+<br>【百度密碼】：428k
 
 <br>【節目名稱】：杏林茶.2017-08-28
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-08-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217315312
+<br>【MediaFire】：http://adf.ly/1o0Amx
+<br>【MediaFire】：http://www.linkbucks.com/CJhQU
+<br>【百度網盤】：http://adf.ly/1o0As7
+<br>【百度網盤】：http://www.linkbucks.com/CJhLp
+<br>【百度密碼】：rhbj
 
 <br>【節目名稱】：串.2017-08-28
 <br>【節目頻道】：雷霆881
