@@ -296,45 +296,45 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-08-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217335213
+<br>【MediaFire】：http://adf.ly/1o0UEw
+<br>【MediaFire】：http://www.linkbucks.com/CKCLQ
+<br>【百度網盤】：http://adf.ly/1o0U7e
+<br>【百度網盤】：http://www.linkbucks.com/CKCWT
+<br>【百度密碼】：e458
 
 <br>【節目名稱】：月光光呵呵呵.2017-08-28
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-08-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217335120
+<br>【MediaFire】：http://adf.ly/1o0UG5
+<br>【MediaFire】：http://www.linkbucks.com/CKCLL
+<br>【百度網盤】：http://adf.ly/1o0U87
+<br>【百度網盤】：http://www.linkbucks.com/CKCVZ
+<br>【百度密碼】：nr7y
 
 <br>【節目名稱】：廣東爆谷.2017-08-28
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-08-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217335050
+<br>【MediaFire】：http://adf.ly/1o0UFn
+<br>【MediaFire】：http://www.linkbucks.com/CKCLN
+<br>【百度網盤】：http://adf.ly/1o0UD4
+<br>【百度網盤】：http://www.linkbucks.com/CKCM5
+<br>【百度密碼】：v9j3
 
 <br>【節目名稱】：一切從音樂開始.2017-08-28
 <br>【節目頻道】：雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-08-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217335025
+<br>【MediaFire】：http://adf.ly/1o0UEW
+<br>【MediaFire】：http://www.linkbucks.com/CKCLf
+<br>【百度網盤】：http://adf.ly/1o0UDp
+<br>【百度網盤】：http://www.linkbucks.com/CKCMP
+<br>【百度密碼】：aayc
