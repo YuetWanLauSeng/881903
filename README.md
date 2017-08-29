@@ -140,36 +140,36 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-08-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217430107
+<br>【MediaFire】：http://adf.ly/1o0h3j
+<br>【MediaFire】：http://www.linkbucks.com/CKVyy
+<br>【百度網盤】：http://adf.ly/1o0h1K
+<br>【百度網盤】：http://www.linkbucks.com/CKV4J
+<br>【百度密碼】：bgt7
 
 <br>【節目名稱】：大玩派.2017-08-29
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217429912
+<br>【MediaFire】：http://adf.ly/1o0h2m
+<br>【MediaFire】：http://www.linkbucks.com/CKVzN
+<br>【百度網盤】：http://adf.ly/1o0h2T
+<br>【百度網盤】：http://www.linkbucks.com/CKV0t
+<br>【百度密碼】：bd62
 
 <br>【節目名稱】：口水多過浪花.2017-08-29
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-08-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217429964
+<br>【MediaFire】：http://adf.ly/1o0h34
+<br>【MediaFire】：http://www.linkbucks.com/CKVzJ
+<br>【百度網盤】：http://adf.ly/1o0h1s
+<br>【百度網盤】：http://www.linkbucks.com/CKV2N
+<br>【百度密碼】：hv26
 
 <br>【節目名稱】：毒檸王國.2017-08-29
 <br>【節目頻道】：叱咤903
