@@ -152,24 +152,24 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-08-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217543276
+<br>【MediaFire】：http://adf.ly/1o1PsS
+<br>【MediaFire】：http://www.linkbucks.com/CLdXw
+<br>【百度網盤】：http://adf.ly/1o1PlE
+<br>【百度網盤】：http://www.linkbucks.com/CLdfn
+<br>【百度密碼】：z2m4
 
 <br>【節目名稱】：口水多過浪花.2017-08-30
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-08-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-217543985
+<br>【MediaFire】：http://adf.ly/1o1Pqb
+<br>【MediaFire】：http://www.linkbucks.com/CLdaw
+<br>【百度網盤】：http://adf.ly/1o1Plo
+<br>【百度網盤】：http://www.linkbucks.com/CLdeC
+<br>【百度密碼】：hubc
 
 <br>【節目名稱】：毒檸王國.2017-08-30
 <br>【節目頻道】：叱咤903
