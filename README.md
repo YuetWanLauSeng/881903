@@ -127,13 +127,13 @@
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：DJ
 <br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：叱咤903 Band Time.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：903 Band Time.2017-09-02
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218353505
+<br>【MediaFire】：http://adf.ly/1o3L6R
+<br>【MediaFire】：http://www.linkbucks.com/CPyBR
+<br>【百度網盤】：http://adf.ly/1o3L9j
+<br>【百度網盤】：http://www.linkbucks.com/CPx2f
+<br>【百度密碼】：reu8
 
 <br>【節目名稱】：1圈圈 (周末版).2017-09-02
 <br>【節目頻道】：雷霆881
