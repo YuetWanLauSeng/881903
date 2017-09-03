@@ -140,12 +140,12 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-09-02
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218378960
-<br>【MediaFire】：http://adf.ly/1o3XAH
-<br>【MediaFire】：http://www.linkbucks.com/CQQc5
-<br>【百度網盤】：http://adf.ly/1o3X8e
-<br>【百度網盤】：http://www.linkbucks.com/CQQht
-<br>【百度密碼】：u5ku
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218492292
+<br>【MediaFire】：http://adf.ly/1o3vSM
+<br>【MediaFire】：http://www.linkbucks.com/CRJpP
+<br>【百度網盤】：http://adf.ly/1o3vCs
+<br>【百度網盤】：http://www.linkbucks.com/CRKhZ
+<br>【百度密碼】：nges
 
 <br>【節目名稱】：豁達推介.2017-09-02
 <br>【節目頻道】：叱咤903
@@ -264,8 +264,8 @@
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-09-02
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218479420
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://adf.ly/1o3tIg
+<br>【MediaFire】：http://www.linkbucks.com/CRGop
 <br>【百度網盤】：http://adf.ly/1o3slc
 <br>【百度網盤】：http://www.linkbucks.com/CQ95O
 <br>【百度密碼】：fmwc
@@ -287,9 +287,9 @@
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218489235
+<br>【MediaFire】：http://adf.ly/1o3vE5
+<br>【MediaFire】：http://www.linkbucks.com/CRKfI
+<br>【百度網盤】：http://adf.ly/1o3vDP
+<br>【百度網盤】：http://www.linkbucks.com/CRKf0
+<br>【百度密碼】：d9h5
