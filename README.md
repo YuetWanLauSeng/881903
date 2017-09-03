@@ -188,48 +188,48 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218386700
+<br>【MediaFire】：http://adf.ly/1o3sgH
+<br>【MediaFire】：http://www.linkbucks.com/CRABJ
+<br>【百度網盤】：http://adf.ly/1o3sig
+<br>【百度網盤】：http://www.linkbucks.com/CQ99l
+<br>【百度密碼】：qk84
 
 <br>【節目名稱】：西瓜大發.2017-09-02
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218387046
+<br>【MediaFire】：http://adf.ly/1o3sga
+<br>【MediaFire】：http://www.linkbucks.com/CRAAf
+<br>【百度網盤】：http://adf.ly/1o3sk6
+<br>【百度網盤】：http://www.linkbucks.com/CQ99B
+<br>【百度密碼】：cz5q
 
 <br>【節目名稱】：雷霆音樂圈.2017-09-02
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
-<br>【檔案名稱】：雷霆881 Music Station.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：881 Music Station.2017-09-02
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218386022
+<br>【MediaFire】：http://adf.ly/1o3shU
+<br>【MediaFire】：http://www.linkbucks.com/CRAAZ
+<br>【百度網盤】：http://adf.ly/1o3skP
+<br>【百度網盤】：http://www.linkbucks.com/CQ97z
+<br>【百度密碼】：twz3
 
 <br>【節目名稱】：Chi Chung's Class.2017-09-02
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218386155
+<br>【MediaFire】：http://adf.ly/1o3shn
+<br>【MediaFire】：http://www.linkbucks.com/CQ99o
+<br>【百度網盤】：http://adf.ly/1o3skq
+<br>【百度網盤】：http://www.linkbucks.com/CQ97Y
+<br>【百度密碼】：rkfx
 
 <br>【節目名稱】：與時並進.2017-09-02
 <br>【節目頻道】：雷霆881
@@ -237,50 +237,50 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218478987
+<br>【MediaFire】：http://adf.ly/1o3smD
+<br>【MediaFire】：http://www.linkbucks.com/CQ91K
+<br>【百度網盤】：http://adf.ly/1o3slA
+<br>【百度網盤】：http://www.linkbucks.com/CQ96W
+<br>【百度密碼】：fu85
 
 <br>【節目名稱】：公子會.2017-09-02
 <br>【節目頻道】：叱咤903
 <br>【節目日期】：2017-09-02
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：梁諾妍
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218479658
+<br>【MediaFire】：http://adf.ly/1o3sos
+<br>【MediaFire】：http://www.linkbucks.com/CQ9zY
+<br>【百度網盤】：http://adf.ly/1o3slQ
+<br>【百度網盤】：http://www.linkbucks.com/CQ954
+<br>【百度密碼】：wmep
 
 <br>【節目名稱】：發式生活.2017-09-02
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-09-02
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218479420
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://adf.ly/1o3slc
+<br>【百度網盤】：http://www.linkbucks.com/CQ95O
+<br>【百度密碼】：fmwc
 
 <br>【節目名稱】：皇牌出場.2017-09-02
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-09-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218479482
+<br>【MediaFire】：http://adf.ly/1o3smR
+<br>【MediaFire】：http://www.linkbucks.com/CQ90R
+<br>【百度網盤】：http://adf.ly/1o3slo
+<br>【百度網盤】：http://www.linkbucks.com/CQ93h
+<br>【百度密碼】：6dzc
 
 <br>【節目名稱】：一切從音樂開始.2017-09-02
 <br>【節目頻道】：雷霆881 & 叱咤903
