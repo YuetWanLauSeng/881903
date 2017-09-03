@@ -140,12 +140,12 @@
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-09-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218522879
+<br>【MediaFire】：http://adf.ly/1o47Ao
+<br>【MediaFire】：http://www.linkbucks.com/CRyLB
+<br>【百度網盤】：http://adf.ly/1o46Ak
+<br>【百度網盤】：http://www.linkbucks.com/CR5jZ
+<br>【百度密碼】：e7dh
 
 <br>【節目名稱】：國語類.2017-09-03
 <br>【節目頻道】：叱咤903
