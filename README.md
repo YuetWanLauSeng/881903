@@ -152,72 +152,72 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-09-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218529847
+<br>【MediaFire】：http://adf.ly/1o4BW0
+<br>【MediaFire】：http://www.linkbucks.com/CSFto
+<br>【百度網盤】：http://adf.ly/1o4Bbm
+<br>【百度網盤】：http://www.linkbucks.com/CSK3y
+<br>【百度密碼】：kizu
 
 <br>【節目名稱】：泡菜粉絲煲.2017-09-03
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-09-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218529854
+<br>【MediaFire】：http://adf.ly/1o4BXi
+<br>【MediaFire】：http://www.linkbucks.com/CSFpf
+<br>【百度網盤】：http://adf.ly/1o4BbK
+<br>【百度網盤】：http://www.linkbucks.com/CSK4P
+<br>【百度密碼】：msup
 
 <br>【節目名稱】：細路強.2017-09-03
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-09-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218529866
+<br>【MediaFire】：http://adf.ly/1o4BXM
+<br>【MediaFire】：http://www.linkbucks.com/CSFqn
+<br>【百度網盤】：http://adf.ly/1o4Ba6
+<br>【百度網盤】：http://www.linkbucks.com/CSK5H
+<br>【百度密碼】：pdca
 
 <br>【節目名稱】：國民教育.2017-09-03
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-09-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218530381
+<br>【MediaFire】：http://adf.ly/1o4BVT
+<br>【MediaFire】：http://www.linkbucks.com/CSFvu
+<br>【百度網盤】：http://adf.ly/1o4BYu
+<br>【百度網盤】：http://www.linkbucks.com/CSK7y
+<br>【百度密碼】：pdf7
 
 <br>【節目名稱】：帶一本書去旅行.2017-09-03
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-09-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218530326
+<br>【MediaFire】：http://adf.ly/1o4BWQ
+<br>【MediaFire】：http://www.linkbucks.com/CSFtb
+<br>【百度網盤】：http://adf.ly/1o4BZP
+<br>【百度網盤】：http://www.linkbucks.com/CSK7G
+<br>【百度密碼】：k766
 
 <br>【節目名稱】：葛民教育.2017-09-03
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-09-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218530507
+<br>【MediaFire】：http://adf.ly/1o4BWk
+<br>【MediaFire】：http://www.linkbucks.com/CSFsg
+<br>【百度網盤】：http://adf.ly/1o4BYI
+<br>【百度網盤】：http://www.linkbucks.com/CSK8Y
+<br>【百度密碼】：6q2n
 
 <br>【節目名稱】：短期租約.2017-09-03
 <br>【節目頻道】：叱咤903
