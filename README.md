@@ -8,7 +8,7 @@
 <br>【節目主持】：Wasabi | 嘉賓主持
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540691
 <br>【MediaFire】：http://adf.ly/1o4TZf
 <br>【MediaFire】：http://www.linkbucks.com/CSq6i
 <br>【百度網盤】：http://adf.ly/1o4TTo
@@ -20,7 +20,7 @@
 <br>【節目主持】：陳志雲 | 陳聰 | 郭志仁 | 楊樂笙 | 麥詠宜 | 張子君 | 符靜琳 | 李兆綸
 <br>【節目時間】：06:30 - 10:00
 <br>【檔案名稱】：On a Clear Day（881）.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540634
 <br>【MediaFire】：http://adf.ly/1o4TYs
 <br>【MediaFire】：http://www.linkbucks.com/CSq88
 <br>【百度網盤】：http://adf.ly/1o4TUx
@@ -32,7 +32,7 @@
 <br>【節目主持】：西瓜
 <br>【節目時間】：07:00 - 08:00
 <br>【檔案名稱】：Hey Learners.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540104
 <br>【MediaFire】：http://adf.ly/1o4TZI
 <br>【MediaFire】：http://www.linkbucks.com/CSq8U
 <br>【百度網盤】：http://adf.ly/1o4TW7
@@ -44,7 +44,7 @@
 <br>【節目主持】：林海峰 | 阮子健 | 潘小濤
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：On a Clear Day（903）.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540654
 <br>【MediaFire】：http://adf.ly/1o4Taw
 <br>【MediaFire】：http://www.linkbucks.com/CSq6D
 <br>【百度網盤】：http://adf.ly/1o4TWe
@@ -56,7 +56,7 @@
 <br>【節目主持】：陳聰 | 馮志豐 | 樂樂 | 何飛鳳
 <br>【節目時間】：10:00 - 10:30
 <br>【檔案名稱】：Management Master Class.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540443
 <br>【MediaFire】：http://adf.ly/1o4Tb8
 <br>【MediaFire】：http://www.linkbucks.com/CSq5p
 <br>【百度網盤】：http://adf.ly/1o4TWy
@@ -68,7 +68,7 @@
 <br>【節目主持】：森美 | 小儀
 <br>【節目時間】：10:00 - 12:00
 <br>【檔案名稱】：Good Morning King.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539856
 <br>【MediaFire】：http://adf.ly/1o4TbS
 <br>【MediaFire】：http://www.linkbucks.com/CSq3j
 <br>【百度網盤】：http://adf.ly/1o4TXI
@@ -80,7 +80,7 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539621
 <br>【MediaFire】：http://adf.ly/1o4Tbb
 <br>【MediaFire】：http://www.linkbucks.com/CSq27
 <br>【百度網盤】：http://adf.ly/1o4TXc
@@ -92,7 +92,7 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539467
 <br>【MediaFire】：http://adf.ly/1o4VTy
 <br>【MediaFire】：http://www.linkbucks.com/CS2WT
 <br>【百度網盤】：http://adf.ly/1o4VWc
@@ -104,7 +104,7 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539486
 <br>【MediaFire】：http://adf.ly/1o4XgQ
 <br>【MediaFire】：http://www.linkbucks.com/CS3mT
 <br>【百度網盤】：http://adf.ly/1o4XaN
@@ -116,7 +116,7 @@
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540242
 <br>【MediaFire】：http://adf.ly/1o4XdI
 <br>【MediaFire】：http://www.linkbucks.com/CS30e
 <br>【百度網盤】：http://adf.ly/1o4Xbf
@@ -128,7 +128,7 @@
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539654
 <br>【MediaFire】：http://adf.ly/1o4Xd3
 <br>【MediaFire】：http://www.linkbucks.com/CS32n
 <br>【百度網盤】：http://adf.ly/1o4Xc5
@@ -140,7 +140,7 @@
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540856
 <br>【MediaFire】：http://adf.ly/1o4XdU
 <br>【MediaFire】：http://www.linkbucks.com/CS3yu
 <br>【百度網盤】：http://adf.ly/1o4XcP
@@ -152,7 +152,7 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540804
 <br>【MediaFire】：http://adf.ly/1o4ZGL
 <br>【MediaFire】：http://www.linkbucks.com/CTD6G
 <br>【百度網盤】：http://adf.ly/1o4ZFP
@@ -164,7 +164,7 @@
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540830
 <br>【MediaFire】：http://adf.ly/1o4ZGY
 <br>【MediaFire】：http://www.linkbucks.com/CTD4b
 <br>【百度網盤】：http://adf.ly/1o4ZFr
@@ -176,7 +176,7 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218539782
 <br>【MediaFire】：http://adf.ly/1o4bad
 <br>【MediaFire】：http://www.linkbucks.com/CTMLy
 <br>【百度網盤】：http://adf.ly/1o4baO
@@ -188,7 +188,7 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540862
 <br>【MediaFire】：http://adf.ly/1o4gK6
 <br>【MediaFire】：http://www.linkbucks.com/CTbcp
 <br>【百度網盤】：http://adf.ly/1o4gHM
@@ -200,7 +200,7 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540655
 <br>【MediaFire】：http://adf.ly/1o4gJd
 <br>【MediaFire】：http://www.linkbucks.com/CTbfA
 <br>【百度網盤】：http://adf.ly/1o4gIH
@@ -212,7 +212,7 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540541
 <br>【MediaFire】：http://adf.ly/1o4gJJ
 <br>【MediaFire】：http://www.linkbucks.com/CTbhD
 <br>【百度網盤】：http://adf.ly/1o4gIW
@@ -224,7 +224,7 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540766
 <br>【MediaFire】：http://adf.ly/1o4gJr
 <br>【MediaFire】：http://www.linkbucks.com/CTbdr
 <br>【百度網盤】：http://adf.ly/1o4gHn
@@ -236,7 +236,7 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-09-04
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218540722
 <br>【MediaFire】：http://adf.ly/1o4gKw
 <br>【MediaFire】：http://www.linkbucks.com/CTbX8
 <br>【百度網盤】：http://adf.ly/1o4gDk
@@ -248,48 +248,48 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-09-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218542332
+<br>【MediaFire】：http://adf.ly/1o4irq
+<br>【MediaFire】：http://www.linkbucks.com/CTlEb
+<br>【百度網盤】：http://adf.ly/1o4inJ
+<br>【百度網盤】：http://www.linkbucks.com/CTlmg
+<br>【百度密碼】：agcm
 
 <br>【節目名稱】：歐陽志強.2017-09-04
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-09-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218542273
+<br>【MediaFire】：http://adf.ly/1o4irF
+<br>【MediaFire】：http://www.linkbucks.com/CTlI3
+<br>【百度網盤】：http://adf.ly/1o4imp
+<br>【百度網盤】：http://www.linkbucks.com/CTlrS
+<br>【百度密碼】：xcqm
 
 <br>【節目名稱】：書.情.歌.2017-09-04
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-09-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218542286
+<br>【MediaFire】：http://adf.ly/1o4iqy
+<br>【MediaFire】：http://www.linkbucks.com/CTlLx
+<br>【百度網盤】：http://adf.ly/1o4im2
+<br>【百度網盤】：http://www.linkbucks.com/CTltR
+<br>【百度密碼】：6zau
 
 <br>【節目名稱】：光明頂.2017-09-04
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-09-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218542660
+<br>【MediaFire】：http://adf.ly/1o4iqg
+<br>【MediaFire】：http://www.linkbucks.com/CTlOy
+<br>【百度網盤】：http://adf.ly/1o4ilP
+<br>【百度網盤】：http://www.linkbucks.com/CTlwD
+<br>【百度密碼】：rz3m
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-09-04
 <br>【節目頻道】：叱咤903
