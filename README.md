@@ -177,11 +177,11 @@
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4bad
+<br>【MediaFire】：http://www.linkbucks.com/CTMLy
+<br>【百度網盤】：http://adf.ly/1o4baO
+<br>【百度網盤】：http://www.linkbucks.com/CTMOI
+<br>【百度密碼】：6dyc
 
 <br>【節目名稱】：集雜志.2017-09-04
 <br>【節目頻道】：叱咤903
