@@ -105,11 +105,11 @@
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4XgQ
+<br>【MediaFire】：http://www.linkbucks.com/CS3mT
+<br>【百度網盤】：http://adf.ly/1o4XaN
+<br>【百度網盤】：http://www.linkbucks.com/CS4En
+<br>【百度密碼】：ye39
 
 <br>【節目名稱】：一點叮一叮.2017-09-04
 <br>【節目頻道】：雷霆881
@@ -117,11 +117,11 @@
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4XdI
+<br>【MediaFire】：http://www.linkbucks.com/CS30e
+<br>【百度網盤】：http://adf.ly/1o4Xbf
+<br>【百度網盤】：http://www.linkbucks.com/CS4Bg
+<br>【百度密碼】：3d27
 
 <br>【節目名稱】：人生交叉盤.2017-09-04
 <br>【節目頻道】：雷霆881
@@ -129,11 +129,11 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4Xd3
+<br>【MediaFire】：http://www.linkbucks.com/CS32n
+<br>【百度網盤】：http://adf.ly/1o4Xc5
+<br>【百度網盤】：http://www.linkbucks.com/CS36g
+<br>【百度密碼】：nf8g
 
 <br>【節目名稱】：你好嘢.2017-09-04
 <br>【節目頻道】：叱咤903
@@ -141,11 +141,11 @@
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4XdU
+<br>【MediaFire】：http://www.linkbucks.com/CS3yu
+<br>【百度網盤】：http://adf.ly/1o4XcP
+<br>【百度網盤】：http://www.linkbucks.com/CS33t
+<br>【百度密碼】：y7c3
 
 <br>【節目名稱】：大玩派.2017-09-04
 <br>【節目頻道】：雷霆881
