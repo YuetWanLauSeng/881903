@@ -189,11 +189,11 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4gK6
+<br>【MediaFire】：http://www.linkbucks.com/CTbcp
+<br>【百度網盤】：http://adf.ly/1o4gHM
+<br>【百度網盤】：http://www.linkbucks.com/CTbqA
+<br>【百度密碼】：yhmk
 
 <br>【節目名稱】：人民大道中.2017-09-04
 <br>【節目頻道】：雷霆881
@@ -201,11 +201,11 @@
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4gJd
+<br>【MediaFire】：http://www.linkbucks.com/CTbfA
+<br>【百度網盤】：http://adf.ly/1o4gIH
+<br>【百度網盤】：http://www.linkbucks.com/CTbkx
+<br>【百度密碼】：rm4h
 
 <br>【節目名稱】：生活日常.2017-09-04
 <br>【節目頻道】：叱咤903
@@ -213,11 +213,11 @@
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4gJJ
+<br>【MediaFire】：http://www.linkbucks.com/CTbhD
+<br>【百度網盤】：http://adf.ly/1o4gIW
+<br>【百度網盤】：http://www.linkbucks.com/CTbih
+<br>【百度密碼】：siux
 
 <br>【節目名稱】：杏林茶.2017-09-04
 <br>【節目頻道】：雷霆881
@@ -225,11 +225,11 @@
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4gJr
+<br>【MediaFire】：http://www.linkbucks.com/CTbdr
+<br>【百度網盤】：http://adf.ly/1o4gHn
+<br>【百度網盤】：http://www.linkbucks.com/CTblu
+<br>【百度密碼】：3bps
 
 <br>【節目名稱】：串.2017-09-04
 <br>【節目頻道】：雷霆881
@@ -237,11 +237,11 @@
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4gKw
+<br>【MediaFire】：http://www.linkbucks.com/CTbX8
+<br>【百度網盤】：http://adf.ly/1o4gDk
+<br>【百度網盤】：http://www.linkbucks.com/CTb0H
+<br>【百度密碼】：d2qw
 
 <br>【節目名稱】：雲妮鍾情.2017-09-04
 <br>【節目頻道】：叱咤903
