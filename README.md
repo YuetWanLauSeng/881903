@@ -225,11 +225,11 @@
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-09-03
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4O5j
+<br>【MediaFire】：http://www.linkbucks.com/CSir0
+<br>【百度網盤】：http://adf.ly/1o4O8J
+<br>【百度網盤】：http://www.linkbucks.com/CSifM
+<br>【百度密碼】：dptr
 
 <br>【節目名稱】：心靈料理.2017-09-03
 <br>【節目頻道】：雷霆881
@@ -237,11 +237,11 @@
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-09-03
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4O7q
+<br>【MediaFire】：http://www.linkbucks.com/CSihF
+<br>【百度網盤】：http://adf.ly/1o4O92
+<br>【百度網盤】：http://www.linkbucks.com/CSiZ8
+<br>【百度密碼】：8qeh
 
 <br>【節目名稱】：寫生活.2017-09-03
 <br>【節目頻道】：雷霆881
@@ -249,11 +249,11 @@
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-09-03
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4O7E
+<br>【MediaFire】：http://www.linkbucks.com/CSion
+<br>【百度網盤】：http://adf.ly/1o4O9y
+<br>【百度網盤】：http://www.linkbucks.com/CSiWR
+<br>【百度密碼】：ft3j
 
 <br>【節目名稱】：一切從音樂開始.2017-09-03
 <br>【節目頻道】：雷霆881 & 叱咤903
@@ -261,8 +261,8 @@
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-09-03
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4O4i
+<br>【MediaFire】：http://www.linkbucks.com/CSivT
+<br>【百度網盤】：http://adf.ly/1o4O9X
+<br>【百度網盤】：http://www.linkbucks.com/CSiX0
+<br>【百度密碼】：ik3a
