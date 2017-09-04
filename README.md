@@ -153,11 +153,11 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4ZGL
+<br>【MediaFire】：http://www.linkbucks.com/CTD6G
+<br>【百度網盤】：http://adf.ly/1o4ZFP
+<br>【百度網盤】：http://www.linkbucks.com/CTEBO
+<br>【百度密碼】：7qey
 
 <br>【節目名稱】：口水多過浪花.2017-09-04
 <br>【節目頻道】：叱咤903
@@ -165,11 +165,11 @@
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-09-04
 <br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【MediaFire】：http://adf.ly/1o4ZGY
+<br>【MediaFire】：http://www.linkbucks.com/CTD4b
+<br>【百度網盤】：http://adf.ly/1o4ZFr
+<br>【百度網盤】：http://www.linkbucks.com/CTD8A
+<br>【百度密碼】：v398
 
 <br>【節目名稱】：毒檸王國.2017-09-04
 <br>【節目頻道】：叱咤903
