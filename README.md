@@ -207,12 +207,12 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-218731387
+<br>【MediaFire】：http://adf.ly/1o5io2
+<br>【MediaFire】：http://www.linkbucks.com/CWEud
+<br>【百度網盤】：http://adf.ly/1o5ioR
+<br>【百度網盤】：http://www.linkbucks.com/CWEtC
+<br>【百度密碼】：puir
 
 <br>【節目名稱】：杏林茶.2017-09-06
 <br>【節目頻道】：雷霆881
