@@ -211,25 +211,25 @@
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
-<br>【檔案名稱】：雷霆881 Music Station.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：881 Music Station.2017-09-09
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219121653
+<br>【MediaFire】：http://adf.ly/1o7gKf
+<br>【MediaFire】：http://www.linkbucks.com/CYEgj
+<br>【百度網盤】：http://adf.ly/1o7gIp
+<br>【百度網盤】：http://www.linkbucks.com/CYEhI
+<br>【百度密碼】：3srt
 
 <br>【節目名稱】：Chi Chung's Class.2017-09-09
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219121734
+<br>【MediaFire】：http://adf.ly/1o7gE0
+<br>【MediaFire】：http://www.linkbucks.com/CYEiS
+<br>【百度網盤】：http://adf.ly/1o7gHw
+<br>【百度網盤】：http://www.linkbucks.com/CYEhd
+<br>【百度密碼】：redu
 
 <br>【節目名稱】：與時並進.2017-09-09
 <br>【節目頻道】：雷霆881
@@ -248,7 +248,7 @@
 <br>【節目頻道】：叱咤903
 <br>【節目日期】：2017-09-09
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：雨僑
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-09-09
 <br>【城通網盤】：
