@@ -127,61 +127,61 @@
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：DJ
 <br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：叱咤903 Band Time.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：Band Time.2017-09-09
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219088239
+<br>【MediaFire】：http://adf.ly/1o7bj1
+<br>【MediaFire】：http://www.linkbucks.com/CYCQa
+<br>【百度網盤】：http://adf.ly/1o7bpQ
+<br>【百度網盤】：http://www.linkbucks.com/CYCLt
+<br>【百度密碼】：beg4
 
 <br>【節目名稱】：1圈圈 (周末版).2017-09-09
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219088571
+<br>【MediaFire】：http://adf.ly/1o7bfs
+<br>【MediaFire】：http://www.linkbucks.com/CX6g8
+<br>【百度網盤】：http://adf.ly/1o7boL
+<br>【百度網盤】：http://www.linkbucks.com/CYCMa
+<br>【百度密碼】：ys9t
 
 <br>【節目名稱】：豁達推介.2017-09-09
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219088728
+<br>【MediaFire】：http://adf.ly/1o7bgV
+<br>【MediaFire】：http://www.linkbucks.com/CYbfB
+<br>【百度網盤】：http://adf.ly/1o7bmf
+<br>【百度網盤】：http://www.linkbucks.com/CYCMc
+<br>【百度密碼】：s51f
 
 <br>【節目名稱】：大鐵人.2017-09-09
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219088839
+<br>【MediaFire】：http://adf.ly/1o7bkJ
+<br>【MediaFire】：http://www.linkbucks.com/CYCO8
+<br>【百度網盤】：http://adf.ly/1o7bl4
+<br>【百度網盤】：http://www.linkbucks.com/CYCNM
+<br>【百度密碼】：dbmf
 
 <br>【節目名稱】：3號螺絲釘.2017-09-09
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219088803
+<br>【MediaFire】：http://adf.ly/1o7bh7
+<br>【MediaFire】：http://www.linkbucks.com/CYEIr
+<br>【百度網盤】：http://adf.ly/1o7blr
+<br>【百度網盤】：http://www.linkbucks.com/CYCMw
+<br>【百度密碼】：jes2
 
 <br>【節目名稱】：第三齡接觸.2017-09-09
 <br>【節目頻道】：雷霆881
