@@ -91,37 +91,37 @@
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
-<br>【檔案名稱】：叱咤903 Top 20.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：903 Top 20.2017-09-09
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219060324
+<br>【MediaFire】：http://adf.ly/1o7SEk
+<br>【MediaFire】：http://www.linkbucks.com/CXzhL
+<br>【百度網盤】：http://adf.ly/1o7SLF
+<br>【百度網盤】：http://www.linkbucks.com/CXzcQ
+<br>【百度密碼】：398r
 
 <br>【節目名稱】：電影圈.2017-09-09
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：12:30 - 14:00
 <br>【檔案名稱】：Movies.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219060654
+<br>【MediaFire】：http://adf.ly/1o7SFI
+<br>【MediaFire】：http://www.linkbucks.com/CXzgH
+<br>【百度網盤】：http://adf.ly/1o7SGm
+<br>【百度網盤】：http://www.linkbucks.com/CXzef
+<br>【百度密碼】：1e5a
 
 <br>【節目名稱】：咪芝蓮.2017-09-09
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-09-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219060988
+<br>【MediaFire】：http://adf.ly/1o7SFh
+<br>【MediaFire】：http://www.linkbucks.com/CXzgD
+<br>【百度網盤】：http://adf.ly/1o7SG9
+<br>【百度網盤】：http://www.linkbucks.com/CXzes
+<br>【百度密碼】：fpnk
 
 <br>【節目名稱】：咆哮山莊.2017-09-09
 <br>【節目頻道】：叱咤903
