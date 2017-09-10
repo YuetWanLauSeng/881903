@@ -32,12 +32,12 @@
 <br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
 <br>【節目時間】：08:00 - 10:00
 <br>【檔案名稱】：Beautiful Sunday.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219168289
+<br>【MediaFire】：http://adf.ly/1o83nO
+<br>【MediaFire】：http://www.linkbucks.com/CYTvC
+<br>【百度網盤】：http://adf.ly/1o83n9
+<br>【百度網盤】：http://www.linkbucks.com/CYTvd
+<br>【百度密碼】：jr1a
 
 <br>【節目名稱】：Urban Touch.2017-09-10
 <br>【節目頻道】：叱咤903
@@ -92,12 +92,12 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219168380
+<br>【MediaFire】：http://adf.ly/1o83rF
+<br>【MediaFire】：http://www.linkbucks.com/CYTke
+<br>【百度網盤】：http://adf.ly/1o83mX
+<br>【百度網盤】：http://www.linkbucks.com/CYTwF
+<br>【百度密碼】：tcmm
 
 <br>【節目名稱】：兒童適宜.2017-09-10
 <br>【節目頻道】：叱咤903
