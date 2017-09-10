@@ -116,12 +116,12 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219184737
+<br>【MediaFire】：http://adf.ly/1o8AVL
+<br>【MediaFire】：http://www.linkbucks.com/CYayB
+<br>【百度網盤】：http://adf.ly/1o8Aa2
+<br>【百度網盤】：http://www.linkbucks.com/CYawa
+<br>【百度密碼】：si2q
 
 <br>【節目名稱】：串.2017-09-10
 <br>【節目頻道】：雷霆881
