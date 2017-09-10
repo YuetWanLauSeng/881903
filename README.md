@@ -128,96 +128,96 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219206728
+<br>【MediaFire】：http://adf.ly/1o8KOg
+<br>【MediaFire】：http://www.linkbucks.com/CYjUX
+<br>【百度網盤】：http://adf.ly/1o8KDm
+<br>【百度網盤】：http://www.linkbucks.com/CYjgm
+<br>【百度密碼】：mrip
 
 <br>【節目名稱】：讀懂中國.2017-09-10
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219206715
+<br>【MediaFire】：http://adf.ly/1o8KPt
+<br>【MediaFire】：http://www.linkbucks.com/CYjTo
+<br>【百度網盤】：http://adf.ly/1o8KEY
+<br>【百度網盤】：http://www.linkbucks.com/CYjdg
+<br>【百度密碼】：w4dh
 
 <br>【節目名稱】：國語類.2017-09-10
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219206628
+<br>【MediaFire】：http://adf.ly/1o8KW6
+<br>【MediaFire】：http://www.linkbucks.com/CYi1M
+<br>【百度網盤】：http://adf.ly/1o8KLO
+<br>【百度網盤】：http://www.linkbucks.com/CYjWQ
+<br>【百度密碼】：2xjq
 
 <br>【節目名稱】：泡菜粉絲煲.2017-09-10
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219206647
+<br>【MediaFire】：http://adf.ly/1o8KP7
+<br>【MediaFire】：http://www.linkbucks.com/CYjTw
+<br>【百度網盤】：http://adf.ly/1o8KKw
+<br>【百度網盤】：http://www.linkbucks.com/CYjXQ
+<br>【百度密碼】：pwy6
 
 <br>【節目名稱】：細路強.2017-09-10
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219206672
+<br>【MediaFire】：http://adf.ly/1o8KQB
+<br>【MediaFire】：http://www.linkbucks.com/CYjTJ
+<br>【百度網盤】：http://adf.ly/1o8KJt
+<br>【百度網盤】：http://www.linkbucks.com/CYjYu
+<br>【百度密碼】：82d8
 
 <br>【節目名稱】：國民教育.2017-09-10
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219206795
+<br>【MediaFire】：http://adf.ly/1o8KSU
+<br>【MediaFire】：http://www.linkbucks.com/CYjQw
+<br>【百度網盤】：http://adf.ly/1o8KDM
+<br>【百度網盤】：http://www.linkbucks.com/CYjhI
+<br>【百度密碼】：b8kk
 
 <br>【節目名稱】：帶一本書去旅行.2017-09-10
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219206699
+<br>【MediaFire】：http://adf.ly/1o8KQf
+<br>【MediaFire】：http://www.linkbucks.com/CYjS9
+<br>【百度網盤】：http://adf.ly/1o8KJ4
+<br>【百度網盤】：http://www.linkbucks.com/CYjZh
+<br>【百度密碼】：xmyi
 
 <br>【節目名稱】：葛民教育.2017-09-10
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219206653
+<br>【MediaFire】：http://adf.ly/1o8KNE
+<br>【MediaFire】：http://www.linkbucks.com/CYjUq
+<br>【百度網盤】：http://adf.ly/1o8KKQ
+<br>【百度網盤】：http://www.linkbucks.com/CYjXt
+<br>【百度密碼】：b7sw
 
 <br>【節目名稱】：短期租約.2017-09-10
 <br>【節目頻道】：叱咤903
