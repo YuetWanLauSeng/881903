@@ -224,45 +224,45 @@
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219227464
+<br>【MediaFire】：http://adf.ly/1o8cD1
+<br>【MediaFire】：http://www.linkbucks.com/CY72i
+<br>【百度網盤】：http://adf.ly/1o8c50
+<br>【百度網盤】：http://www.linkbucks.com/CY8B1
+<br>【百度密碼】：r27v
 
 <br>【節目名稱】：心靈料理.2017-09-10
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219227217
+<br>【MediaFire】：http://adf.ly/1o8cEz
+<br>【MediaFire】：http://www.linkbucks.com/CY71g
+<br>【百度網盤】：http://adf.ly/1o8c9D
+<br>【百度網盤】：http://www.linkbucks.com/CY77a
+<br>【百度密碼】：yrr6
 
 <br>【節目名稱】：寫生活.2017-09-10
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：主持人
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219227163
+<br>【MediaFire】：http://adf.ly/1o8cDy
+<br>【MediaFire】：http://www.linkbucks.com/CY710
+<br>【百度網盤】：http://adf.ly/1o8cCW
+<br>【百度網盤】：http://www.linkbucks.com/CY73k
+<br>【百度密碼】：tk83
 
 <br>【節目名稱】：一切從音樂開始.2017-09-10
 <br>【節目頻道】：雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-09-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219227163
+<br>【MediaFire】：http://adf.ly/1o8cCo
+<br>【MediaFire】：http://www.linkbucks.com/CY73a
+<br>【百度網盤】：http://adf.ly/1o8c9g
+<br>【百度網盤】：http://www.linkbucks.com/CY76P
+<br>【百度密碼】：dgu3
