@@ -1,8 +1,6 @@
 ### 歡迎瀏覽本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
-<br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
-
 <br>【節目名稱】：有誰共鳴.2017-09-13
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Wasabi | 嘉賓主持
@@ -176,24 +174,24 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-09-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219548904
+<br>【MediaFire】：http://adf.ly/1oA6V8
+<br>【MediaFire】：http://www.linkbucks.com/CaV6b
+<br>【百度網盤】：http://adf.ly/1oA6X3
+<br>【百度網盤】：http://www.linkbucks.com/CaV5d
+<br>【百度密碼】：p5cc
 
 <br>【節目名稱】：集雜志.2017-09-13
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-09-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219549490
+<br>【MediaFire】：http://adf.ly/1oA6UZ
+<br>【MediaFire】：http://www.linkbucks.com/CaV8H
+<br>【百度網盤】：http://adf.ly/1oA6WY
+<br>【百度網盤】：http://www.linkbucks.com/CaV5s
+<br>【百度密碼】：w7cf
 
 <br>【節目名稱】：人民大道中.2017-09-13
 <br>【節目頻道】：雷霆881
