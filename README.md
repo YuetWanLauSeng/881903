@@ -188,24 +188,24 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-09-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219647353
+<br>【MediaFire】：http://adf.ly/1oAgS1
+<br>【MediaFire】：http://www.linkbucks.com/Cb3ub
+<br>【百度網盤】：http://adf.ly/1oAgRc
+<br>【百度網盤】：http://www.linkbucks.com/Cb4RE
+<br>【百度密碼】：aa2v
 
 <br>【節目名稱】：人民大道中.2017-09-14
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-09-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219650714
+<br>【MediaFire】：http://adf.ly/1oAgWa
+<br>【MediaFire】：http://www.linkbucks.com/Cb3yI
+<br>【百度網盤】：http://adf.ly/1oAgQY
+<br>【百度網盤】：http://www.linkbucks.com/Cb4UZ
+<br>【百度密碼】：k7v6
 
 <br>【節目名稱】：生活日常.2017-09-14
 <br>【節目頻道】：叱咤903
