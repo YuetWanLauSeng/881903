@@ -212,36 +212,36 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219686043
+<br>【MediaFire】：http://adf.ly/1oAkPE
+<br>【MediaFire】：http://www.linkbucks.com/CcJMN
+<br>【百度網盤】：http://adf.ly/1oAkO1
+<br>【百度網盤】：http://www.linkbucks.com/CcJOl
+<br>【百度密碼】：k4gt
 
 <br>【節目名稱】：杏林茶.2017-09-14
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-09-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219686130
+<br>【MediaFire】：http://adf.ly/1oAkQ8
+<br>【MediaFire】：http://www.linkbucks.com/CcJLS
+<br>【百度網盤】：http://adf.ly/1oAkKV
+<br>【百度網盤】：http://www.linkbucks.com/CcJSX
+<br>【百度密碼】：v2zv
 
 <br>【節目名稱】：串.2017-09-14
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-09-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219686071
+<br>【MediaFire】：http://adf.ly/1oAkQN
+<br>【MediaFire】：http://www.linkbucks.com/CcJKk
+<br>【百度網盤】：http://adf.ly/1oAkMC
+<br>【百度網盤】：http://www.linkbucks.com/CcJP8
+<br>【百度密碼】：s52f
 
 <br>【節目名稱】：雲妮鍾情.2017-09-14
 <br>【節目頻道】：叱咤903
