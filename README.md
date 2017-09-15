@@ -1,6 +1,8 @@
 ### 歡迎瀏覽本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
+<br>因事外出三日，從今日（15號）傍晚起節目將於星期一（18號）凌晨前發佈
+
 <br>【更多節目請瀏覽】：https://github.com/YuetWanLauSeng/881903
 
 <br>【節目名稱】：有誰共鳴.2017-09-15
@@ -92,12 +94,12 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-09-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-219743781
+<br>【MediaFire】：http://adf.ly/1oB6Xv
+<br>【MediaFire】：http://www.linkbucks.com/CdD7C
+<br>【百度網盤】：http://adf.ly/1oB6XQ
+<br>【百度網盤】：http://www.linkbucks.com/CdD8z
+<br>【百度密碼】：uwb3
 
 <br>【節目名稱】：叱咤樂壇.2017-09-15
 <br>【節目頻道】：叱咤903
