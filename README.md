@@ -104,84 +104,84 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-09-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220086446
+<br>【MediaFire】：http://adf.ly/1oDAua
+<br>【MediaFire】：http://www.linkbucks.com/A3TEZ
+<br>【百度網盤】：http://adf.ly/1oDB3k
+<br>【百度網盤】：http://www.linkbucks.com/A3S9y
+<br>【百度密碼】：p36h
 
 <br>【節目名稱】：一點叮一叮.2017-09-18
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-09-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220086863
+<br>【MediaFire】：http://adf.ly/1oDAv4
+<br>【MediaFire】：http://www.linkbucks.com/A3TER
+<br>【百度網盤】：http://adf.ly/1oDB4Q
+<br>【百度網盤】：http://www.linkbucks.com/A3S9u
+<br>【百度密碼】：zqax
 
 <br>【節目名稱】：人生交叉盤.2017-09-18
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-09-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220086746
+<br>【MediaFire】：http://adf.ly/1oDAvb
+<br>【MediaFire】：http://www.linkbucks.com/A3TEB
+<br>【百度網盤】：http://adf.ly/1oDB6I
+<br>【百度網盤】：http://www.linkbucks.com/A3S7T
+<br>【百度密碼】：gtzu
 
 <br>【節目名稱】：你好嘢.2017-09-18
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-09-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220086925
+<br>【MediaFire】：http://adf.ly/1oDAxG
+<br>【MediaFire】：http://www.linkbucks.com/A3TDt
+<br>【百度網盤】：http://adf.ly/1oDB7d
+<br>【百度網盤】：http://www.linkbucks.com/A3S7J
+<br>【百度密碼】：sqjm
 
 <br>【節目名稱】：大玩派.2017-09-18
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-09-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220139599
+<br>【MediaFire】：http://adf.ly/1oDAtA
+<br>【MediaFire】：http://www.linkbucks.com/A3TFG
+<br>【百度網盤】：http://adf.ly/1oDAzQ
+<br>【百度網盤】：http://www.linkbucks.com/A3TBM
+<br>【百度密碼】：r3q9
 
 <br>【節目名稱】：口水多過浪花.2017-09-18
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-09-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220139689
+<br>【MediaFire】：http://adf.ly/1oDAsa
+<br>【MediaFire】：http://www.linkbucks.com/A3TFb
+<br>【百度網盤】：http://adf.ly/1oDAyN
+<br>【百度網盤】：http://www.linkbucks.com/A3TBN
+<br>【百度密碼】：9b1r
 
 <br>【節目名稱】：毒檸王國.2017-09-18
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-09-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220138980
+<br>【MediaFire】：http://adf.ly/1oDAtz
+<br>【MediaFire】：http://www.linkbucks.com/A3TEu
+<br>【百度網盤】：http://adf.ly/1oDB05
+<br>【百度網盤】：http://www.linkbucks.com/A3TAz
+<br>【百度密碼】：4ues
 
 <br>【節目名稱】：集雜志.2017-09-18
 <br>【節目頻道】：叱咤903
