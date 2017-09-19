@@ -92,60 +92,60 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220308769
+<br>【MediaFire】：http://adf.ly/1oDlbN
+<br>【MediaFire】：http://www.linkbucks.com/A3kvX
+<br>【百度網盤】：http://adf.ly/1oDlUJ
+<br>【百度網盤】：http://www.linkbucks.com/A3kxX
+<br>【百度密碼】：yp4s
 
 <br>【節目名稱】：叱咤樂壇.2017-09-19
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220308849
+<br>【MediaFire】：http://adf.ly/1oDloD
+<br>【MediaFire】：http://www.linkbucks.com/A3kkM
+<br>【百度網盤】：http://adf.ly/1oDlUz
+<br>【百度網盤】：http://www.linkbucks.com/A3kxP
+<br>【百度密碼】：7tey
 
 <br>【節目名稱】：一點叮一叮.2017-09-19
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220309093
+<br>【MediaFire】：http://adf.ly/1oDlc7
+<br>【MediaFire】：http://www.linkbucks.com/A3kvP
+<br>【百度網盤】：http://adf.ly/1oDlWp
+<br>【百度網盤】：http://www.linkbucks.com/A3kwo
+<br>【百度密碼】：f89e
 
 <br>【節目名稱】：人生交叉盤.2017-09-19
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220309077
+<br>【MediaFire】：http://adf.ly/1oDlcd
+<br>【MediaFire】：http://www.linkbucks.com/A3kvN
+<br>【百度網盤】：http://adf.ly/1oDlWM
+<br>【百度網盤】：http://www.linkbucks.com/A3kwv
+<br>【百度密碼】：aft4
 
 <br>【節目名稱】：你好嘢.2017-09-19
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220309127
+<br>【MediaFire】：http://adf.ly/1oDliQ
+<br>【MediaFire】：http://www.linkbucks.com/A3koZ
+<br>【百度網盤】：http://adf.ly/1oDlYD
+<br>【百度網盤】：http://www.linkbucks.com/A3kv6
+<br>【百度密碼】：bzf7
 
 <br>【節目名稱】：大玩派.2017-09-19
 <br>【節目頻道】：雷霆881
