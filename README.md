@@ -212,84 +212,91 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220361914
+<br>【MediaFire】：http://adf.ly/1oE1w1
+<br>【MediaFire】：http://www.linkbucks.com/A3g2T
+<br>【百度網盤】：http://adf.ly/1oE1WW
+<br>【百度網盤】：http://www.linkbucks.com/A3g5m
+<br>【百度密碼】：65m8
 
 <br>【節目名稱】：杏林茶.2017-09-19
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220361509
+<br>【MediaFire】：http://adf.ly/1oE1ur
+<br>【MediaFire】：http://www.linkbucks.com/A3g2g
+<br>【百度網盤】：http://adf.ly/1oE1Sg
+<br>【百度網盤】：http://www.linkbucks.com/A3g58
+<br>【百度密碼】：bt6b
 
 <br>【節目名稱】：串.2017-09-19
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220361474
+<br>【MediaFire】：http://adf.ly/1oE1oa
+<br>【MediaFire】：http://www.linkbucks.com/A3g3R
+<br>【百度網盤】：http://adf.ly/1oE1Tx
+<br>【百度網盤】：http://www.linkbucks.com/A3g51
+<br>【百度密碼】：xcn6
 
 <br>【節目名稱】：雲妮鍾情.2017-09-19
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220361930
+<br>【MediaFire】：http://adf.ly/1oE1vb
+<br>【MediaFire】：http://www.linkbucks.com/A3g2b
+<br>【百度網盤】：http://adf.ly/1oE1RA
+<br>【百度網盤】：http://www.linkbucks.com/A3g6M
+<br>【百度密碼】：pyk3
 
 <br>【節目名稱】：歐陽志強.2017-09-19
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220361186
+<br>【MediaFire】：http://adf.ly/1oE1p8
+<br>【MediaFire】：http://www.linkbucks.com/A3g3N
+<br>【百度網盤】：http://adf.ly/1oE1bN
+<br>【百度網盤】：http://www.linkbucks.com/A3g5T
+<br>【百度密碼】：mbhb
 
 <br>【節目名稱】：書.情.歌.2017-09-19
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『再創生機』
+
+<br>【節目名稱】：再創生機.2017-09-19
+<br>【節目頻道】：雷霆881
+<br>【節目主持】：熊書頤
+<br>【節目時間】：22:30 - 23:00
+<br>【檔案名稱】：Hair Again.2017-09-19
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220362121
+<br>【MediaFire】：http://adf.ly/1oE2Uk
+<br>【MediaFire】：http://www.linkbucks.com/A3gvG
+<br>【百度網盤】：http://adf.ly/1oE2Mt
+<br>【百度網盤】：http://www.linkbucks.com/A3gzU
+<br>【百度密碼】：nvd5
 
 <br>【節目名稱】：光明頂.2017-09-19
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220362226
+<br>【MediaFire】：http://adf.ly/1oE2d1
+<br>【MediaFire】：http://www.linkbucks.com/A3gtc
+<br>【百度網盤】：http://adf.ly/1oE2eD
+<br>【百度網盤】：http://www.linkbucks.com/A3gtK
+<br>【百度密碼】：wcy6
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-09-19
 <br>【節目頻道】：叱咤903
