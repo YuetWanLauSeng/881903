@@ -303,45 +303,45 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220364261
+<br>【MediaFire】：http://adf.ly/1oEKHJ
+<br>【MediaFire】：http://www.linkbucks.com/A3pmH
+<br>【百度網盤】：http://adf.ly/1oEKEa
+<br>【百度網盤】：http://www.linkbucks.com/A3pm6
+<br>【百度密碼】：e35s
 
 <br>【節目名稱】：月光光呵呵呵.2017-09-19
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220367636
+<br>【MediaFire】：http://adf.ly/1oEKKv
+<br>【MediaFire】：http://www.linkbucks.com/A3piu
+<br>【百度網盤】：http://adf.ly/1oEKF4
+<br>【百度網盤】：http://www.linkbucks.com/A3pm5
+<br>【百度密碼】：wfeh
 
 <br>【節目名稱】：廣東爆谷.2017-09-19
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220364246
+<br>【MediaFire】：http://adf.ly/1oEKKV
+<br>【MediaFire】：http://www.linkbucks.com/A3piz
+<br>【百度網盤】：http://adf.ly/1oEKFs
+<br>【百度網盤】：http://www.linkbucks.com/A3pmg
+<br>【百度密碼】：3qqc
 
 <br>【節目名稱】：一切從音樂開始.2017-09-19
 <br>【節目頻道】：雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-09-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220364234
+<br>【MediaFire】：http://adf.ly/1oEKH2
+<br>【MediaFire】：http://www.linkbucks.com/A3pmV
+<br>【百度網盤】：http://adf.ly/1oEKGb
+<br>【百度網盤】：http://www.linkbucks.com/A3pmf
+<br>【百度密碼】：m65w
