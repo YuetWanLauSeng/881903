@@ -176,12 +176,12 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-09-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-220761219
+<br>【MediaFire】：http://adf.ly/1oGHJ3
+<br>【MediaFire】：http://www.linkbucks.com/A3teP
+<br>【百度網盤】：http://adf.ly/1oGHGd
+<br>【百度網盤】：http://www.linkbucks.com/A3tfQ
+<br>【百度密碼】：3rxp
 
 <br>【節目名稱】：集雜志.2017-09-22
 <br>【節目頻道】：叱咤903
