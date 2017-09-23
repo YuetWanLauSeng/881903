@@ -140,48 +140,48 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221341245
+<br>【MediaFire】：http://adf.ly/1oH7zV
+<br>【MediaFire】：http://www.linkbucks.com/A39LG
+<br>【百度網盤】：http://adf.ly/1oH8Du
+<br>【百度網盤】：http://www.linkbucks.com/A39CU
+<br>【百度密碼】：qkpb
 
 <br>【節目名稱】：豁達推介.2017-09-23
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221341630
+<br>【MediaFire】：http://adf.ly/1oH81T
+<br>【MediaFire】：http://www.linkbucks.com/A39Kp
+<br>【百度網盤】：http://adf.ly/1oH8D5
+<br>【百度網盤】：http://www.linkbucks.com/A39Cb
+<br>【百度密碼】：r42s
 
 <br>【節目名稱】：大鐵人.2017-09-23
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221341793
+<br>【MediaFire】：http://adf.ly/1oH84t
+<br>【MediaFire】：http://www.linkbucks.com/A39Jr
+<br>【百度網盤】：http://adf.ly/1oH86G
+<br>【百度網盤】：http://www.linkbucks.com/A39Ih
+<br>【百度密碼】：kud4
 
 <br>【節目名稱】：3號螺絲釘.2017-09-23
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221341723
+<br>【MediaFire】：http://adf.ly/1oH80O
+<br>【MediaFire】：http://www.linkbucks.com/A39K3
+<br>【百度網盤】：http://adf.ly/1oH8AL
+<br>【百度網盤】：http://www.linkbucks.com/A39Hr
+<br>【百度密碼】：n455
 
 <br>【節目名稱】：第三齡接觸.2017-09-23
 <br>【節目頻道】：雷霆881
