@@ -128,12 +128,12 @@
 <br>【節目主持】：DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221317663
+<br>【MediaFire】：http://adf.ly/1oGwdN
+<br>【MediaFire】：http://www.linkbucks.com/A4I00
+<br>【百度網盤】：http://adf.ly/1oGweo
+<br>【百度網盤】：http://www.linkbucks.com/A4Iyk
+<br>【百度密碼】：fxx9
 
 <br>【節目名稱】：1圈圈 (周末版).2017-09-23
 <br>【節目頻道】：雷霆881
