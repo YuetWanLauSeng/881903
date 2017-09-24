@@ -188,24 +188,24 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-09-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221672832
+<br>【MediaFire】：http://adf.ly/1oHz7v
+<br>【MediaFire】：http://www.linkbucks.com/A4H56
+<br>【百度網盤】：http://adf.ly/1oHz9Y
+<br>【百度網盤】：http://www.linkbucks.com/A4H3v
+<br>【百度密碼】：4kbv
 
 <br>【節目名稱】：帶一本書去旅行.2017-09-24
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-09-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221672662
+<br>【MediaFire】：http://adf.ly/1oHz8b
+<br>【MediaFire】：http://www.linkbucks.com/A4H5x
+<br>【百度網盤】：http://adf.ly/1oHzA2
+<br>【百度網盤】：http://www.linkbucks.com/A4H3i
+<br>【百度密碼】：xbe3
 
 <br>【節目名稱】：葛民教育.2017-09-24
 <br>【節目頻道】：雷霆881
