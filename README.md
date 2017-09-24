@@ -188,48 +188,48 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221361962
+<br>【MediaFire】：http://adf.ly/1oHdxn
+<br>【MediaFire】：http://www.linkbucks.com/A4Dhu
+<br>【百度網盤】：http://adf.ly/1oHdj4
+<br>【百度網盤】：http://www.linkbucks.com/A4Djy
+<br>【百度密碼】：v47g
 
 <br>【節目名稱】：西瓜大發.2017-09-23
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221362141
+<br>【MediaFire】：http://adf.ly/1oHdxS
+<br>【MediaFire】：http://www.linkbucks.com/A4Dhv
+<br>【百度網盤】：http://adf.ly/1oHdk5
+<br>【百度網盤】：http://www.linkbucks.com/A4Djv
+<br>【百度密碼】：w9rm
 
 <br>【節目名稱】：雷霆音樂圈.2017-09-23
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
-<br>【檔案名稱】：雷霆881 Music Station.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：881 Music Station.2017-09-23
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221492716
+<br>【MediaFire】：http://adf.ly/1oHdu2
+<br>【MediaFire】：http://www.linkbucks.com/A4Dia
+<br>【百度網盤】：http://adf.ly/1oHdra
+<br>【百度網盤】：http://www.linkbucks.com/A4Diy
+<br>【百度密碼】：x5ep
 
 <br>【節目名稱】：Chi Chung's Class.2017-09-23
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221492922
+<br>【MediaFire】：http://adf.ly/1oHduE
+<br>【MediaFire】：http://www.linkbucks.com/A4DiY
+<br>【百度網盤】：http://adf.ly/1oHdtg
+<br>【百度網盤】：http://www.linkbucks.com/A4Dij
+<br>【百度密碼】：pkjf
 
 <br>【節目名稱】：與時並進.2017-09-23
 <br>【節目頻道】：雷霆881
@@ -237,59 +237,59 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221486174
+<br>【MediaFire】：http://adf.ly/1oHdx6
+<br>【MediaFire】：http://www.linkbucks.com/A4Dhy
+<br>【百度網盤】：http://adf.ly/1oHdop
+<br>【百度網盤】：http://www.linkbucks.com/A4DjR
+<br>【百度密碼】：b4wi
 
 <br>【節目名稱】：公子會.2017-09-23
 <br>【節目頻道】：叱咤903
 <br>【節目日期】：2017-09-23
 <br>【節目主持】：森美
-<br>【訪問嘉賓】：
+<br>【訪問嘉賓】：孫陳美詩
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221486906
+<br>【MediaFire】：http://adf.ly/1oHduj
+<br>【MediaFire】：http://www.linkbucks.com/A4DiR
+<br>【百度網盤】：http://adf.ly/1oHdqy
+<br>【百度網盤】：http://www.linkbucks.com/A4Di3
+<br>【百度密碼】：656w
 
 <br>【節目名稱】：發式生活.2017-09-23
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221486310
+<br>【MediaFire】：http://adf.ly/1oHdv0
+<br>【MediaFire】：http://www.linkbucks.com/A4DiQ
+<br>【百度網盤】：http://adf.ly/1oHdpm
+<br>【百度網盤】：http://www.linkbucks.com/A4DjC
+<br>【百度密碼】：va84
 
 <br>【節目名稱】：皇牌出場.2017-09-23
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221486602
+<br>【MediaFire】：http://adf.ly/1oHdwl
+<br>【MediaFire】：http://www.linkbucks.com/A4Dh8
+<br>【百度網盤】：http://adf.ly/1oHdqg
+<br>【百度網盤】：http://www.linkbucks.com/A4Di5
+<br>【百度密碼】：589c
 
 <br>【節目名稱】：一切從音樂開始.2017-09-23
 <br>【節目頻道】：雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-09-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221486114
+<br>【MediaFire】：http://adf.ly/1oHduV
+<br>【MediaFire】：http://www.linkbucks.com/A4DiS
+<br>【百度網盤】：http://adf.ly/1oHdmP
+<br>【百度網盤】：http://www.linkbucks.com/A4Djb
+<br>【百度密碼】：tcad
