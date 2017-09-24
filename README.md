@@ -92,24 +92,24 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-09-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221604742
+<br>【MediaFire】：http://adf.ly/1oHr3I
+<br>【MediaFire】：http://www.linkbucks.com/A4A54
+<br>【百度網盤】：http://adf.ly/1oHr6x
+<br>【百度網盤】：http://www.linkbucks.com/A4A3s
+<br>【百度密碼】：3524
 
 <br>【節目名稱】：兒童適宜.2017-09-24
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-09-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221604865
+<br>【MediaFire】：http://adf.ly/1oHr43
+<br>【MediaFire】：http://www.linkbucks.com/A4A5w
+<br>【百度網盤】：http://adf.ly/1oHr62
+<br>【百度網盤】：http://www.linkbucks.com/A4A5c
+<br>【百度密碼】：pgdx
 
 <br>【節目名稱】：Mali Mali Home.2017-09-24
 <br>【節目頻道】：叱咤903
