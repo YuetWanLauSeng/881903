@@ -116,36 +116,36 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-09-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221614743
+<br>【MediaFire】：http://adf.ly/1oHs1w
+<br>【MediaFire】：http://www.linkbucks.com/A4K9d
+<br>【百度網盤】：http://adf.ly/1oHs46
+<br>【百度網盤】：http://www.linkbucks.com/A4K8Z
+<br>【百度密碼】：46y2
 
 <br>【節目名稱】：串.2017-09-24
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-09-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221614779
+<br>【MediaFire】：http://adf.ly/1oHs2N
+<br>【MediaFire】：http://www.linkbucks.com/A4K9M
+<br>【百度網盤】：http://adf.ly/1oHs3c
+<br>【百度網盤】：http://www.linkbucks.com/A4K8u
+<br>【百度密碼】：47tt
 
 <br>【節目名稱】：讀懂中國.2017-09-24
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-09-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221615368
+<br>【MediaFire】：http://adf.ly/1oHs1L
+<br>【MediaFire】：http://www.linkbucks.com/A4K98
+<br>【百度網盤】：http://adf.ly/1oHs2w
+<br>【百度網盤】：http://www.linkbucks.com/A4K82
+<br>【百度密碼】：hjdc
 
 <br>【節目名稱】：國語類.2017-09-24
 <br>【節目頻道】：叱咤903
