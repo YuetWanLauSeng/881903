@@ -212,24 +212,24 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-25
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221778689
+<br>【MediaFire】：http://adf.ly/1oIbcM
+<br>【MediaFire】：http://www.linkbucks.com/A4T9S
+<br>【百度網盤】：http://adf.ly/1oIbho
+<br>【百度網盤】：http://www.linkbucks.com/A4T6I
+<br>【百度密碼】：yf5m
 
 <br>【節目名稱】：杏林茶.2017-09-25
 <br>【節目頻道】：雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-09-25
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-221778861
+<br>【MediaFire】：http://adf.ly/1oIbcz
+<br>【MediaFire】：http://www.linkbucks.com/A4T8c
+<br>【百度網盤】：http://adf.ly/1oIbfp
+<br>【百度網盤】：http://www.linkbucks.com/A4T7q
+<br>【百度密碼】：pbj7
 
 <br>【節目名稱】：串.2017-09-25
 <br>【節目頻道】：雷霆881
