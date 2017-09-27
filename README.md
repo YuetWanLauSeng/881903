@@ -152,24 +152,24 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-09-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222054715
+<br>【MediaFire】：http://quainator.com/2Yxo
+<br>【MediaFire】：http://www.linkbucks.com/A4e0L
+<br>【百度網盤】：http://quainator.com/2YuC
+<br>【百度網盤】：http://www.linkbucks.com/A4e2s
+<br>【百度密碼】：cy4v
 
 <br>【節目名稱】：口水多過浪花.2017-09-27
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-09-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222054821
+<br>【MediaFire】：http://quainator.com/2Yyh
+<br>【MediaFire】：http://www.linkbucks.com/A4eyX
+<br>【百度網盤】：http://quainator.com/2Yws
+<br>【百度網盤】：http://www.linkbucks.com/A4e1x
+<br>【百度密碼】：ka7a
 
 <br>【節目名稱】：毒檸王國.2017-09-27
 <br>【節目頻道】：叱咤903
