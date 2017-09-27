@@ -233,24 +233,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-09-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222088698
+<br>【MediaFire】：http://quainator.com/32Xf
+<br>【MediaFire】：http://www.linkbucks.com/A4P2V
+<br>【百度網盤】：http://quainator.com/32UO
+<br>【百度網盤】：http://www.linkbucks.com/A4P2w
+<br>【百度密碼】：6eif
 
 <br>【節目名稱】：歐陽志強.2017-09-27
 <br>【節目頻道】：叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-09-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222088606
+<br>【MediaFire】：http://quainator.com/32YN
+<br>【MediaFire】：http://www.linkbucks.com/A4P2P
+<br>【百度網盤】：http://quainator.com/32Vl
+<br>【百度網盤】：http://www.linkbucks.com/A4P2k
+<br>【百度密碼】：eq2h
 
 <br>【節目名稱】：書.情.歌.2017-09-27
 <br>【節目頻道】：雷霆881
@@ -264,12 +264,12 @@
 <br>【節目主持】：陶傑 | 嘉賓主持
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-09-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222090316
+<br>【MediaFire】：http://quainator.com/32Wq
+<br>【MediaFire】：http://www.linkbucks.com/A4P2W
+<br>【百度網盤】：http://quainator.com/32Se
+<br>【百度網盤】：http://www.linkbucks.com/A4P2z
+<br>【百度密碼】：c1fx
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-09-27
 <br>【節目頻道】：叱咤903
