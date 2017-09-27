@@ -188,12 +188,12 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-09-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222079036
+<br>【MediaFire】：http://quainator.com/2s1m
+<br>【MediaFire】：http://www.linkbucks.com/A4R3O
+<br>【百度網盤】：http://quainator.com/2s5h
+<br>【百度網盤】：http://www.linkbucks.com/A4R2s
+<br>【百度密碼】：if9f
 
 <br>【節目名稱】：人民大道中.2017-09-27
 <br>【節目頻道】：雷霆881
@@ -207,12 +207,12 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222077431
+<br>【MediaFire】：http://quainator.com/2s2r
+<br>【MediaFire】：http://www.linkbucks.com/A4R27
+<br>【百度網盤】：http://quainator.com/2s7I
+<br>【百度網盤】：http://www.linkbucks.com/A4R2b
+<br>【百度密碼】：33it
 
 <br>【節目名稱】：杏林茶.2017-09-27
 <br>【節目頻道】：雷霆881
