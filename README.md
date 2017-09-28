@@ -188,108 +188,108 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222239422
+<br>【MediaFire】：http://quainator.com/4b81
+<br>【MediaFire】：http://www.linkbucks.com/A4af3
+<br>【百度網盤】：http://quainator.com/4aW7
+<br>【百度網盤】：http://www.linkbucks.com/A4alQ
+<br>【百度密碼】：jsc1
 
 <br>【節目名稱】：人民大道中.2017-09-28
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222238843
+<br>【MediaFire】：http://quainator.com/4b4Y
+<br>【MediaFire】：http://www.linkbucks.com/A4agV
+<br>【百度網盤】：http://quainator.com/4ahG
+<br>【百度網盤】：http://www.linkbucks.com/A4akB
+<br>【百度密碼】：uxhp
 
 <br>【節目名稱】：生活日常.2017-09-28
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222238796
+<br>【MediaFire】：http://quainator.com/4b1A
+<br>【MediaFire】：http://www.linkbucks.com/A4agx
+<br>【百度網盤】：http://quainator.com/4ajk
+<br>【百度網盤】：http://www.linkbucks.com/A4aju
+<br>【百度密碼】：4ub7
 
 <br>【節目名稱】：杏林茶.2017-09-28
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222239012
+<br>【MediaFire】：http://quainator.com/4b5x
+<br>【MediaFire】：http://www.linkbucks.com/A4agO
+<br>【百度網盤】：http://quainator.com/4aaj
+<br>【百度網盤】：http://www.linkbucks.com/A4akq
+<br>【百度密碼】：utzh
 
 <br>【節目名稱】：串.2017-09-28
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222238926
+<br>【MediaFire】：http://quainator.com/4bBt
+<br>【MediaFire】：http://www.linkbucks.com/A4afM
+<br>【百度網盤】：http://quainator.com/4aed
+<br>【百度網盤】：http://www.linkbucks.com/A4akS
+<br>【百度密碼】：uw27
 
 <br>【節目名稱】：雲妮鍾情.2017-09-28
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222239135
+<br>【MediaFire】：http://quainator.com/4b2K
+<br>【MediaFire】：http://www.linkbucks.com/A4agu
+<br>【百度網盤】：http://quainator.com/4aZF
+<br>【百度網盤】：http://www.linkbucks.com/A4akw
+<br>【百度密碼】：7xy7
 
 <br>【節目名稱】：歐陽志強.2017-09-28
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222237807
+<br>【MediaFire】：http://quainator.com/4bA0
+<br>【MediaFire】：http://www.linkbucks.com/A4afj
+<br>【百度網盤】：http://quainator.com/4awa
+<br>【百度網盤】：http://www.linkbucks.com/A4aht
+<br>【百度密碼】：fqkv
 
 <br>【節目名稱】：書.情.歌.2017-09-28
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222238874
+<br>【MediaFire】：http://quainator.com/4bBG
+<br>【MediaFire】：http://www.linkbucks.com/A4afU
+<br>【百度網盤】：http://quainator.com/4agA
+<br>【百度網盤】：http://www.linkbucks.com/A4akK
+<br>【百度密碼】：b2qr
 
 <br>【節目名稱】：光明頂.2017-09-28
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222242029
+<br>【MediaFire】：http://quainator.com/4cWu
+<br>【MediaFire】：http://www.linkbucks.com/A4aUe
+<br>【百度網盤】：http://quainator.com/4cQX
+<br>【百度網盤】：http://www.linkbucks.com/A4aVF
+<br>【百度密碼】：7779
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-09-28
 <br>【節目頻道】：商業電台.叱咤903
