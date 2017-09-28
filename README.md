@@ -92,12 +92,12 @@
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-09-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222171414
+<br>【MediaFire】：http://quainator.com/3xRr
+<br>【MediaFire】：http://www.linkbucks.com/A4UOl
+<br>【百度網盤】：http://quainator.com/3xPz
+<br>【百度網盤】：http://www.linkbucks.com/A4UPG
+<br>【百度密碼】：gagp
 
 <br>【節目名稱】：叱咤樂壇.2017-09-28
 <br>【節目頻道】：商業電台.叱咤903
