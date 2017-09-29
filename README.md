@@ -80,72 +80,72 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222318861
+<br>【MediaFire】：http://quainator.com/5cXE
+<br>【MediaFire】：http://www.linkbucks.com/A4icu
+<br>【百度網盤】：http://quainator.com/5cJ1
+<br>【百度網盤】：http://www.linkbucks.com/A4iek
+<br>【百度密碼】：vbrm
 
 <br>【節目名稱】：十八樓C座.2017-09-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222318421
+<br>【MediaFire】：http://quainator.com/5cZk
+<br>【MediaFire】：http://www.linkbucks.com/A4icc
+<br>【百度網盤】：http://quainator.com/5cKC
+<br>【百度網盤】：http://www.linkbucks.com/A4iea
+<br>【百度密碼】：1wcj
 
 <br>【節目名稱】：叱咤樂壇.2017-09-29
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222344380
+<br>【MediaFire】：http://quainator.com/5cPU
+<br>【MediaFire】：http://www.linkbucks.com/A4idw
+<br>【百度網盤】：http://quainator.com/5cBi
+<br>【百度網盤】：http://www.linkbucks.com/A4ihI
+<br>【百度密碼】：7ihh
 
 <br>【節目名稱】：一點叮一叮.2017-09-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222344569
+<br>【MediaFire】：http://quainator.com/5cTK
+<br>【MediaFire】：http://www.linkbucks.com/A4idO
+<br>【百度網盤】：http://quainator.com/5c5r
+<br>【百度網盤】：http://www.linkbucks.com/A4iiB
+<br>【百度密碼】：w97w
 
 <br>【節目名稱】：人生交叉盤.2017-09-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222344478
+<br>【MediaFire】：http://quainator.com/5cV8
+<br>【MediaFire】：http://www.linkbucks.com/A4idG
+<br>【百度網盤】：http://quainator.com/5c6w
+<br>【百度網盤】：http://www.linkbucks.com/A4ihq
+<br>【百度密碼】：anse
 
 <br>【節目名稱】：你好嘢.2017-09-29
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222344699
+<br>【MediaFire】：http://quainator.com/5cSO
+<br>【MediaFire】：http://www.linkbucks.com/A4idV
+<br>【百度網盤】：http://quainator.com/5c1m
+<br>【百度網盤】：http://www.linkbucks.com/A4iiK
+<br>【百度密碼】：s72q
 
 <br>【節目名稱】：大玩派.2017-09-29
 <br>【節目頻道】：商業電台.雷霆881
