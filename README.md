@@ -188,48 +188,48 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222396822
+<br>【MediaFire】：http://quainator.com/5zPG
+<br>【MediaFire】：http://www.linkbucks.com/A4fXg
+<br>【百度網盤】：http://quainator.com/5z6t
+<br>【百度網盤】：http://www.linkbucks.com/A4foK
+<br>【百度密碼】：4exf
 
 <br>【節目名稱】：人民大道中.2017-09-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222395772
+<br>【MediaFire】：http://quainator.com/5zRU
+<br>【MediaFire】：http://www.linkbucks.com/A4fXI
+<br>【百度網盤】：http://quainator.com/5zFD
+<br>【百度網盤】：http://www.linkbucks.com/A4fnX
+<br>【百度密碼】：9s4y
 
 <br>【節目名稱】：生活日常.2017-09-29
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222395421
+<br>【MediaFire】：http://quainator.com/5zT7
+<br>【MediaFire】：http://www.linkbucks.com/A4fJF
+<br>【百度網盤】：http://quainator.com/5zIg
+<br>【百度網盤】：http://www.linkbucks.com/A4fnK
+<br>【百度密碼】：pb8g
 
 <br>【節目名稱】：杏林茶.2017-09-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-09-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222395931
+<br>【MediaFire】：http://quainator.com/5zNi
+<br>【MediaFire】：http://www.linkbucks.com/A4fmo
+<br>【百度網盤】：http://quainator.com/5zCc
+<br>【百度網盤】：http://www.linkbucks.com/A4fnp
+<br>【百度密碼】：zfwb
 
 <br>【節目名稱】：串.2017-09-29
 <br>【節目頻道】：商業電台.雷霆881
