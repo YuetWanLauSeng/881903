@@ -128,60 +128,60 @@
 <br>【節目主持】：903DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-09-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222525011
+<br>【MediaFire】：http://quainator.com/7Nny
+<br>【MediaFire】：http://www.linkbucks.com/A40S0
+<br>【百度網盤】：http://quainator.com/7O6F
+<br>【百度網盤】：http://www.linkbucks.com/A40Gn
+<br>【百度密碼】：3yn1
 
 <br>【節目名稱】：1圈圈（周末版）.2017-09-30
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-09-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222525123
+<br>【MediaFire】：http://quainator.com/7NsY
+<br>【MediaFire】：http://www.linkbucks.com/A40R3
+<br>【百度網盤】：http://quainator.com/7O2T
+<br>【百度網盤】：http://www.linkbucks.com/A40PB
+<br>【百度密碼】：4j2q
 
 <br>【節目名稱】：豁達推介.2017-09-30
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-09-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222525170
+<br>【MediaFire】：http://quainator.com/7Nre
+<br>【MediaFire】：http://www.linkbucks.com/A40SD
+<br>【百度網盤】：http://quainator.com/7NzF
+<br>【百度網盤】：http://www.linkbucks.com/A40PX
+<br>【百度密碼】：eaga
 
 <br>【節目名稱】：大鐵人.2017-09-30
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-09-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222525198
+<br>【MediaFire】：http://quainator.com/7Nmv
+<br>【MediaFire】：http://www.linkbucks.com/A40TH
+<br>【百度網盤】：http://quainator.com/7NwA
+<br>【百度網盤】：http://www.linkbucks.com/A40Qz
+<br>【百度密碼】：xqb2
 
 <br>【節目名稱】：3號螺絲釘.2017-09-30
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-09-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222525193
+<br>【MediaFire】：http://quainator.com/7NqL
+<br>【MediaFire】：http://www.linkbucks.com/A40SY
+<br>【百度網盤】：http://quainator.com/7Nxr
+<br>【百度網盤】：http://www.linkbucks.com/A40QW
+<br>【百度密碼】：j1v2
 
 <br>【節目名稱】：第三齡接觸.2017-09-30
 <br>【節目頻道】：商業電台.雷霆881
