@@ -92,36 +92,36 @@
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-09-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222488446
+<br>【MediaFire】：http://quainator.com/75cP
+<br>【MediaFire】：http://www.linkbucks.com/A47DR
+<br>【百度網盤】：http://quainator.com/75gh
+<br>【百度網盤】：http://www.linkbucks.com/A47C8
+<br>【百度密碼】：6fdc
 
 <br>【節目名稱】：電影圈.2017-09-30
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：12:30 - 14:00
 <br>【檔案名稱】：Movies.2017-09-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222488565
+<br>【MediaFire】：http://quainator.com/75Nc
+<br>【MediaFire】：http://www.linkbucks.com/A47ES
+<br>【百度網盤】：http://quainator.com/75fZ
+<br>【百度網盤】：http://www.linkbucks.com/A47DG
+<br>【百度密碼】：stw2
 
 <br>【節目名稱】：咪芝蓮.2017-09-30
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-09-30
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222488629
+<br>【MediaFire】：http://quainator.com/75M4
+<br>【MediaFire】：http://www.linkbucks.com/A47EZ
+<br>【百度網盤】：http://quainator.com/75dT
+<br>【百度網盤】：http://www.linkbucks.com/A47DM
+<br>【百度密碼】：sjwg
 
 <br>【節目名稱】：咆哮山莊.2017-09-30
 <br>【節目頻道】：商業電台.叱咤903
