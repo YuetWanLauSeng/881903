@@ -152,36 +152,36 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-10-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222651193
+<br>【MediaFire】：http://quainator.com/93tY
+<br>【MediaFire】：http://www.linkbucks.com/A4uNP
+<br>【百度網盤】：http://quainator.com/93zT
+<br>【百度網盤】：http://www.linkbucks.com/A4uMO
+<br>【百度密碼】：5jzk
 
 <br>【節目名稱】：泡菜粉絲煲.2017-10-01
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-10-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222651212
+<br>【MediaFire】：http://quainator.com/93uH
+<br>【MediaFire】：http://www.linkbucks.com/A4uNO
+<br>【百度網盤】：http://quainator.com/93xc
+<br>【百度網盤】：http://www.linkbucks.com/A4uMm
+<br>【百度密碼】：kph6
 
 <br>【節目名稱】：細路強.2017-10-01
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-10-01
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222651717
+<br>【MediaFire】：http://quainator.com/93sb
+<br>【MediaFire】：http://www.linkbucks.com/A4uNR
+<br>【百度網盤】：http://quainator.com/93vs
+<br>【百度網盤】：http://www.linkbucks.com/A4uMy
+<br>【百度密碼】：77r9
 
 <br>【節目名稱】：國民教育.2017-10-01
 <br>【節目頻道】：商業電台.叱咤903
