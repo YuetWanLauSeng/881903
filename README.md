@@ -248,24 +248,24 @@
 <BR>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <BR>【節目時間】：22:00 - 22:30
 <BR>【檔案名稱】：Sino Stream.2017-10-02
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
-<BR>【百度網盤】：
-<BR>【百度網盤】：
-<BR>【百度密碼】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222762347
+<BR>【MediaFire】：http://quamiller.com/1IXH
+<BR>【MediaFire】：http://www.linkbucks.com/A5IA0
+<BR>【百度網盤】：http://quamiller.com/1Idt
+<BR>【百度網盤】：http://www.linkbucks.com/A5H6c
+<BR>【百度密碼】：2ws4
 
 <BR>【節目名稱】：雲妮鍾情.2017-10-02
 <BR>【節目頻道】：商業電台.叱咤903
 <BR>【節目主持】：Vani
 <BR>【節目時間】：21:00 - 22:30
 <BR>【檔案名稱】：Vanila Sky.2017-10-02
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
-<BR>【百度網盤】：
-<BR>【百度網盤】：
-<BR>【百度密碼】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222762390
+<BR>【MediaFire】：http://quamiller.com/1IVk
+<BR>【MediaFire】：http://www.linkbucks.com/A5IA8
+<BR>【百度網盤】：http://quamiller.com/1Icx
+<BR>【百度網盤】：http://www.linkbucks.com/A5H75
+<BR>【百度密碼】：wwbp
 
 <BR>【節目名稱】：歐陽志強.2017-10-02
 <BR>【節目頻道】：商業電台.叱咤903
@@ -284,24 +284,24 @@
 <BR>【節目主持】：葉宇澄
 <BR>【節目時間】：22:30 - 23:00
 <BR>【檔案名稱】：Reading Time.2017-10-02
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
-<BR>【百度網盤】：
-<BR>【百度網盤】：
-<BR>【百度密碼】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222762240
+<BR>【MediaFire】：http://quamiller.com/1IaE
+<BR>【MediaFire】：http://www.linkbucks.com/A5H9z
+<BR>【百度網盤】：http://quamiller.com/1Ifl
+<BR>【百度網盤】：http://www.linkbucks.com/A5H5g
+<BR>【百度密碼】：bmwf
 
 <BR>【節目名稱】：光明頂.2017-10-02
 <BR>【節目頻道】：商業電台.雷霆881
 <BR>【節目主持】：陶傑
 <BR>【節目時間】：23:00 - 00:00
 <BR>【檔案名稱】：Summit.2017-10-02
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
-<BR>【百度網盤】：
-<BR>【百度網盤】：
-<BR>【百度密碼】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222762718
+<BR>【MediaFire】：http://quamiller.com/1IYo
+<BR>【MediaFire】：http://www.linkbucks.com/A5IAx
+<BR>【百度網盤】：http://quamiller.com/1IbU
+<BR>【百度網盤】：http://www.linkbucks.com/A5H8d
+<BR>【百度密碼】：gh68
 
 <BR>【節目名稱】：聖艾粒忌廉夜校.2017-10-02
 <BR>【節目頻道】：商業電台.叱咤903
