@@ -224,24 +224,24 @@
 <BR>【節目主持】：細So
 <BR>【節目時間】：19:00 - 21:00
 <BR>【檔案名稱】：My Daily Life.2017-10-02
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
-<BR>【百度網盤】：
-<BR>【百度網盤】：
-<BR>【百度密碼】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222754961
+<BR>【MediaFire】：http://quamiller.com/15pZ
+<BR>【MediaFire】：http://www.linkbucks.com/A5NAH
+<BR>【百度網盤】：http://quamiller.com/158d
+<BR>【百度網盤】：http://www.linkbucks.com/A5NQv
+<BR>【百度密碼】：ijyq
 
 <BR>【節目名稱】：杏林茶.2017-10-02
 <BR>【節目頻道】：商業電台.雷霆881
 <BR>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <BR>【節目時間】：20:00 - 21:00
 <BR>【檔案名稱】：Tea For You.2017-10-02
-<BR>【城通網盤】：
-<BR>【MediaFire】：
-<BR>【MediaFire】：
-<BR>【百度網盤】：
-<BR>【百度網盤】：
-<BR>【百度密碼】：
+<BR>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222755195
+<BR>【MediaFire】：http://quamiller.com/15qE
+<BR>【MediaFire】：http://www.linkbucks.com/A5NAE
+<BR>【百度網盤】：http://quamiller.com/15AT
+<BR>【百度網盤】：http://www.linkbucks.com/A5NQB
+<BR>【百度密碼】：qk4h
 
 <BR>【節目名稱】：串.2017-10-02
 <BR>【節目頻道】：商業電台.雷霆881
