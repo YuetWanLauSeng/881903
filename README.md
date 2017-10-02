@@ -152,18 +152,30 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-10-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222732198
+<br>【MediaFire】：http://quamiller.com/kkE
+<br>【MediaFire】：http://www.linkbucks.com/A4vxJ
+<br>【百度網盤】：http://quamiller.com/ko1
+<br>【百度網盤】：http://www.linkbucks.com/A4vwp
+<br>【百度密碼】：rddc
 
 <br>【節目名稱】：口水多過浪花.2017-10-02
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-10-02
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222732266
+<br>【MediaFire】：http://quamiller.com/kkq
+<br>【MediaFire】：http://www.linkbucks.com/A4vxE
+<br>【百度網盤】：http://quamiller.com/km5
+<br>【百度網盤】：http://www.linkbucks.com/A4vw2
+<br>【百度密碼】：bdj7
+
+<br>【節目名稱】：都是我的流行曲.2017-10-02
+<br>【節目頻道】：商業電台. 雷霆881
+<br>【節目主持】：江健聰
+<br>【節目時間】：17:00 - 18:00
+<br>【檔案名稱】：Oldies Buddy.2017-10-02
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
