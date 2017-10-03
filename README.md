@@ -200,72 +200,72 @@
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-10-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222889528
+<br>【MediaFire】：http://quamiller.com/39F0
+<br>【MediaFire】：http://www.linkbucks.com/A46bX
+<br>【百度網盤】：http://quamiller.com/38zE
+<br>【百度網盤】：http://www.linkbucks.com/A46hW
+<br>【百度密碼】：t6be
 
 <br>【節目名稱】：生活日常.2017-10-03
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-10-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222889441
+<br>【MediaFire】：http://quamiller.com/399e
+<br>【MediaFire】：http://www.linkbucks.com/A46bu
+<br>【百度網盤】：http://quamiller.com/396d
+<br>【百度網盤】：http://www.linkbucks.com/A46hA
+<br>【百度密碼】：enb9
 
 <br>【節目名稱】：杏林茶.2017-10-03
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-10-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222889569
+<br>【MediaFire】：http://quamiller.com/39K5
+<br>【MediaFire】：http://www.linkbucks.com/A46bE
+<br>【百度網盤】：http://quamiller.com/38MK
+<br>【百度網盤】：http://www.linkbucks.com/A46m5
+<br>【百度密碼】：qt4x
 
 <br>【節目名稱】：串.2017-10-03
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222889556
+<br>【MediaFire】：http://quamiller.com/39M9
+<br>【MediaFire】：http://www.linkbucks.com/A46a5
+<br>【百度網盤】：http://quamiller.com/38oy
+<br>【百度網盤】：http://www.linkbucks.com/A46h5
+<br>【百度密碼】：i4re
 
 <br>【節目名稱】：雲妮鍾情.2017-10-03
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222889586
+<br>【MediaFire】：http://quamiller.com/39DM
+<br>【MediaFire】：http://www.linkbucks.com/A46bh
+<br>【百度網盤】：http://quamiller.com/38KT
+<br>【百度網盤】：http://www.linkbucks.com/A46nB
+<br>【百度密碼】：rymh
 
 <br>【節目名稱】：歐陽志強.2017-10-03
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222890036
+<br>【MediaFire】：http://quamiller.com/3AD6
+<br>【MediaFire】：http://www.linkbucks.com/A46Wd
+<br>【百度網盤】：http://quamiller.com/3AAS
+<br>【百度網盤】：http://www.linkbucks.com/A46Wk
+<br>【百度密碼】：46jg
 
 <br>【節目名稱】：書.情.歌.2017-10-03
 <br>【節目頻道】：商業電台.雷霆881
@@ -279,12 +279,12 @@
 <br>【節目主持】：熊書頤
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Hair Again.2017-10-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222890045
+<br>【MediaFire】：http://quamiller.com/3AC1
+<br>【MediaFire】：http://www.linkbucks.com/A46Wf
+<br>【百度網盤】：http://quamiller.com/3A6T
+<br>【百度網盤】：http://www.linkbucks.com/A46Wp
+<br>【百度密碼】：32ca
 
 <br>【節目名稱】：光明頂.2017-10-03
 <br>【節目頻道】：商業電台.雷霆881
@@ -292,12 +292,12 @@
 <br>【節目話題】：
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222890062
+<br>【MediaFire】：http://quamiller.com/3AE4
+<br>【MediaFire】：http://www.linkbucks.com/A46WZ
+<br>【百度網盤】：http://quamiller.com/3AHC
+<br>【百度網盤】：http://www.linkbucks.com/A46WU
+<br>【百度密碼】：aspg
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-03
 <br>【節目頻道】：商業電台.叱咤903
