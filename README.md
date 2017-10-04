@@ -250,49 +250,48 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222945511
+<br>【MediaFire】：http://quamiller.com/54MO
+<br>【MediaFire】：http://www.linkbucks.com/A5F8B
+<br>【百度網盤】：http://quamiller.com/54Q0
+<br>【百度網盤】：http://www.linkbucks.com/A5F7a
+<br>【百度密碼】：3an6
 
 <br>【節目名稱】：歐陽志強.2017-10-04
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222945360
+<br>【MediaFire】：http://quamiller.com/54Nx
+<br>【MediaFire】：http://www.linkbucks.com/A5F7u
+<br>【百度網盤】：http://quamiller.com/54TN
+<br>【百度網盤】：http://www.linkbucks.com/A5F7N
+<br>【百度密碼】：kk92
 
 <br>【節目名稱】：書.情.歌.2017-10-04
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-10-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222945422
+<br>【MediaFire】：http://quamiller.com/54Oi
+<br>【MediaFire】：http://www.linkbucks.com/A5F7j
+<br>【百度網盤】：http://quamiller.com/54SP
+<br>【百度網盤】：http://www.linkbucks.com/A5F7X
+<br>【百度密碼】：jktx
 
 <br>【節目名稱】：光明頂.2017-10-04
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222947095
+<br>【MediaFire】：http://quamiller.com/56AF
+<br>【MediaFire】：http://www.linkbucks.com/A5Fze
+<br>【百度網盤】：http://quamiller.com/56Bf
+<br>【百度網盤】：http://www.linkbucks.com/A5Fza
+<br>【百度密碼】：cqd7
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-04
 <br>【節目頻道】：商業電台.叱咤903
