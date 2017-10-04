@@ -235,14 +235,15 @@
 <br>【節目名稱】：串.2017-10-04
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
+<br>【節目話題】：《逆權司機》回顧光州民主運動，同六四雨傘革命有無得比？
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222943550
+<br>【MediaFire】：http://quamiller.com/4yKi
+<br>【MediaFire】：http://www.linkbucks.com/A5Gfs
+<br>【百度網盤】：http://quamiller.com/4yMK
+<br>【百度網盤】：http://www.linkbucks.com/A5Gfn
+<br>【百度密碼】：ffut
 
 <br>【節目名稱】：雲妮鍾情.2017-10-04
 <br>【節目頻道】：商業電台.叱咤903
