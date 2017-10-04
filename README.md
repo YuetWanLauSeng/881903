@@ -90,15 +90,15 @@
 <br>【節目名稱】：十八樓C座.2017-10-04
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
+<br>【節目話題】：月餅又有假
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-10-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222917370
+<br>【MediaFire】：http://quamiller.com/4IQ8
+<br>【MediaFire】：http://www.linkbucks.com/A5J2T
+<br>【百度網盤】：http://quamiller.com/4IRr
+<br>【百度網盤】：http://www.linkbucks.com/A5J2I
+<br>【百度密碼】：4t8m
 
 <br>【節目名稱】：叱咤樂壇.2017-10-04
 <br>【節目頻道】：商業電台.叱咤903
