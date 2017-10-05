@@ -201,12 +201,12 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223016643
+<br>【MediaFire】：http://quamiller.com/6mfY
+<br>【MediaFire】：http://www.linkbucks.com/A5ZTE
+<br>【百度網盤】：http://quamiller.com/6m73
+<br>【百度網盤】：http://www.linkbucks.com/A5ZYh
+<br>【百度密碼】：9ndy
 
 <br>【節目名稱】：人民大道中.2017-10-05
 <br>【節目頻道】：商業電台.雷霆881
@@ -220,12 +220,12 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223016568
+<br>【MediaFire】：http://quamiller.com/6meT
+<br>【MediaFire】：http://www.linkbucks.com/A5ZTH
+<br>【百度網盤】：http://quamiller.com/6mJX
+<br>【百度網盤】：http://www.linkbucks.com/A5ZV5
+<br>【百度密碼】：vtxy
 
 <br>【節目名稱】：杏林茶.2017-10-05
 <br>【節目頻道】：商業電台.雷霆881
@@ -246,24 +246,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223021977
+<br>【MediaFire】：http://quamiller.com/6mUY
+<br>【MediaFire】：http://www.linkbucks.com/A5ZUd
+<br>【百度網盤】：http://quamiller.com/6lzK
+<br>【百度網盤】：http://www.linkbucks.com/A5Zcd
+<br>【百度密碼】：xfv5
 
 <br>【節目名稱】：歐陽志強.2017-10-05
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223021754
+<br>【MediaFire】：http://quamiller.com/6mXX
+<br>【MediaFire】：http://www.linkbucks.com/A5ZUU
+<br>【百度網盤】：http://quamiller.com/6m4D
+<br>【百度網盤】：http://www.linkbucks.com/A5ZZu
+<br>【百度密碼】：u4f8
 
 <br>【節目名稱】：書.情.歌.2017-10-05
 <br>【節目頻道】：商業電台.雷霆881
@@ -275,15 +275,15 @@
 <br>【節目名稱】：光明頂.2017-10-05
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目話題】：待定
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223022407
+<br>【MediaFire】：http://quamiller.com/6mZp
+<br>【MediaFire】：http://www.linkbucks.com/A5ZTn
+<br>【百度網盤】：http://quamiller.com/6mcQ
+<br>【百度網盤】：http://www.linkbucks.com/A5ZTZ
+<br>【百度密碼】：vx5i
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-05
 <br>【節目頻道】：商業電台.叱咤903
