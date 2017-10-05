@@ -105,48 +105,48 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222997759
+<br>【MediaFire】：http://quamiller.com/6GO3
+<br>【MediaFire】：http://www.linkbucks.com/A5MEq
+<br>【百度網盤】：http://quamiller.com/6GWD
+<br>【百度網盤】：http://www.linkbucks.com/A5MD7
+<br>【百度密碼】：1y8k
 
 <br>【節目名稱】：一點叮一叮.2017-10-05
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222998052
+<br>【MediaFire】：http://quamiller.com/6GOk
+<br>【MediaFire】：http://www.linkbucks.com/A5MEl
+<br>【百度網盤】：http://quamiller.com/6GUf
+<br>【百度網盤】：http://www.linkbucks.com/A5MEH
+<br>【百度密碼】：ymqt
 
 <br>【節目名稱】：人生交叉盤.2017-10-05
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222997812
+<br>【MediaFire】：http://quamiller.com/6GPe
+<br>【MediaFire】：http://www.linkbucks.com/A5MEh
+<br>【百度網盤】：http://quamiller.com/6GTL
+<br>【百度網盤】：http://www.linkbucks.com/A5MET
+<br>【百度密碼】：f3ts
 
 <br>【節目名稱】：你好嘢.2017-10-05
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-222998087
+<br>【MediaFire】：http://quamiller.com/6GQf
+<br>【MediaFire】：http://www.linkbucks.com/A5MEg
+<br>【百度網盤】：http://quamiller.com/6GRm
+<br>【百度網盤】：http://www.linkbucks.com/A5MEY
+<br>【百度密碼】：6v49
 
 <br>【節目名稱】：大玩派.2017-10-05
 <br>【節目頻道】：商業電台.雷霆881
