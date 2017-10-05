@@ -177,24 +177,24 @@
 <br>【節目主持】：江健聰
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Oldies Buddy.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223006760
+<br>【MediaFire】：http://quamiller.com/6RAO
+<br>【MediaFire】：http://www.linkbucks.com/A5Ruo
+<br>【百度網盤】：http://quamiller.com/6RCO
+<br>【百度網盤】：http://www.linkbucks.com/A5Ruf
+<br>【百度密碼】：6dr2
 
 <br>【節目名稱】：毒檸王國.2017-10-05
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-10-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223006581
+<br>【MediaFire】：http://quamiller.com/6R8A
+<br>【MediaFire】：http://www.linkbucks.com/A5Ruy
+<br>【百度網盤】：http://quamiller.com/6RGJ
+<br>【百度網盤】：http://www.linkbucks.com/A5RuL
+<br>【百度密碼】：augq
 
 <br>【節目名稱】：集雜志.2017-10-05
 <br>【節目頻道】：商業電台.叱咤903
