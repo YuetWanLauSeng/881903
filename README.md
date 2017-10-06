@@ -189,61 +189,61 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223071683
+<br>【MediaFire】：http://quamiller.com/8F2l
+<br>【MediaFire】：http://www.linkbucks.com/A5tT6
+<br>【百度網盤】：http://quamiller.com/8FMJ
+<br>【百度網盤】：http://www.linkbucks.com/A5tOy
+<br>【百度密碼】：ypqt
 
 <br>【節目名稱】：人民大道中.2017-10-06
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223071572
+<br>【MediaFire】：http://quamiller.com/8F20
+<br>【MediaFire】：http://www.linkbucks.com/A5tUR
+<br>【百度網盤】：http://quamiller.com/8FOP
+<br>【百度網盤】：http://www.linkbucks.com/A5tOi
+<br>【百度密碼】：wqt5
 
 <br>【節目名稱】：生活日常.2017-10-06
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223071511
+<br>【MediaFire】：http://quamiller.com/8F0w
+<br>【MediaFire】：http://www.linkbucks.com/A5tUW
+<br>【百度網盤】：http://quamiller.com/8FPI
+<br>【百度網盤】：http://www.linkbucks.com/A5tOc
+<br>【百度密碼】：yhmu
 
 <br>【節目名稱】：杏林茶.2017-10-06
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223071648
+<br>【MediaFire】：http://quamiller.com/8F61
+<br>【MediaFire】：http://www.linkbucks.com/A5tSl
+<br>【百度網盤】：http://quamiller.com/8FPz
+<br>【百度網盤】：http://quamiller.com/8FPz
+<br>【百度密碼】：yd6g
 
 <br>【節目名稱】：串.2017-10-06
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：中國實行「好人法」可行，不可行？
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223100988
+<br>【MediaFire】：http://quamiller.com/8Eyz
+<br>【MediaFire】：http://www.linkbucks.com/A5tU2
+<br>【百度網盤】：http://quamiller.com/8FRa
+<br>【百度網盤】：http://www.linkbucks.com/A5tOR
+<br>【百度密碼】：frfv
 
 <br>【節目名稱】：雲妮鍾情.2017-10-06
 <br>【節目頻道】：商業電台.叱咤903
