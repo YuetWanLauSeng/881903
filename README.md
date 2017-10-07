@@ -291,7 +291,7 @@
 <br>【節目名稱】：光明頂.2017-10-06
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：不詳
+<br>【節目話題】：優秀民族
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-06
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223104298
@@ -306,45 +306,45 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223166833
+<br>【MediaFire】：http://quamiller.com/93iR
+<br>【MediaFire】：http://www.linkbucks.com/A5iAT
+<br>【百度網盤】：http://quamiller.com/93bU
+<br>【百度網盤】：http://www.linkbucks.com/A5iG7
+<br>【百度密碼】：qik6
 
 <br>【節目名稱】：月光光呵呵呵.2017-10-06
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223166630
+<br>【MediaFire】：http://quamiller.com/93jR
+<br>【MediaFire】：http://www.linkbucks.com/A5h6a
+<br>【百度網盤】：http://quamiller.com/93cq
+<br>【百度網盤】：http://www.linkbucks.com/A5iFj
+<br>【百度密碼】：1buu
 
 <br>【節目名稱】：廣東爆谷.2017-10-06
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223166379
+<br>【MediaFire】：http://quamiller.com/93js
+<br>【MediaFire】：http://www.linkbucks.com/A5h4W
+<br>【百度網盤】：http://quamiller.com/93ek
+<br>【百度網盤】：http://www.linkbucks.com/A5iC0
+<br>【百度密碼】：9ak6
 
 <br>【節目名稱】：一切從音樂開始.2017-10-06
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223166288
+<br>【MediaFire】：http://quamiller.com/93hk
+<br>【MediaFire】：http://www.linkbucks.com/A5iBL
+<br>【百度網盤】：http://quamiller.com/93gE
+<br>【百度網盤】：http://www.linkbucks.com/A5iCY
+<br>【百度密碼】：u5cz
