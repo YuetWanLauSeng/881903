@@ -150,48 +150,48 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223239735
+<br>【MediaFire】：http://quamiller.com/9hQ3
+<br>【MediaFire】：http://www.linkbucks.com/A5VXu
+<br>【百度網盤】：http://quamiller.com/9h81
+<br>【百度網盤】：http://www.linkbucks.com/A5VT4
+<br>【百度密碼】：rjvg
 
 <br>【節目名稱】：豁達推介.2017-10-07
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223240209
+<br>【MediaFire】：http://quamiller.com/9hFz
+<br>【MediaFire】：http://www.linkbucks.com/A5VZA
+<br>【百度網盤】：http://quamiller.com/9h5e
+<br>【百度網盤】：http://www.linkbucks.com/A5VUN
+<br>【百度密碼】：pidu
 
 <br>【節目名稱】：大鐵人.2017-10-07
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223240336
+<br>【MediaFire】：http://quamiller.com/9hCx
+<br>【MediaFire】：http://www.linkbucks.com/A5VYh
+<br>【百度網盤】：http://quamiller.com/9h2E
+<br>【百度網盤】：http://www.linkbucks.com/A5VUa
+<br>【百度密碼】：y2ji
 
 <br>【節目名稱】：3號螺絲釘.2017-10-07
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223240303
+<br>【MediaFire】：http://quamiller.com/9hEQ
+<br>【MediaFire】：http://www.linkbucks.com/A5VZB
+<br>【百度網盤】：http://quamiller.com/9h3R
+<br>【百度網盤】：http://www.linkbucks.com/A5VUS
+<br>【百度密碼】：2adb
 
 <br>【節目名稱】：第三齡接觸.2017-10-07
 <br>【節目頻道】：商業電台.雷霆881
