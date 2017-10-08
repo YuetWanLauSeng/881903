@@ -102,48 +102,48 @@
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223339868
+<br>【MediaFire】：http://quamiller.com/BEoH
+<br>【MediaFire】：http://www.linkbucks.com/A5eSY
+<br>【百度網盤】：http://quamiller.com/BEZL
+<br>【百度網盤】：http://www.linkbucks.com/A5eVx
+<br>【百度密碼】：vdgt
 
 <br>【節目名稱】：Mali Mali Home.2017-10-08
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223340043
+<br>【MediaFire】：http://quamiller.com/BEdC
+<br>【MediaFire】：http://www.linkbucks.com/A5eUb
+<br>【百度網盤】：http://quamiller.com/BEXM
+<br>【百度網盤】：http://www.linkbucks.com/A5eWE
+<br>【百度密碼】：wjsr
 
 <br>【節目名稱】：串.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223340121
+<br>【MediaFire】：http://quamiller.com/BEb6
+<br>【MediaFire】：http://www.linkbucks.com/A5eVt
+<br>【百度網盤】：http://quamiller.com/BETY
+<br>【百度網盤】：http://www.linkbucks.com/A5eWS
+<br>【百度密碼】：4eip
 
 <br>【節目名稱】：讀懂中國.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223340103
+<br>【MediaFire】：http://quamiller.com/BEc9
+<br>【MediaFire】：http://www.linkbucks.com/A5eUi
+<br>【百度網盤】：http://quamiller.com/BEVh
+<br>【百度網盤】：http://www.linkbucks.com/A5eWN
+<br>【百度密碼】：fq33
 
 <br>【節目名稱】：國語類.2017-10-08
 <br>【節目頻道】：商業電台.叱咤903
