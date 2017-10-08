@@ -150,24 +150,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223344038
+<br>【MediaFire】：http://quamiller.com/BHab
+<br>【MediaFire】：http://www.linkbucks.com/A5d1j
+<br>【百度網盤】：http://quamiller.com/BHPL
+<br>【百度網盤】：http://www.linkbucks.com/A5d2t
+<br>【百度密碼】：e5b8
 
 <br>【節目名稱】：泡菜粉絲煲.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223344079
+<br>【MediaFire】：http://quamiller.com/BHRw
+<br>【MediaFire】：http://www.linkbucks.com/A5d2V
+<br>【百度網盤】：http://quamiller.com/BHKr
+<br>【百度網盤】：http://www.linkbucks.com/A5d26
+<br>【百度密碼】：h3uy
 
 <br>【節目名稱】：細路強.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881
