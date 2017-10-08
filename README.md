@@ -222,12 +222,12 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223284404
+<br>【MediaFire】：http://quamiller.com/Aflv
+<br>【MediaFire】：http://www.linkbucks.com/A5jA4
+<br>【百度網盤】：http://quamiller.com/Afmt
+<br>【百度網盤】：http://www.linkbucks.com/A5jAp
+<br>【百度密碼】：uhx3
 
 <br>【節目名稱】：Chi Chung's Class.2017-10-07
 <br>【節目頻道】：商業電台.叱咤903
@@ -258,48 +258,48 @@
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目日期】：2017-10-07
 <br>【節目主持】：森美
-<br>【節目嘉賓】：
+<br>【節目嘉賓】：J'Arie
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223284586
+<br>【MediaFire】：http://quamiller.com/AflM
+<br>【MediaFire】：http://www.linkbucks.com/A5jA6
+<br>【百度網盤】：http://quamiller.com/Aff4
+<br>【百度網盤】：http://www.linkbucks.com/A5jBj
+<br>【百度密碼】：mjja
 
 <br>【節目名稱】：發式生活.2017-10-07
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223284529
+<br>【MediaFire】：http://quamiller.com/Afko
+<br>【MediaFire】：http://www.linkbucks.com/A5jA8
+<br>【百度網盤】：http://quamiller.com/Afi3
+<br>【百度網盤】：http://www.linkbucks.com/A5jBR
+<br>【百度密碼】：kh2c
 
 <br>【節目名稱】：皇牌出場.2017-10-07
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223284549
+<br>【MediaFire】：http://quamiller.com/Afk2
+<br>【MediaFire】：http://www.linkbucks.com/A5jBC
+<br>【百度網盤】：http://quamiller.com/AfgW
+<br>【百度網盤】：http://www.linkbucks.com/A5jBc
+<br>【百度密碼】：puem
 
 <br>【節目名稱】：一切從音樂開始.2017-10-07
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223284514
+<br>【MediaFire】：http://quamiller.com/Afsf
+<br>【MediaFire】：http://www.linkbucks.com/A5jAX
+<br>【百度網盤】：http://quamiller.com/AfjI
+<br>【百度網盤】：http://www.linkbucks.com/A5jBE
+<br>【百度密碼】：i3wr
