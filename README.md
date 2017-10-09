@@ -186,81 +186,81 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223416781
+<br>【MediaFire】：http://yobuilder.com/3mc
+<br>【MediaFire】：http://www.linkbucks.com/A5jwr
+<br>【百度網盤】：http://yobuilder.com/3Z0
+<br>【百度網盤】：http://www.linkbucks.com/A5jya
+<br>【百度密碼】：ubvc
 
 <br>【節目名稱】：帶一本書去旅行.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：阮子健
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Readers for Riders.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223416750
+<br>【MediaFire】：http://yobuilder.com/3p0
+<br>【MediaFire】：http://www.linkbucks.com/A5jvy
+<br>【百度網盤】：http://yobuilder.com/3d1
+<br>【百度網盤】：http://www.linkbucks.com/A5jyC
+<br>【百度密碼】：wzyc
 
 <br>【節目名稱】：葛民教育.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223416744
+<br>【MediaFire】：http://yobuilder.com/3rW
+<br>【MediaFire】：http://www.linkbucks.com/A5jvs
+<br>【百度網盤】：http://yobuilder.com/3eB
+<br>【百度網盤】：http://www.linkbucks.com/A5jyB
+<br>【百度密碼】：5vn9
 
 <br>【節目名稱】：短期租約.2017-10-08
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223416772
+<br>【MediaFire】：http://yobuilder.com/3kX
+<br>【MediaFire】：http://www.linkbucks.com/A5jxg
+<br>【百度網盤】：http://yobuilder.com/3aG
+<br>【百度網盤】：http://www.linkbucks.com/A5jyF
+<br>【百度密碼】：gzki
 
 <br>【節目名稱】：心靈料理.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223416736
+<br>【MediaFire】：http://yobuilder.com/3qL
+<br>【MediaFire】：http://www.linkbucks.com/A5jvv
+<br>【百度網盤】：http://yobuilder.com/3fd
+<br>【百度網盤】：http://www.linkbucks.com/A5jx6
+<br>【百度密碼】：1s85
 
 <br>【節目名稱】：寫生活.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：881DJ
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223416688
+<br>【MediaFire】：http://yobuilder.com/3o9
+<br>【MediaFire】：http://www.linkbucks.com/A5jwk
+<br>【百度網盤】：http://yobuilder.com/3ig
+<br>【百度網盤】：http://www.linkbucks.com/A5jx0
+<br>【百度密碼】：8irf
 
 <br>【節目名稱】：一切從音樂開始.2017-10-08
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223416732
+<br>【MediaFire】：http://yobuilder.com/3ju
+<br>【MediaFire】：http://www.linkbucks.com/A5jxl
+<br>【百度網盤】：http://yobuilder.com/3hC
+<br>【百度網盤】：http://www.linkbucks.com/A5jx4
+<br>【百度密碼】：k7rb
