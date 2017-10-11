@@ -88,63 +88,57 @@
 <br>【節目名稱】：十八樓C座.2017-10-11
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-10-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『新聞專輯』
 
 <br>【節目名稱】：叱咤樂壇.2017-10-11
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-10-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223715411
+<br>【MediaFire】：http://yobuilder.com/48MN
+<br>【MediaFire】：http://www.linkbucks.com/kOxv
+<br>【百度網盤】：http://yobuilder.com/48qX
+<br>【百度網盤】：http://www.linkbucks.com/A5zFw
+<br>【百度密碼】：jcx8
 
 <br>【節目名稱】：一點叮一叮.2017-10-11
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-10-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223715507
+<br>【MediaFire】：http://yobuilder.com/48Xl
+<br>【MediaFire】：http://www.linkbucks.com/d4wo
+<br>【百度網盤】：http://yobuilder.com/48kD
+<br>【百度網盤】：http://www.linkbucks.com/A5zKt
+<br>【百度密碼】：akww
 
 <br>【節目名稱】：人生交叉盤.2017-10-11
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-10-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223715472
+<br>【MediaFire】：http://yobuilder.com/48W0
+<br>【MediaFire】：http://www.linkbucks.com/d4wq
+<br>【百度網盤】：http://yobuilder.com/48nq
+<br>【百度網盤】：http://www.linkbucks.com/A5zGa
+<br>【百度密碼】：c1qg
 
 <br>【節目名稱】：你好嘢.2017-10-11
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-10-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223715535
+<br>【MediaFire】：http://yobuilder.com/48OQ
+<br>【MediaFire】：http://www.linkbucks.com/d4w1
+<br>【百度網盤】：http://yobuilder.com/48gH
+<br>【百度網盤】：http://www.linkbucks.com/A5zLu
+<br>【百度密碼】：2ej4
 
 <br>【節目名稱】：大玩派.2017-10-11
 <br>【節目頻道】：商業電台.雷霆881
