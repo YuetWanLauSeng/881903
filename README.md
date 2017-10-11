@@ -226,24 +226,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223755944
+<br>【MediaFire】：http://yobuilder.com/4kVl
+<br>【MediaFire】：http://www.linkbucks.com/8aXb
+<br>【百度網盤】：http://yobuilder.com/4kab
+<br>【百度網盤】：http://www.linkbucks.com/73h9
+<br>【百度密碼】：m7m8
 
 <br>【節目名稱】：歐陽志強.2017-10-11
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223756424
+<br>【MediaFire】：http://yobuilder.com/4kWx
+<br>【MediaFire】：http://www.linkbucks.com/8ZGf
+<br>【百度網盤】：http://yobuilder.com/4kc6
+<br>【百度網盤】：http://www.linkbucks.com/7N4L
+<br>【百度密碼】：i6jj
 
 <br>【節目名稱】：書.情.歌.2017-10-11
 <br>【節目頻道】：商業電台.雷霆881
@@ -258,12 +258,12 @@
 <br>【節目話題】：
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223756330
+<br>【MediaFire】：http://yobuilder.com/4kUI
+<br>【MediaFire】：http://www.linkbucks.com/8rbu
+<br>【百度網盤】：http://yobuilder.com/4kZ3
+<br>【百度網盤】：http://www.linkbucks.com/7fi6
+<br>【百度密碼】：ft2r
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-11
 <br>【節目頻道】：商業電台.叱咤903
