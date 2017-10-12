@@ -233,15 +233,14 @@
 <br>【節目名稱】：串.2017-10-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223842985
+<br>【MediaFire】：http://yobuilder.com/6M3n
+<br>【MediaFire】：http://www.linkbucks.com/A6H6Q
+<br>【百度網盤】：http://yobuilder.com/6Luv
+<br>【百度網盤】：http://www.linkbucks.com/A6II8
+<br>【百度密碼】：pw3n
 
 <br>【節目名稱】：雲妮鍾情.2017-10-12
 <br>【節目頻道】：商業電台.叱咤903
