@@ -175,12 +175,12 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-10-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223950939
+<br>【MediaFire】：http://yobuilder.com/7YT7
+<br>【MediaFire】：http://www.linkbucks.com/A57fE
+<br>【百度網盤】：http://yobuilder.com/7YRk
+<br>【百度網盤】：http://www.linkbucks.com/A57fF
+<br>【百度密碼】：wytk
 
 <br>【節目名稱】：集雜志.2017-10-13
 <br>【節目頻道】：商業電台.叱咤903
