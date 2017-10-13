@@ -233,39 +233,39 @@
 <br>【節目名稱】：串.2017-10-13
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：發財好機會？全國「隕石獵人」齊集雲南香格里拉！
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223972718
+<br>【MediaFire】：http://yobuilder.com/7wTv
+<br>【MediaFire】：http://www.linkbucks.com/A6Dk0
+<br>【百度網盤】：http://yobuilder.com/7wcT
+<br>【百度網盤】：http://www.linkbucks.com/A6Dj5
+<br>【百度密碼】：y3xs
 
 <br>【節目名稱】：雲妮鍾情.2017-10-13
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223972804
+<br>【MediaFire】：http://yobuilder.com/7wS4
+<br>【MediaFire】：http://www.linkbucks.com/A6DlA
+<br>【百度網盤】：http://yobuilder.com/7wXx
+<br>【百度網盤】：http://www.linkbucks.com/A6DkQ
+<br>【百度密碼】：2pr9
 
 <br>【節目名稱】：歐陽志強.2017-10-13
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223972705
+<br>【MediaFire】：http://yobuilder.com/7wT5
+<br>【MediaFire】：http://www.linkbucks.com/A6Dk3
+<br>【百度網盤】：http://yobuilder.com/7wdp
+<br>【百度網盤】：http://www.linkbucks.com/A6Dji
+<br>【百度密碼】：289n
 
 <br>【節目名稱】：書.情.歌.2017-10-13
 <br>【節目頻道】：商業電台.雷霆881
@@ -279,25 +279,25 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-10-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223972739
+<br>【MediaFire】：http://yobuilder.com/7wUn
+<br>【MediaFire】：http://www.linkbucks.com/A6Dko
+<br>【百度網盤】：http://yobuilder.com/7waT
+<br>【百度網盤】：http://www.linkbucks.com/A6DkH
+<br>【百度密碼】：vet6
 
 <br>【節目名稱】：光明頂.2017-10-13
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目話題】：逆權司機
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-223973509
+<br>【MediaFire】：http://yobuilder.com/7wPi
+<br>【MediaFire】：http://www.linkbucks.com/A6DlP
+<br>【百度網盤】：http://yobuilder.com/7wWA
+<br>【百度網盤】：http://www.linkbucks.com/A6Dkh
+<br>【百度密碼】：w33t
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-13
 <br>【節目頻道】：商業電台.叱咤903
