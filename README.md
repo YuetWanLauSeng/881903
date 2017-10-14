@@ -90,48 +90,38 @@
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224015597
+<br>【MediaFire】：http://yobuilder.com/8nyL
+<br>【MediaFire】：http://www.linkbucks.com/A6Fdh
+<br>【百度網盤】：http://yobuilder.com/8nx8
+<br>【百度網盤】：http://www.linkbucks.com/A6Fd6
+<br>【百度密碼】：y9kn
 
 <br>【節目名稱】：中風危機解密.2017-10-14
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：阮子健
 <br>【節目時間】：12:00 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『一馬當先』
 
 <br>【節目名稱】：電影圈.2017-10-14
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『一馬當先』
 
 <br>【節目名稱】：咪芝蓮.2017-10-14
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224015605
+<br>【MediaFire】：http://yobuilder.com/8nxb
+<br>【MediaFire】：http://www.linkbucks.com/A6Fdl
+<br>【百度網盤】：http://yobuilder.com/8nwQ
+<br>【百度網盤】：http://www.linkbucks.com/A6FeD
+<br>【百度密碼】：yy5f
 
 <br>【節目名稱】：咆哮山莊.2017-10-14
 <br>【節目頻道】：商業電台.叱咤903
@@ -150,12 +140,7 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 17:00
 <br>【檔案名稱】：Circles.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『一馬當先』
 
 <br>【節目名稱】：豁達推介.2017-10-14
 <br>【節目頻道】：商業電台.叱咤903
@@ -174,12 +159,7 @@
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『一馬當先』
 
 <br>【節目名稱】：3號螺絲釘.2017-10-14
 <br>【節目頻道】：商業電台.叱咤903
