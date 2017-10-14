@@ -202,24 +202,24 @@
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224039937
+<br>【MediaFire】：http://yobuilder.com/9NNr
+<br>【MediaFire】：http://www.linkbucks.com/A6N3g
+<br>【百度網盤】：http://yobuilder.com/9Mtq
+<br>【百度網盤】：http://www.linkbucks.com/A6N5o
+<br>【百度密碼】：mwqc
 
 <br>【節目名稱】：Chi Chung's Class.2017-10-14
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224039969
+<br>【MediaFire】：http://yobuilder.com/9MwQ
+<br>【MediaFire】：http://www.linkbucks.com/A6N5Q
+<br>【百度網盤】：http://yobuilder.com/9Mun
+<br>【百度網盤】：http://www.linkbucks.com/A6N5X
+<br>【百度密碼】：k7yy
 
 <br>【節目名稱】：與時並進.2017-10-14
 <br>【節目頻道】：商業電台.雷霆881
