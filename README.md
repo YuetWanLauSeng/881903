@@ -128,12 +128,12 @@
 <br>【節目主持】：903DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224033787
+<br>【MediaFire】：http://yobuilder.com/9DcA
+<br>【MediaFire】：http://www.linkbucks.com/A6PD3
+<br>【百度網盤】：http://yobuilder.com/9Dk2
+<br>【百度網盤】：http://www.linkbucks.com/A6PDS
+<br>【百度密碼】：yde7
 
 <br>【節目名稱】：1圈圈（周末版）.2017-10-14
 <br>【節目頻道】：商業電台.雷霆881
@@ -147,12 +147,12 @@
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224033889
+<br>【MediaFire】：http://yobuilder.com/9DSt
+<br>【MediaFire】：http://www.linkbucks.com/A6PEY
+<br>【百度網盤】：http://yobuilder.com/9DiU
+<br>【百度網盤】：http://www.linkbucks.com/A6PDo
+<br>【百度密碼】：g27d
 
 <br>【節目名稱】：大鐵人.2017-10-14
 <br>【節目頻道】：商業電台.雷霆881
@@ -166,12 +166,12 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-10-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224034006
+<br>【MediaFire】：http://yobuilder.com/9DVj
+<br>【MediaFire】：http://www.linkbucks.com/A6PED
+<br>【百度網盤】：http://yobuilder.com/9Dgq
+<br>【百度網盤】：http://www.linkbucks.com/A6PDx
+<br>【百度密碼】：fb9s
 
 <br>【節目名稱】：第三齡接觸.2017-10-14
 <br>【節目頻道】：商業電台.雷霆881
