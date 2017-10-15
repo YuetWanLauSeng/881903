@@ -222,12 +222,12 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224090229
+<br>【MediaFire】：http://yobuilder.com/Ansd
+<br>【MediaFire】：http://www.linkbucks.com/A6WHn
+<br>【百度網盤】：http://yobuilder.com/AnoA
+<br>【百度網盤】：http://www.linkbucks.com/A6WIw
+<br>【百度密碼】：uiws
 
 <br>【節目名稱】：泡菜粉絲煲.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
@@ -246,36 +246,36 @@
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224090304
+<br>【MediaFire】：http://yobuilder.com/AnqC
+<br>【MediaFire】：http://www.linkbucks.com/A6WIf
+<br>【百度網盤】：http://yobuilder.com/AnkF
+<br>【百度網盤】：http://www.linkbucks.com/A6WLL
+<br>【百度密碼】：hkfn
 
 <br>【節目名稱】：國民教育.2017-10-15
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224090347
+<br>【MediaFire】：http://yobuilder.com/AoDz
+<br>【MediaFire】：http://www.linkbucks.com/A6V9b
+<br>【百度網盤】：http://yobuilder.com/Anhs
+<br>【百度網盤】：http://www.linkbucks.com/A6WMr
+<br>【百度密碼】：ci5k
 
 <br>【節目名稱】：薯片鬚Music.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：曾俊華
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Mr Chip's Soul Music.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224090321
+<br>【MediaFire】：http://yobuilder.com/Anr5
+<br>【MediaFire】：http://www.linkbucks.com/A6WIY
+<br>【百度網盤】：http://yobuilder.com/AnjF
+<br>【百度網盤】：http://www.linkbucks.com/A6WLq
+<br>【百度密碼】：8axx
 
 <br>【節目名稱】：葛民教育.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
