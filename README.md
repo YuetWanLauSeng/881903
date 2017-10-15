@@ -102,12 +102,12 @@
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224087434
+<br>【MediaFire】：http://yobuilder.com/AfyD
+<br>【MediaFire】：http://www.linkbucks.com/A6ZAv
+<br>【百度網盤】：http://yobuilder.com/Afze
+<br>【百度網盤】：http://www.linkbucks.com/A6ZAh
+<br>【百度密碼】：mjw7
 
 <br>【節目名稱】：無定向喪煲病狂.2017-10-15
 <br>【節目頻道】：商業電台.叱咤903
@@ -126,12 +126,12 @@
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Circles.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224087376
+<br>【MediaFire】：http://yobuilder.com/AfvB
+<br>【MediaFire】：http://www.linkbucks.com/A6ZBF
+<br>【百度網盤】：http://yobuilder.com/Ag13
+<br>【百度網盤】：http://www.linkbucks.com/A6ZAY
+<br>【百度密碼】：ti2j
 
 <br>【節目名稱】：貼身科技局.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
@@ -234,12 +234,12 @@
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224087405
+<br>【MediaFire】：http://yobuilder.com/Afw4
+<br>【MediaFire】：http://www.linkbucks.com/A6ZBB
+<br>【百度網盤】：http://yobuilder.com/Ag3y
+<br>【百度網盤】：http://www.linkbucks.com/A6ZAJ
+<br>【百度密碼】：6hh3
 
 <br>【節目名稱】：細路強.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
