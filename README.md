@@ -138,48 +138,48 @@
 <br>【節目主持】：譚嘉昇
 <br>【節目時間】：16:00 - 16:30
 <br>【檔案名稱】：Daily i.t. Bureau.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224086080
+<br>【MediaFire】：http://yobuilder.com/Af1g
+<br>【MediaFire】：http://www.linkbucks.com/A6ZVV
+<br>【百度網盤】：http://yobuilder.com/AfC4
+<br>【百度網盤】：http://www.linkbucks.com/A6ZSQ
+<br>【百度密碼】：cmvn
 
 <br>【節目名稱】：再創生機.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：余宜發
 <br>【節目時間】：16:30 - 17:00
 <br>【檔案名稱】：Hair Again.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224086116
+<br>【MediaFire】：http://yobuilder.com/Af2W
+<br>【MediaFire】：http://www.linkbucks.com/A6ZUm
+<br>【百度網盤】：http://yobuilder.com/Af9U
+<br>【百度網盤】：http://www.linkbucks.com/A6ZSn
+<br>【百度密碼】：ksh6
 
 <br>【節目名稱】：兒童適宜.2017-10-15
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224086461
+<br>【MediaFire】：http://yobuilder.com/AewU
+<br>【MediaFire】：http://www.linkbucks.com/A6ZWU
+<br>【百度網盤】：http://yobuilder.com/Af7s
+<br>【百度網盤】：http://www.linkbucks.com/A6ZS3
+<br>【百度密碼】：cjpv
 
 <br>【節目名稱】：大鐵人.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224086629
+<br>【MediaFire】：http://yobuilder.com/Aezk
+<br>【MediaFire】：http://www.linkbucks.com/A6ZV7
+<br>【百度網盤】：http://yobuilder.com/Af3k
+<br>【百度網盤】：http://www.linkbucks.com/A6ZUU
+<br>【百度密碼】：jibv
 
 <br>【節目名稱】：Mali Mali Home.2017-10-15
 <br>【節目頻道】：商業電台.叱咤903
@@ -198,24 +198,24 @@
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224086577
+<br>【MediaFire】：http://yobuilder.com/Af0l
+<br>【MediaFire】：http://www.linkbucks.com/A6ZV0
+<br>【百度網盤】：http://yobuilder.com/Af5C
+<br>【百度網盤】：http://www.linkbucks.com/A6ZUM
+<br>【百度密碼】：3e4t
 
 <br>【節目名稱】：讀懂中國.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224086533
+<br>【MediaFire】：http://yobuilder.com/AexU
+<br>【MediaFire】：http://www.linkbucks.com/A6ZWI
+<br>【百度網盤】：http://yobuilder.com/Af69
+<br>【百度網盤】：http://www.linkbucks.com/A6ZT7
+<br>【百度密碼】：dtvj
 
 <br>【節目名稱】：國語類.2017-10-15
 <br>【節目頻道】：商業電台.叱咤903
