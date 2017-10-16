@@ -88,63 +88,63 @@
 <br>【節目名稱】：十八樓C座.2017-10-16
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
+<br>【節目話題】：安老業輸入外勞
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-10-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224144329
+<br>【MediaFire】：http://skamason.com/gDK
+<br>【MediaFire】：http://www.linkbucks.com/A6hnx
+<br>【百度網盤】：http://skamason.com/gjX
+<br>【百度網盤】：http://www.linkbucks.com/A6hlp
+<br>【百度密碼】：ywj5
 
 <br>【節目名稱】：叱咤樂壇.2017-10-16
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-10-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224144386
+<br>【MediaFire】：http://skamason.com/gEJ
+<br>【MediaFire】：http://www.linkbucks.com/A6hnw
+<br>【百度網盤】：http://skamason.com/glj
+<br>【百度網盤】：http://www.linkbucks.com/A6hlm
+<br>【百度密碼】：g6h7
 
 <br>【節目名稱】：一點叮一叮.2017-10-16
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-10-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224144527
+<br>【MediaFire】：http://skamason.com/gFW
+<br>【MediaFire】：http://www.linkbucks.com/A6hnq
+<br>【百度網盤】：http://skamason.com/goQ
+<br>【百度網盤】：http://www.linkbucks.com/A6hlV
+<br>【百度密碼】：xagq
 
 <br>【節目名稱】：人生交叉盤.2017-10-16
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-10-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224144527
+<br>【MediaFire】：http://skamason.com/gOJ
+<br>【MediaFire】：http://www.linkbucks.com/A6hnP
+<br>【百度網盤】：http://skamason.com/gpg
+<br>【百度網盤】：http://www.linkbucks.com/A6hlK
+<br>【百度密碼】：s94j
 
 <br>【節目名稱】：你好嘢.2017-10-16
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-10-16
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224144637
+<br>【MediaFire】：http://skamason.com/gQN
+<br>【MediaFire】：http://www.linkbucks.com/A6hnL
+<br>【百度網盤】：http://skamason.com/gxw
+<br>【百度網盤】：http://www.linkbucks.com/A6hk8
+<br>【百度密碼】：a7uq
 
 <br>【節目名稱】：大玩派.2017-10-16
 <br>【節目頻道】：商業電台.雷霆881
