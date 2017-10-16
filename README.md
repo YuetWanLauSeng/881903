@@ -85,18 +85,6 @@
 <br>【百度網盤】：http://www.linkbucks.com/CZIk1
 <br>【百度密碼】：cw64
 
-<br>【節目名稱】：中風危機解密.2017-10-15
-<br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：阮子健
-<br>【節目時間】：12:00 - 13:00
-<br>【檔案名稱】：Stroke Decryption.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
-
 <br>【節目名稱】：電影圈.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：馮志豐 | 鄔家麟
@@ -114,12 +102,19 @@
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『扭扭擰擰扭扭擰』
+
+<br>【節目名稱】：扭扭擰擰扭扭擰.2017-10-15
+<br>【節目頻道】：商業電台.叱咤903
+<br>【節目主持】：檸
+<br>【節目時間】：13:00 - 15:00
+<br>【檔案名稱】：Twisty Risky Story.2017-10-15
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224132875
+<br>【MediaFire】：http://skamason.com/MiN
+<br>【MediaFire】：http://www.linkbucks.com/A6kZw
+<br>【百度網盤】：http://skamason.com/Mfa
+<br>【百度網盤】：http://www.linkbucks.com/A6kai
+<br>【百度密碼】：dhbe
 
 <br>【節目名稱】：1圈圈（周末版）.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
@@ -186,12 +181,19 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『My 當奴』
+
+<br>【節目名稱】：My 當奴.2017-10-15
+<br>【節目頻道】：商業電台.叱咤903
+<br>【節目主持】：Donald
+<br>【節目時間】：17:00 - 19:00
+<br>【檔案名稱】：My Donald.2017-10-15
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224132870
+<br>【MediaFire】：http://skamason.com/MnM
+<br>【MediaFire】：http://www.linkbucks.com/A6kZF
+<br>【百度網盤】：http://skamason.com/MpO
+<br>【百度網盤】：http://www.linkbucks.com/A6kZA
+<br>【百度密碼】：2mfq
 
 <br>【節目名稱】：串.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
@@ -282,57 +284,57 @@
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224094815
+<br>【MediaFire】：http://skamason.com/MrB
+<br>【MediaFire】：http://www.linkbucks.com/A6kYd
+<br>【百度網盤】：http://skamason.com/Mst
+<br>【百度網盤】：http://www.linkbucks.com/A6kYS
+<br>【百度密碼】：7cew
 
 <br>【節目名稱】：短期租約.2017-10-15
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224094927
+<br>【MediaFire】：http://skamason.com/MvB
+<br>【MediaFire】：http://www.linkbucks.com/A6kX5
+<br>【百度網盤】：http://skamason.com/MwU
+<br>【百度網盤】：http://www.linkbucks.com/A6kXz
+<br>【百度密碼】：smbu
 
 <br>【節目名稱】：心靈料理.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224094811
+<br>【MediaFire】：http://skamason.com/MyL
+<br>【MediaFire】：http://www.linkbucks.com/A6kXu
+<br>【百度網盤】：http://skamason.com/Mz8
+<br>【百度網盤】：http://www.linkbucks.com/A6kXr
+<br>【百度密碼】：w7ft
 
 <br>【節目名稱】：寫生活.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：881DJ
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224094659
+<br>【MediaFire】：http://skamason.com/N34
+<br>【MediaFire】：http://www.linkbucks.com/A6kXV
+<br>【百度網盤】：http://skamason.com/N7d
+<br>【百度網盤】：http://www.linkbucks.com/A6kWq
+<br>【百度密碼】：4isf
 
 <br>【節目名稱】：一切從音樂開始.2017-10-15
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224094795
+<br>【MediaFire】：http://skamason.com/N1T
+<br>【MediaFire】：http://www.linkbucks.com/A6kXc
+<br>【百度網盤】：http://skamason.com/N5f
+<br>【百度網盤】：http://www.linkbucks.com/A6kXI
+<br>【百度密碼】：5418
