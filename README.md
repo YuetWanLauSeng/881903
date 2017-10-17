@@ -187,48 +187,48 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224270111
+<br>【MediaFire】：http://skamason.com/38w5
+<br>【MediaFire】：http://www.linkbucks.com/A6s0R
+<br>【百度網盤】：http://skamason.com/38VQ
+<br>【百度網盤】：http://www.linkbucks.com/A6tGH
+<br>【百度密碼】：emeg
 
 <br>【節目名稱】：人民大道中.2017-10-17
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224270037
+<br>【MediaFire】：http://skamason.com/38xN
+<br>【MediaFire】：http://www.linkbucks.com/A6s0O
+<br>【百度網盤】：http://skamason.com/38XI
+<br>【百度網盤】：http://www.linkbucks.com/A6tE2
+<br>【百度密碼】：5vdg
 
 <br>【節目名稱】：生活日常.2017-10-17
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224269964
+<br>【MediaFire】：http://skamason.com/39CV
+<br>【MediaFire】：http://www.linkbucks.com/A6sxR
+<br>【百度網盤】：http://skamason.com/38Ye
+<br>【百度網盤】：http://www.linkbucks.com/A6s9a
+<br>【百度密碼】：p66y
 
 <br>【節目名稱】：杏林茶.2017-10-17
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224270085
+<br>【MediaFire】：http://skamason.com/38u5
+<br>【MediaFire】：http://www.linkbucks.com/A6s1G
+<br>【百度網盤】：http://skamason.com/38a3
+<br>【百度網盤】：http://www.linkbucks.com/A6s65
+<br>【百度密碼】：k597
 
 <br>【節目名稱】：串.2017-10-17
 <br>【節目頻道】：商業電台.雷霆881
@@ -236,48 +236,48 @@
 <br>【節目話題】：
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224270056
+<br>【MediaFire】：http://skamason.com/38qs
+<br>【MediaFire】：http://www.linkbucks.com/A6s2W
+<br>【百度網盤】：http://skamason.com/38c3
+<br>【百度網盤】：http://www.linkbucks.com/A6s6L
+<br>【百度密碼】：us69
 
 <br>【節目名稱】：雲妮鍾情.2017-10-17
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224270097
+<br>【MediaFire】：http://skamason.com/3912
+<br>【MediaFire】：http://www.linkbucks.com/A6szQ
+<br>【百度網盤】：http://skamason.com/38di
+<br>【百度網盤】：http://www.linkbucks.com/A6s6J
+<br>【百度密碼】：65qt
 
 <br>【節目名稱】：歐陽志強.2017-10-17
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224269760
+<br>【MediaFire】：http://skamason.com/38sq
+<br>【MediaFire】：http://www.linkbucks.com/A6s1p
+<br>【百度網盤】：http://skamason.com/38f4
+<br>【百度網盤】：http://www.linkbucks.com/A6s5Q
+<br>【百度密碼】：x29f
 
 <br>【節目名稱】：書.情.歌.2017-10-17
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224270044
+<br>【MediaFire】：http://skamason.com/38od
+<br>【MediaFire】：http://www.linkbucks.com/A6s2w
+<br>【百度網盤】：http://skamason.com/38gC
+<br>【百度網盤】：http://www.linkbucks.com/A6s4J
+<br>【百度密碼】：c43y
 
 <br>【節目名稱】：光明頂.2017-10-17
 <br>【節目頻道】：商業電台.雷霆881
@@ -285,12 +285,12 @@
 <br>【節目話題】：
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224270073
+<br>【MediaFire】：http://skamason.com/38v4
+<br>【MediaFire】：http://www.linkbucks.com/A6s05
+<br>【百度網盤】：http://skamason.com/38hT
+<br>【百度網盤】：http://www.linkbucks.com/A6s4B
+<br>【百度密碼】：yhfa
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-17
 <br>【節目頻道】：商業電台.叱咤903
