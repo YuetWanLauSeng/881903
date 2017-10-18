@@ -7,7 +7,7 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-10-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224329590
-<br>【MediaFire】：http://skamason.com/3wV8
+<br>【MediaFire】：http://skamason.com/3wV8a
 <br>【MediaFire】：http://www.linkbucks.com/A6WWu
 <br>【百度網盤】：http://skamason.com/3wYU
 <br>【百度網盤】：http://www.linkbucks.com/A6WWa
@@ -232,24 +232,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224492115
+<br>【MediaFire】：http://skamason.com/4o2g
+<br>【MediaFire】：http://www.linkbucks.com/A6cg5
+<br>【百度網盤】：http://skamason.com/4nuj
+<br>【百度網盤】：http://www.linkbucks.com/A6ch5
+<br>【百度密碼】：xsyd
 
 <br>【節目名稱】：歐陽志強.2017-10-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224491278
+<br>【MediaFire】：http://skamason.com/4nzd
+<br>【MediaFire】：http://www.linkbucks.com/A6chN
+<br>【百度網盤】：http://skamason.com/4nwX
+<br>【百度網盤】：http://www.linkbucks.com/A6chx
+<br>【百度密碼】：ste6
 
 <br>【節目名稱】：書.情.歌.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
@@ -264,12 +264,12 @@
 <br>【節目話題】：
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224491887
+<br>【MediaFire】：http://skamason.com/4nz0
+<br>【MediaFire】：http://www.linkbucks.com/A6chS
+<br>【百度網盤】：http://skamason.com/4nxv
+<br>【百度網盤】：http://www.linkbucks.com/A6chZ
+<br>【百度密碼】：yn6p
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-18
 <br>【節目頻道】：商業電台.叱咤903
