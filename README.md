@@ -187,12 +187,12 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224462037
+<br>【MediaFire】：http://skamason.com/4XHy
+<br>【MediaFire】：http://www.linkbucks.com/A6d2f
+<br>【百度網盤】：http://skamason.com/4XJM
+<br>【百度網盤】：http://www.linkbucks.com/A6d2W
+<br>【百度密碼】：97a8
 
 <br>【節目名稱】：人民大道中.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
@@ -206,12 +206,12 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224461959
+<br>【MediaFire】：http://skamason.com/4XGF
+<br>【MediaFire】：http://www.linkbucks.com/A6d2h
+<br>【百度網盤】：http://skamason.com/4XNb
+<br>【百度網盤】：http://www.linkbucks.com/A6d15
+<br>【百度密碼】：e9ug
 
 <br>【節目名稱】：杏林茶.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
