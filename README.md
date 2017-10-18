@@ -88,99 +88,99 @@
 <br>【節目名稱】：十八樓C座.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
+<br>【節目話題】：更上一犀層樓
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224444144
+<br>【MediaFire】：http://skamason.com/4Nd3
+<br>【MediaFire】：http://www.linkbucks.com/A6fN9
+<br>【百度網盤】：http://skamason.com/4Nbx
+<br>【百度網盤】：http://www.linkbucks.com/A6fOF
+<br>【百度密碼】：s75j
 
 <br>【節目名稱】：叱咤樂壇.2017-10-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224445355
+<br>【MediaFire】：http://skamason.com/4Ndm
+<br>【MediaFire】：http://www.linkbucks.com/A6fN6
+<br>【百度網盤】：http://skamason.com/4NY2
+<br>【百度網盤】：http://www.linkbucks.com/A6fOa
+<br>【百度密碼】：ciq7
 
 <br>【節目名稱】：一點叮一叮.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224445649
+<br>【MediaFire】：http://skamason.com/4Nec
+<br>【MediaFire】：http://www.linkbucks.com/A6fNx
+<br>【百度網盤】：http://skamason.com/4NWF
+<br>【百度網盤】：http://www.linkbucks.com/A6fOh
+<br>【百度密碼】：29j4
 
 <br>【節目名稱】：人生交叉盤.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224445411
+<br>【MediaFire】：http://skamason.com/4Nfr
+<br>【MediaFire】：http://www.linkbucks.com/A6fNd
+<br>【百度網盤】：http://skamason.com/4NVG
+<br>【百度網盤】：http://www.linkbucks.com/A6fOv
+<br>【百度密碼】：mgxm
 
 <br>【節目名稱】：你好嘢.2017-10-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224446306
+<br>【MediaFire】：http://skamason.com/4NhJ
+<br>【MediaFire】：http://www.linkbucks.com/A6fNS
+<br>【百度網盤】：http://skamason.com/4NUA
+<br>【百度網盤】：http://www.linkbucks.com/A6fO3
+<br>【百度密碼】：acxd
 
 <br>【節目名稱】：大玩派.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224446017
+<br>【MediaFire】：http://skamason.com/4Nie
+<br>【MediaFire】：http://www.linkbucks.com/A6fND
+<br>【百度網盤】：http://skamason.com/4NT6
+<br>【百度網盤】：http://www.linkbucks.com/A6fO5
+<br>【百度密碼】：4quy
 
 <br>【節目名稱】：口水多過浪花.2017-10-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224446232
+<br>【MediaFire】：http://skamason.com/4NjW
+<br>【MediaFire】：http://www.linkbucks.com/A6fMp
+<br>【百度網盤】：http://skamason.com/4NRs
+<br>【百度網盤】：http://www.linkbucks.com/A6fPG
+<br>【百度密碼】：3req
 
 <br>【節目名稱】：毒檸王國.2017-10-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224445512
+<br>【MediaFire】：http://skamason.com/4NkU
+<br>【MediaFire】：http://www.linkbucks.com/A6fMb
+<br>【百度網盤】：http://skamason.com/4NQl
+<br>【百度網盤】：http://www.linkbucks.com/A6fPR
+<br>【百度密碼】：3q9r
 
 <br>【節目名稱】：集雜志.2017-10-18
 <br>【節目頻道】：商業電台.叱咤903
