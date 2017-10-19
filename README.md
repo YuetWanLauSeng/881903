@@ -151,24 +151,24 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224604955
+<br>【MediaFire】：http://skamason.com/5ths
+<br>【MediaFire】：http://www.linkbucks.com/A6kRR
+<br>【百度網盤】：http://skamason.com/5td2
+<br>【百度網盤】：http://www.linkbucks.com/A6kR6
+<br>【百度密碼】：e463
 
 <br>【節目名稱】：口水多過浪花.2017-10-19
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224606473
+<br>【MediaFire】：http://skamason.com/5thG
+<br>【MediaFire】：http://www.linkbucks.com/A6kRV
+<br>【百度網盤】：http://skamason.com/5tg2
+<br>【百度網盤】：http://www.linkbucks.com/A6kRf
+<br>【百度密碼】：76sv
 
 <br>【節目名稱】：毒檸王國.2017-10-19
 <br>【節目頻道】：商業電台.叱咤903
