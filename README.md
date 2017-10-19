@@ -88,15 +88,15 @@
 <br>【節目名稱】：十八樓C座.2017-10-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
+<br>【節目話題】：又係發展局
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224574112
+<br>【MediaFire】：http://skamason.com/5i7K
+<br>【MediaFire】：http://www.linkbucks.com/A6lXn
+<br>【百度網盤】：http://skamason.com/5i4s
+<br>【百度網盤】：http://www.linkbucks.com/A6lX1
+<br>【百度密碼】：b26b
 
 <br>【節目名稱】：叱咤樂壇.2017-10-19
 <br>【節目頻道】：商業電台.叱咤903
