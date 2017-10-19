@@ -7,7 +7,7 @@
 <br>【節目時間】：06:00 - 07:00 
 <br>【檔案名稱】：Share My Song.2017-10-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224329590
-<br>【MediaFire】：http://skamason.com/3wV8a
+<br>【MediaFire】：http://skamason.com/3wV8
 <br>【MediaFire】：http://www.linkbucks.com/A6WWu
 <br>【百度網盤】：http://skamason.com/3wYU
 <br>【百度網盤】：http://www.linkbucks.com/A6WWa
@@ -261,7 +261,7 @@
 <br>【節目名稱】：光明頂.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目話題】：衝擊司法
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-18
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224491887
@@ -276,45 +276,45 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224516324
+<br>【MediaFire】：http://skamason.com/5MVE
+<br>【MediaFire】：http://www.linkbucks.com/A6oJC
+<br>【百度網盤】：http://skamason.com/5MNe
+<br>【百度網盤】：http://www.linkbucks.com/A6oJ3
+<br>【百度密碼】：pbwm
 
 <br>【節目名稱】：月光光呵呵呵.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224516141
+<br>【MediaFire】：http://skamason.com/5MUS
+<br>【MediaFire】：http://www.linkbucks.com/A6oJM
+<br>【百度網盤】：http://skamason.com/5MOx
+<br>【百度網盤】：http://www.linkbucks.com/A6oJv
+<br>【百度密碼】：nv6q
 
 <br>【節目名稱】：廣東爆谷.2017-10-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224515928
+<br>【MediaFire】：http://skamason.com/5MTN
+<br>【MediaFire】：http://www.linkbucks.com/A6oJP
+<br>【百度網盤】：http://skamason.com/5MQI
+<br>【百度網盤】：http://www.linkbucks.com/A6oJh
+<br>【百度密碼】：z4iw
 
 <br>【節目名稱】：一切從音樂開始.2017-10-18
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224515831
+<br>【MediaFire】：http://skamason.com/5MSK
+<br>【MediaFire】：http://www.linkbucks.com/A6oJS
+<br>【百度網盤】：http://skamason.com/5MRp
+<br>【百度網盤】：http://www.linkbucks.com/A6oJV
+<br>【百度密碼】：3ypm
