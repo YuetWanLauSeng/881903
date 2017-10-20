@@ -233,39 +233,39 @@
 <br>【節目名稱】：串.2017-10-20
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：「被中國人」－是福是禍？
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225081221
+<br>【MediaFire】：http://skamason.com/7l5d
+<br>【MediaFire】：http://www.linkbucks.com/A7Kkx
+<br>【百度網盤】：http://skamason.com/7kvx
+<br>【百度網盤】：http://www.linkbucks.com/A7KnL
+<br>【百度密碼】：xqv4
 
 <br>【節目名稱】：雲妮鍾情.2017-10-20
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225081321
+<br>【MediaFire】：http://skamason.com/7l6I
+<br>【MediaFire】：http://www.linkbucks.com/A7Kkg
+<br>【百度網盤】：http://skamason.com/7kxc
+<br>【百度網盤】：http://www.linkbucks.com/A7Kmu
+<br>【百度密碼】：2w7m
 
 <br>【節目名稱】：歐陽志強.2017-10-20
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225081189
+<br>【MediaFire】：http://skamason.com/7l4W
+<br>【MediaFire】：http://www.linkbucks.com/A7KlF
+<br>【百度網盤】：http://skamason.com/7kyw
+<br>【百度網盤】：http://www.linkbucks.com/A7KmW
+<br>【百度密碼】：hc2g
 
 <br>【節目名稱】：書.情.歌.2017-10-20
 <br>【節目頻道】：商業電台.雷霆881
@@ -278,25 +278,25 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-10-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225081243
+<br>【MediaFire】：http://skamason.com/7l3h
+<br>【MediaFire】：http://www.linkbucks.com/A7KlJ
+<br>【百度網盤】：http://skamason.com/7l1E
+<br>【百度網盤】：http://www.linkbucks.com/A7Klg
+<br>【百度密碼】：wjnp
 
 <br>【節目名稱】：光明頂.2017-10-20
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目主持】：陶傑 | 鮑偉聰 | 劉夢熊
+<br>【節目話題】：十九大
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225081463
+<br>【MediaFire】：http://skamason.com/7lD3
+<br>【MediaFire】：http://www.linkbucks.com/A7Kjw
+<br>【百度網盤】：http://skamason.com/7l2c
+<br>【百度網盤】：http://www.linkbucks.com/A7KlM
+<br>【百度密碼】：jdcs
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-20
 <br>【節目頻道】：商業電台.叱咤903
