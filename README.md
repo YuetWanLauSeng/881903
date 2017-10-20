@@ -248,94 +248,94 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224658665
+<br>【MediaFire】：http://skamason.com/6LwR
+<br>【MediaFire】：http://www.linkbucks.com/A6vrk
+<br>【百度網盤】：http://skamason.com/6siR
+<br>【百度網盤】：http://www.linkbucks.com/A6vro
+<br>【百度密碼】：i2fi
 
 <br>【節目名稱】：歐陽志強.2017-10-19
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224657973
+<br>【MediaFire】：http://skamason.com/6Lxn
+<br>【MediaFire】：http://www.linkbucks.com/A6vrS
+<br>【百度網盤】：http://skamason.com/6shM
+<br>【百度網盤】：http://www.linkbucks.com/A6vsF
+<br>【百度密碼】：auq3
 
 <br>【節目名稱】：書.情.歌.2017-10-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224719338
+<br>【MediaFire】：http://skamason.com/6slG
+<br>【MediaFire】：http://www.linkbucks.com/A6vrK
+<br>【百度網盤】：http://skamason.com/6sfJ
+<br>【百度網盤】：http://www.linkbucks.com/A6vsK
+<br>【百度密碼】：92q9
 
 <br>【節目名稱】：光明頂.2017-10-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目話題】：未知
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224719722
+<br>【MediaFire】：http://skamason.com/6smB
+<br>【MediaFire】：http://www.linkbucks.com/A6vqV
+<br>【百度網盤】：http://skamason.com/6seh
+<br>【百度網盤】：http://www.linkbucks.com/A6vsQ
+<br>【百度密碼】：yhts
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-19
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224719602
+<br>【MediaFire】：http://skamason.com/6snH
+<br>【MediaFire】：http://www.linkbucks.com/A6vqE
+<br>【百度網盤】：http://skamason.com/6sdB
+<br>【百度網盤】：http://www.linkbucks.com/A6vsl
+<br>【百度密碼】：a6fb
 
 <br>【節目名稱】：月光光呵呵呵.2017-10-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224719293
+<br>【MediaFire】：http://skamason.com/6sow
+<br>【MediaFire】：http://www.linkbucks.com/A6vp7
+<br>【百度網盤】：http://skamason.com/6scZ
+<br>【百度網盤】：http://www.linkbucks.com/A6vs0
+<br>【百度密碼】：6id8
 
 <br>【節目名稱】：廣東爆谷.2017-10-19
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224719013
+<br>【MediaFire】：http://skamason.com/6spR
+<br>【MediaFire】：http://www.linkbucks.com/A6vp0
+<br>【百度網盤】：http://skamason.com/6sbb
+<br>【百度網盤】：http://www.linkbucks.com/A6vs9
+<br>【百度密碼】：ik9u
 
 <br>【節目名稱】：一切從音樂開始.2017-10-19
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-224718912
+<br>【MediaFire】：http://skamason.com/6sq6
+<br>【MediaFire】：http://www.linkbucks.com/A6vpw
+<br>【百度網盤】：http://skamason.com/6sZy
+<br>【百度網盤】：http://www.linkbucks.com/A6vtB
+<br>【百度密碼】：gs3g
