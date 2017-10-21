@@ -90,48 +90,48 @@
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-10-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225229932
+<br>【MediaFire】：http://skamason.com/8eD0
+<br>【MediaFire】：http://www.linkbucks.com/A7SeD
+<br>【百度網盤】：http://skamason.com/8eeg
+<br>【百度網盤】：http://www.linkbucks.com/A7SYg
+<br>【百度密碼】：dedd
 
 <br>【節目名稱】：中風危機解密.2017-10-21
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：阮子健
 <br>【節目時間】：12:00 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-10-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225230099
+<br>【MediaFire】：http://skamason.com/8eEi
+<br>【MediaFire】：http://www.linkbucks.com/A7SeA
+<br>【百度網盤】：http://skamason.com/8edd
+<br>【百度網盤】：http://www.linkbucks.com/A7SYw
+<br>【百度密碼】：7l4l
 
 <br>【節目名稱】：電影圈.2017-10-21
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-10-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225230022
+<br>【MediaFire】：http://skamason.com/8eFl
+<br>【MediaFire】：http://www.linkbucks.com/A7Sdp
+<br>【百度網盤】：http://skamason.com/8ecI
+<br>【百度網盤】：http://www.linkbucks.com/A7SY0
+<br>【百度密碼】：juhi
 
 <br>【節目名稱】：咪芝蓮.2017-10-21
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-10-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225230071
+<br>【MediaFire】：http://skamason.com/8eGi
+<br>【MediaFire】：http://www.linkbucks.com/A7Sdb
+<br>【百度網盤】：http://skamason.com/8eb1
+<br>【百度網盤】：http://www.linkbucks.com/A7SZR
+<br>【百度密碼】：tm7a
 
 <br>【節目名稱】：咆哮山莊.2017-10-21
 <br>【節目頻道】：商業電台.叱咤903
