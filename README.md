@@ -186,24 +186,24 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-10-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225364572
+<br>【MediaFire】：http://skamason.com/AmCN
+<br>【MediaFire】：http://www.linkbucks.com/A7PX9
+<br>【百度網盤】：http://skamason.com/Am80
+<br>【百度網盤】：http://www.linkbucks.com/A7PYY
+<br>【百度密碼】：mb4u
 
 <br>【節目名稱】：薯片鬚Music.2017-10-22
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：曾俊華
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Mr Chip's Soul Music.2017-10-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225364432
+<br>【MediaFire】：http://skamason.com/AmDO
+<br>【MediaFire】：http://www.linkbucks.com/A7PXs
+<br>【百度網盤】：http://skamason.com/AmBY
+<br>【百度網盤】：http://www.linkbucks.com/A7PYT
+<br>【百度密碼】：72gv
 
 <br>【節目名稱】：葛民教育.2017-10-22
 <br>【節目頻道】：商業電台.雷霆881
