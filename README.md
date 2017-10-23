@@ -151,12 +151,12 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-10-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225414089
+<br>【MediaFire】：http://twineer.com/jY0
+<br>【MediaFire】：http://www.linkbucks.com/A6yP0
+<br>【百度網盤】：http://twineer.com/jWk
+<br>【百度網盤】：http://www.linkbucks.com/A6yP1
+<br>【百度密碼】：ebgs
 
 <br>【節目名稱】：口水多過浪花.2017-10-23
 <br>【節目頻道】：商業電台.叱咤903
