@@ -10,7 +10,7 @@
 <br>【MediaFire】：http://twineer.com/2Dsl
 <br>【MediaFire】：http://www.linkbucks.com/A7As0
 <br>【百度網盤】：http://twineer.com/2DuB
-<br>【百度網盤】：http://www.linkbucks.com/A7Asy
+<br>【百度網盤】：http://www.linkbucks.com/A7Asya
 <br>【百度密碼】：m4qj
 
 <br>【節目名稱】：在晴朗的一天出發（881）.2017-10-24
@@ -146,36 +146,36 @@
 <br>【節目主持】：蘇施黃 | Tristan | 朱菁
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：The Fun Box.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225488796
+<br>【MediaFire】：http://twineer.com/2cVU
+<br>【MediaFire】：http://www.linkbucks.com/A7H8G
+<br>【百度網盤】：http://twineer.com/2cZp
+<br>【百度網盤】：http://www.linkbucks.com/A7H6p
+<br>【百度密碼】：vj6j
 
 <br>【節目名稱】：口水多過浪花.2017-10-24
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Do 姐 | 余迪偉 | 麻利亞
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：When I Was Young I Listen To The Radio.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225488912
+<br>【MediaFire】：http://twineer.com/2cUo
+<br>【MediaFire】：http://www.linkbucks.com/A7H8J
+<br>【百度網盤】：http://twineer.com/2cYP
+<br>【百度網盤】：http://www.linkbucks.com/A7H7x
+<br>【百度密碼】：abn7
 
 <br>【節目名稱】：毒檸王國.2017-10-24
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225488953
+<br>【MediaFire】：http://twineer.com/2cWR
+<br>【MediaFire】：http://www.linkbucks.com/A7H78
+<br>【百度網盤】：http://twineer.com/2cb4
+<br>【百度網盤】：http://www.linkbucks.com/A7H6X
+<br>【百度密碼】：sihp
 
 <br>【節目名稱】：集雜志.2017-10-24
 <br>【節目頻道】：商業電台.叱咤903
