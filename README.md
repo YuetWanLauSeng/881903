@@ -206,86 +206,86 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225507591
+<br>【MediaFire】：http://twineer.com/2yHd
+<br>【MediaFire】：http://www.linkbucks.com/A7E7I
+<br>【百度網盤】：http://twineer.com/2wx4
+<br>【百度網盤】：http://www.linkbucks.com/A7FCk
+<br>【百度密碼】：kkxn
 
 <br>【節目名稱】：杏林茶.2017-10-24
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225507708
+<br>【MediaFire】：http://twineer.com/2xMv
+<br>【MediaFire】：http://www.linkbucks.com/A7E9W
+<br>【百度網盤】：http://twineer.com/2wvE
+<br>【百度網盤】：http://www.linkbucks.com/A7FCm
+<br>【百度密碼】：33dt
 
 <br>【節目名稱】：串.2017-10-24
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：破格不受接班人制肘 習近平或於二十大改體制
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225507656
+<br>【MediaFire】：http://twineer.com/2xHV
+<br>【MediaFire】：http://www.linkbucks.com/A7FAe
+<br>【百度網盤】：http://twineer.com/2wt5
+<br>【百度網盤】：http://www.linkbucks.com/A7FCr
+<br>【百度密碼】：8e5m
 
 <br>【節目名稱】：雲妮鍾情.2017-10-24
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225507758
+<br>【MediaFire】：http://twineer.com/2xYo
+<br>【MediaFire】：http://www.linkbucks.com/A7E80
+<br>【百度網盤】：http://twineer.com/2wrw
+<br>【百度網盤】：http://www.linkbucks.com/A7FC5
+<br>【百度密碼】：hsuq
 
 <br>【節目名稱】：歐陽志強.2017-10-24
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225506921
+<br>【MediaFire】：http://twineer.com/2xJO
+<br>【MediaFire】：http://www.linkbucks.com/A7FAM
+<br>【百度網盤】：http://twineer.com/2wqC
+<br>【百度網盤】：http://www.linkbucks.com/A7FDB
+<br>【百度密碼】：sqij
 
 <br>【節目名稱】：書.情.歌.2017-10-24
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葉宇澄
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Reading Time.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225507603
+<br>【MediaFire】：http://twineer.com/2xFE
+<br>【MediaFire】：http://www.linkbucks.com/A7FAi
+<br>【百度網盤】：http://twineer.com/2wn8
+<br>【百度網盤】：http://www.linkbucks.com/A7FDG
+<br>【百度密碼】：du1s
 
 <br>【節目名稱】：光明頂.2017-10-24
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目主持】：陶傑 | 鮑偉聰 | 劉夢熊
+<br>【節目話題】：十九大閉幕
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-24
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225507943
+<br>【MediaFire】：http://twineer.com/2xOC
+<br>【MediaFire】：http://www.linkbucks.com/A7E9o
+<br>【百度網盤】：http://twineer.com/2wkE
+<br>【百度網盤】：http://www.linkbucks.com/A7FDV
+<br>【百度密碼】：7edy
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-24
 <br>【節目頻道】：商業電台.叱咤903
