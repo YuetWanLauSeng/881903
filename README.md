@@ -88,51 +88,51 @@
 <br>【節目名稱】：十八樓C座.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
+<br>【節目話題】：周記廁所要收錢
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225861212
+<br>【MediaFire】：http://twineer.com/7X2w
+<br>【MediaFire】：http://www.linkbucks.com/A7aqo
+<br>【百度網盤】：http://twineer.com/7X1s
+<br>【百度網盤】：http://www.linkbucks.com/A7arv
+<br>【百度密碼】：an8k
 
 <br>【節目名稱】：叱咤樂壇.2017-10-27
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 15:00
 <br>【檔案名稱】：903 Music.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225861547
+<br>【MediaFire】：http://twineer.com/7X3l
+<br>【MediaFire】：http://www.linkbucks.com/A7apo
+<br>【百度網盤】：http://twineer.com/7WwI
+<br>【百度網盤】：http://www.linkbucks.com/A7atJ
+<br>【百度密碼】：xtqz
 
 <br>【節目名稱】：一點叮一叮.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225861704
+<br>【MediaFire】：http://twineer.com/7X4s
+<br>【MediaFire】：http://www.linkbucks.com/A7apg
+<br>【百度網盤】：http://twineer.com/7WoR
+<br>【百度網盤】：http://www.linkbucks.com/A7awB
+<br>【百度密碼】：t4py
 
 <br>【節目名稱】：人生交叉盤.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225861616
+<br>【MediaFire】：http://twineer.com/7X8J
+<br>【MediaFire】：http://www.linkbucks.com/A7aoF
+<br>【百度網盤】：http://twineer.com/7Wqz
+<br>【百度網盤】：http://www.linkbucks.com/A7avf
+<br>【百度密碼】：kzp4
 
 <br>【節目名稱】：你好嘢.2017-10-27
 <br>【節目頻道】：商業電台.叱咤903
