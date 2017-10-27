@@ -182,48 +182,48 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225892350
+<br>【MediaFire】：http://twineer.com/84SF
+<br>【MediaFire】：http://www.linkbucks.com/A7qko
+<br>【百度網盤】：http://twineer.com/84Tz
+<br>【百度網盤】：http://www.linkbucks.com/A7qjZ
+<br>【百度密碼】：cawv
 
 <br>【節目名稱】：人民大道中.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225892080
+<br>【MediaFire】：http://twineer.com/84Qr
+<br>【MediaFire】：http://www.linkbucks.com/A7qlM
+<br>【百度網盤】：http://twineer.com/84VU
+<br>【百度網盤】：http://www.linkbucks.com/A7qi9
+<br>【百度密碼】：ubfr
 
 <br>【節目名稱】：生活日常.2017-10-27
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225892030
+<br>【MediaFire】：http://twineer.com/84Pe
+<br>【MediaFire】：http://www.linkbucks.com/A7qmE
+<br>【百度網盤】：http://twineer.com/84We
+<br>【百度網盤】：http://www.linkbucks.com/A7qi6
+<br>【百度密碼】：afku
 
 <br>【節目名稱】：杏林茶.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225892240
+<br>【MediaFire】：http://twineer.com/84OL
+<br>【MediaFire】：http://www.linkbucks.com/A7qmF
+<br>【百度網盤】：http://twineer.com/84Xp
+<br>【百度網盤】：http://www.linkbucks.com/A7qiS
+<br>【百度密碼】：freu
 
 <br>【節目名稱】：串.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
@@ -231,36 +231,36 @@
 <br>【節目話題】：
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225915317
+<br>【MediaFire】：http://twineer.com/84NL
+<br>【MediaFire】：http://www.linkbucks.com/A7qmN
+<br>【百度網盤】：http://twineer.com/84ZQ
+<br>【百度網盤】：http://www.linkbucks.com/A7qh5
+<br>【百度密碼】：rjt8
 
 <br>【節目名稱】：雲妮鍾情.2017-10-27
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225915360
+<br>【MediaFire】：http://twineer.com/84MN
+<br>【MediaFire】：http://www.linkbucks.com/A7qos
+<br>【百度網盤】：http://twineer.com/84bE
+<br>【百度網盤】：http://www.linkbucks.com/A7qhw
+<br>【百度密碼】：ix9p
 
 <br>【節目名稱】：歐陽志強.2017-10-27
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225915211
+<br>【MediaFire】：http://twineer.com/84LY
+<br>【MediaFire】：http://www.linkbucks.com/A7qou
+<br>【百度網盤】：http://twineer.com/84d4
+<br>【百度網盤】：http://www.linkbucks.com/A7qht
+<br>【百度密碼】：64vm
 
 <br>【節目名稱】：書.情.歌.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
@@ -274,12 +274,12 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225915343
+<br>【MediaFire】：http://twineer.com/84KK
+<br>【MediaFire】：http://www.linkbucks.com/A7qov
+<br>【百度網盤】：http://twineer.com/84ek
+<br>【百度網盤】：http://www.linkbucks.com/A7qhn
+<br>【百度密碼】：m1dv
 
 <br>【節目名稱】：光明頂.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
@@ -287,12 +287,12 @@
 <br>【節目話題】：
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225916356
+<br>【MediaFire】：http://twineer.com/84JE
+<br>【MediaFire】：http://www.linkbucks.com/A7qpE
+<br>【百度網盤】：http://twineer.com/84gm
+<br>【百度網盤】：http://www.linkbucks.com/A7qhc
+<br>【百度密碼】：2d4d
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-10-27
 <br>【節目頻道】：商業電台.叱咤903
