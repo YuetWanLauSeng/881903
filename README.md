@@ -162,84 +162,84 @@
 <br>【節目主持】：譚嘉昇
 <br>【節目時間】：16:00 - 16:30
 <br>【檔案名稱】：Daily i.t. Bureau.2017-10-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226101120
+<br>【MediaFire】：http://twineer.com/9SNv
+<br>【MediaFire】：http://www.linkbucks.com/A7hwg
+<br>【百度網盤】：http://twineer.com/9SP2
+<br>【百度網盤】：http://www.linkbucks.com/A7hwb
+<br>【百度密碼】：g7hg
 
 <br>【節目名稱】：再創生機.2017-10-28
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：余宜發
 <br>【節目時間】：16:30 - 17:00
 <br>【檔案名稱】：Hair Again.2017-10-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226101445
+<br>【MediaFire】：http://twineer.com/9S2l
+<br>【MediaFire】：http://www.linkbucks.com/A7hz4
+<br>【百度網盤】：http://twineer.com/9S4Q
+<br>【百度網盤】：http://www.linkbucks.com/A7hyi
+<br>【百度密碼】：nggf
 
 <br>【節目名稱】：豁達推介.2017-10-28
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-10-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226102505
+<br>【MediaFire】：http://twineer.com/9Tfz
+<br>【MediaFire】：http://www.linkbucks.com/A7hom
+<br>【百度網盤】：http://twineer.com/9Ryz
+<br>【百度網盤】：http://www.linkbucks.com/A7h0I
+<br>【百度密碼】：4kty
 
 <br>【節目名稱】：大鐵人.2017-10-28
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-10-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226102956
+<br>【MediaFire】：http://twineer.com/9RvY
+<br>【MediaFire】：http://www.linkbucks.com/A7h0P
+<br>【百度網盤】：http://twineer.com/9Rwi
+<br>【百度網盤】：http://www.linkbucks.com/A7h0N
+<br>【百度密碼】：qv8t
 
 <br>【節目名稱】：3號螺絲釘.2017-10-28
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-10-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226102799
+<br>【MediaFire】：http://twineer.com/9TkL
+<br>【MediaFire】：http://www.linkbucks.com/A7hoQ
+<br>【百度網盤】：http://twineer.com/9Rti
+<br>【百度網盤】：http://www.linkbucks.com/A7h0Q
+<br>【百度密碼】：ua15
 
 <br>【節目名稱】：第三齡接觸.2017-10-28
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-10-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226102879
+<br>【MediaFire】：http://twineer.com/9Rqv
+<br>【MediaFire】：http://www.linkbucks.com/A7h0U
+<br>【百度網盤】：http://twineer.com/9Rs0
+<br>【百度網盤】：http://www.linkbucks.com/A7h0T
+<br>【百度密碼】：q79a
 
 <br>【節目名稱】：西瓜大發.2017-10-28
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-10-28
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226103018
+<br>【MediaFire】：http://twineer.com/9TjP
+<br>【MediaFire】：http://www.linkbucks.com/A7hoU
+<br>【百度網盤】：http://twineer.com/9Rp1
+<br>【百度網盤】：http://www.linkbucks.com/A7h0V
+<br>【百度密碼】：f5am
 
 <br>【節目名稱】：雷霆音樂圈.2017-10-28
 <br>【節目頻道】：商業電台.雷霆881
