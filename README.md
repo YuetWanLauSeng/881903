@@ -228,7 +228,7 @@
 <br>【節目名稱】：串.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：結婚易離婚難？濟南推三個月冷靜期意義何在？
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-27
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225915317
@@ -284,7 +284,7 @@
 <br>【節目名稱】：光明頂.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目話題】：不詳
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-10-27
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225916356
@@ -299,45 +299,45 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225999293
+<br>【MediaFire】：http://twineer.com/8yjG
+<br>【MediaFire】：http://www.linkbucks.com/A7xmo
+<br>【百度網盤】：http://twineer.com/8ySb
+<br>【百度網盤】：http://www.linkbucks.com/A7xoc
+<br>【百度密碼】：8ykk
 
 <br>【節目名稱】：月光光呵呵呵.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225999209
+<br>【MediaFire】：http://twineer.com/8ylm
+<br>【MediaFire】：http://www.linkbucks.com/A7xml
+<br>【百度網盤】：http://twineer.com/8yV6
+<br>【百度網盤】：http://www.linkbucks.com/A7xn3
+<br>【百度密碼】：n4e1
 
 <br>【節目名稱】：廣東爆谷.2017-10-27
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225998951
+<br>【MediaFire】：http://twineer.com/8ymh
+<br>【MediaFire】：http://www.linkbucks.com/A7xmd
+<br>【百度網盤】：http://twineer.com/8yY8
+<br>【百度網盤】：http://www.linkbucks.com/A7xn0
+<br>【百度密碼】：rghe
 
 <br>【節目名稱】：一切從音樂開始.2017-10-27
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-27
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-225998893
+<br>【MediaFire】：http://twineer.com/8yn8
+<br>【MediaFire】：http://www.linkbucks.com/A7xmO
+<br>【百度網盤】：http://twineer.com/8yZF
+<br>【百度網盤】：http://www.linkbucks.com/A7xnv
+<br>【百度密碼】：kt58
