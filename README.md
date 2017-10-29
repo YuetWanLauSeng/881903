@@ -114,38 +114,38 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226242899
+<br>【MediaFire】：http://twineer.com/Agls
+<br>【MediaFire】：http://www.linkbucks.com/A7kGw
+<br>【百度網盤】：http://twineer.com/Agcy
+<br>【百度網盤】：http://www.linkbucks.com/A7kHn
+<br>【百度密碼】：fjir
 
 <br>【節目名稱】：串.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：新晉常委上位之路
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226243179
+<br>【MediaFire】：http://twineer.com/Agn5
+<br>【MediaFire】：http://www.linkbucks.com/A7kGu
+<br>【百度網盤】：http://twineer.com/AgSl
+<br>【百度網盤】：http://www.linkbucks.com/A7kIe
+<br>【百度密碼】：memd
 
 <br>【節目名稱】：讀懂中國.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文
-<br>【節目話題】：
+<br>【節目話題】：新晉常委上位之路
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226243078
+<br>【MediaFire】：http://twineer.com/Agnl
+<br>【MediaFire】：http://www.linkbucks.com/A7kGs
+<br>【百度網盤】：http://twineer.com/AgUn
+<br>【百度網盤】：http://www.linkbucks.com/A7kIO
+<br>【百度密碼】：n1yj
 
 <br>【節目名稱】：國語類.2017-10-29
 <br>【節目頻道】：商業電台.叱咤903
