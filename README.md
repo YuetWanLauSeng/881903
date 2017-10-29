@@ -188,36 +188,36 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226265385
+<br>【MediaFire】：http://twineer.com/Au3r
+<br>【MediaFire】：http://www.linkbucks.com/A7tG7
+<br>【百度網盤】：http://twineer.com/Atbk
+<br>【百度網盤】：http://www.linkbucks.com/A7tKx
+<br>【百度密碼】：qyc8
 
 <br>【節目名稱】：薯片鬚Music.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：曾俊華
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Mr Chip's Soul Music.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226265174
+<br>【MediaFire】：http://twineer.com/AtjC
+<br>【MediaFire】：http://www.linkbucks.com/A7tJW
+<br>【百度網盤】：http://twineer.com/AtgQ
+<br>【百度網盤】：http://www.linkbucks.com/A7tKB
+<br>【百度密碼】：sue4
 
 <br>【節目名稱】：葛民教育.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226265050
+<br>【MediaFire】：http://twineer.com/Atie
+<br>【MediaFire】：http://www.linkbucks.com/A7tJY
+<br>【百度網盤】：http://twineer.com/Athv
+<br>【百度網盤】：http://www.linkbucks.com/A7tJf
+<br>【百度密碼】：2ui7
 
 <br>【節目名稱】：短期租約.2017-10-29
 <br>【節目頻道】：商業電台.叱咤903
