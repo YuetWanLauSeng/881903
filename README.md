@@ -102,12 +102,12 @@
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226225949
+<br>【MediaFire】：http://twineer.com/AY6z
+<br>【MediaFire】：http://www.linkbucks.com/A7lQK
+<br>【百度網盤】：http://twineer.com/AY87
+<br>【百度網盤】：http://www.linkbucks.com/A7lP3
+<br>【百度密碼】：46t7
 
 <br>【節目名稱】：Mali Mali Home.2017-10-29
 <br>【節目頻道】：商業電台.叱咤903
