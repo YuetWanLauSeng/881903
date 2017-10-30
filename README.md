@@ -224,45 +224,45 @@
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226288182
+<br>【MediaFire】：http://vializer.com/36y
+<br>【MediaFire】：http://www.linkbucks.com/A7TEY
+<br>【百度網盤】：http://vializer.com/38h
+<br>【百度網盤】：http://www.linkbucks.com/A7TED
+<br>【百度密碼】：pmvi
 
 <br>【節目名稱】：心靈料理.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226288173
+<br>【MediaFire】：http://vializer.com/2rf
+<br>【MediaFire】：http://www.linkbucks.com/A7TGO
+<br>【百度網盤】：http://vializer.com/2uC
+<br>【百度網盤】：http://www.linkbucks.com/A7TF7
+<br>【百度密碼】：1x6h
 
 <br>【節目名稱】：寫生活.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：881DJ
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226288144
+<br>【MediaFire】：http://vializer.com/2xI
+<br>【MediaFire】：http://www.linkbucks.com/A7TFf
+<br>【百度網盤】：http://vializer.com/30B
+<br>【百度網盤】：http://www.linkbucks.com/A7TFe
+<br>【百度密碼】：6qnr
 
 <br>【節目名稱】：一切從音樂開始.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-29
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226288172
+<br>【MediaFire】：http://vializer.com/3QM
+<br>【MediaFire】：http://www.linkbucks.com/A7TCR
+<br>【百度網盤】：http://vializer.com/34h
+<br>【百度網盤】：http://www.linkbucks.com/A7TE4
+<br>【百度密碼】：ngjs
