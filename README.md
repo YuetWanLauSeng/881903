@@ -188,81 +188,81 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-10-29
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226265385
-<br>【MediaFire】：http://twineer.com/Au3r
-<br>【MediaFire】：http://www.linkbucks.com/A7tG7
-<br>【百度網盤】：http://twineer.com/Atbk
-<br>【百度網盤】：http://www.linkbucks.com/A7tKx
-<br>【百度密碼】：qyc8
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226323427
+<br>【MediaFire】：http://vializer.com/Shn
+<br>【MediaFire】：http://www.linkbucks.com/ApgfP
+<br>【百度網盤】：http://vializer.com/SoU
+<br>【百度網盤】：http://www.linkbucks.com/Ambap
+<br>【百度密碼】：n2vr
 
 <br>【節目名稱】：薯片鬚Music.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：曾俊華
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Mr Chip's Soul Music.2017-10-29
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226265174
-<br>【MediaFire】：http://twineer.com/AtjC
-<br>【MediaFire】：http://www.linkbucks.com/A7tJW
-<br>【百度網盤】：http://twineer.com/AtgQ
-<br>【百度網盤】：http://www.linkbucks.com/A7tKB
-<br>【百度密碼】：sue4
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226322958
+<br>【MediaFire】：http://vializer.com/Spm
+<br>【MediaFire】：http://www.linkbucks.com/AmTAU
+<br>【百度網盤】：http://vializer.com/SrR
+<br>【百度網盤】：http://www.linkbucks.com/AmGH2
+<br>【百度密碼】：q2cm
 
 <br>【節目名稱】：葛民教育.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-10-29
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226265050
-<br>【MediaFire】：http://twineer.com/Atie
-<br>【MediaFire】：http://www.linkbucks.com/A7tJY
-<br>【百度網盤】：http://twineer.com/Athv
-<br>【百度網盤】：http://www.linkbucks.com/A7tJf
-<br>【百度密碼】：2ui7
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226322874
+<br>【MediaFire】：http://vializer.com/SuW
+<br>【MediaFire】：http://www.linkbucks.com/AlaMW
+<br>【百度網盤】：http://vializer.com/Sw1
+<br>【百度網盤】：http://www.linkbucks.com/AlQu2
+<br>【百度密碼】：r8vt
 
 <br>【節目名稱】：短期租約.2017-10-29
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-10-29
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226288182
-<br>【MediaFire】：http://vializer.com/36y
-<br>【MediaFire】：http://www.linkbucks.com/A7TEY
-<br>【百度網盤】：http://vializer.com/38h
-<br>【百度網盤】：http://www.linkbucks.com/A7TED
-<br>【百度密碼】：pmvi
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226323359
+<br>【MediaFire】：http://vializer.com/Sy7
+<br>【MediaFire】：http://www.linkbucks.com/Akwz9
+<br>【百度網盤】：http://vializer.com/SzY
+<br>【百度網盤】：http://www.linkbucks.com/AkJls
+<br>【百度密碼】：2ja3
 
 <br>【節目名稱】：心靈料理.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-10-29
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226288173
-<br>【MediaFire】：http://vializer.com/2rf
-<br>【MediaFire】：http://www.linkbucks.com/A7TGO
-<br>【百度網盤】：http://vializer.com/2uC
-<br>【百度網盤】：http://www.linkbucks.com/A7TF7
-<br>【百度密碼】：1x6h
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226322546
+<br>【MediaFire】：http://vializer.com/T1f
+<br>【MediaFire】：http://www.linkbucks.com/Aj5yu
+<br>【百度網盤】：http://vializer.com/T2t
+<br>【百度網盤】：http://www.linkbucks.com/AjI59
+<br>【百度密碼】：8rdb
 
 <br>【節目名稱】：寫生活.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：881DJ
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Bedtime Readings.2017-10-29
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226288144
-<br>【MediaFire】：http://vializer.com/2xI
-<br>【MediaFire】：http://www.linkbucks.com/A7TFf
-<br>【百度網盤】：http://vializer.com/30B
-<br>【百度網盤】：http://www.linkbucks.com/A7TFe
-<br>【百度密碼】：6qnr
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226322173
+<br>【MediaFire】：http://vializer.com/T3x
+<br>【MediaFire】：http://www.linkbucks.com/Ai5sL
+<br>【百度網盤】：http://vializer.com/T5s
+<br>【百度網盤】：http://www.linkbucks.com/Ai4IC
+<br>【百度密碼】：u8sk
 
 <br>【節目名稱】：一切從音樂開始.2017-10-29
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-10-29
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226288172
-<br>【MediaFire】：http://vializer.com/3QM
-<br>【MediaFire】：http://www.linkbucks.com/A7TCR
-<br>【百度網盤】：http://vializer.com/34h
-<br>【百度網盤】：http://www.linkbucks.com/A7TE4
-<br>【百度密碼】：ngjs
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226322429
+<br>【MediaFire】：http://vializer.com/TBi
+<br>【MediaFire】：http://www.linkbucks.com/Afx9i
+<br>【百度網盤】：http://vializer.com/TCI
+<br>【百度網盤】：http://www.linkbucks.com/AfqaK
+<br>【百度密碼】：m26q
