@@ -175,48 +175,43 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-10-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226473486
+<br>【MediaFire】：http://vializer.com/2m9C
+<br>【MediaFire】：http://www.linkbucks.com/A779s
+<br>【百度網盤】：http://vializer.com/2m5I
+<br>【百度網盤】：http://www.linkbucks.com/A78Af
+<br>【百度密碼】：93a7
 
 <br>【節目名稱】：集雜志.2017-10-31
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：急急子
-<br>【節目時間】：18:00 - 19:00
+<br>【節目時間】：18:00 - 20:00
 <br>【檔案名稱】：Zine.2017-10-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226478327
+<br>【MediaFire】：http://vializer.com/2mAZ
+<br>【MediaFire】：http://www.linkbucks.com/A779Z
+<br>【百度網盤】：http://vializer.com/2m6u
+<br>【百度網盤】：http://www.linkbucks.com/A7799
+<br>【百度密碼】：4qea
 
 <br>【節目名稱】：人民大道中.2017-10-31
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-10-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226477081
+<br>【MediaFire】：http://vializer.com/2mCW
+<br>【MediaFire】：http://www.linkbucks.com/A779Y
+<br>【百度網盤】：http://vializer.com/2m8B
+<br>【百度網盤】：http://www.linkbucks.com/A779v
+<br>【百度密碼】：ng6a
 
 <br>【節目名稱】：生活日常.2017-10-31
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-10-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【節目暫停】：改播『集雜志』及『雲妮鍾情』
 
 <br>【節目名稱】：杏林茶.2017-10-31
 <br>【節目頻道】：商業電台.雷霆881
@@ -246,7 +241,7 @@
 <br>【節目名稱】：雲妮鍾情.2017-10-31
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
-<br>【節目時間】：21:00 - 22:30
+<br>【節目時間】：20:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-10-31
 <br>【城通網盤】：
 <br>【MediaFire】：
