@@ -218,25 +218,25 @@
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-10-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226481841
+<br>【MediaFire】：http://vializer.com/2tFu
+<br>【MediaFire】：http://www.linkbucks.com/A75zT
+<br>【百度網盤】：http://vializer.com/2tDf
+<br>【百度網盤】：http://www.linkbucks.com/A75zW
+<br>【百度密碼】：5wdt
 
 <br>【節目名稱】：串.2017-10-31
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：14歲俄國女Model上海「過勞」猝死，中國點拆局？
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-10-31
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226482520
+<br>【MediaFire】：http://vializer.com/2tJY
+<br>【MediaFire】：http://www.linkbucks.com/A75y9
+<br>【百度網盤】：http://vializer.com/2t6T
+<br>【百度網盤】：http://www.linkbucks.com/A75za
+<br>【百度密碼】：pq3k
 
 <br>【節目名稱】：雲妮鍾情.2017-10-31
 <br>【節目頻道】：商業電台.叱咤903
