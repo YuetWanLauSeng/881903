@@ -175,73 +175,73 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-11-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226644894
+<br>【MediaFire】：http://vializer.com/6u4j
+<br>【MediaFire】：http://www.linkbucks.com/A8K9t
+<br>【百度網盤】：http://vializer.com/6u6D
+<br>【百度網盤】：http://www.linkbucks.com/A8K9s
+<br>【百度密碼】：b6vn
 
 <br>【節目名稱】：集雜志.2017-11-02
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226645253
+<br>【MediaFire】：http://vializer.com/6u3u
+<br>【MediaFire】：http://www.linkbucks.com/A8K9u
+<br>【百度網盤】：http://vializer.com/6u7Y
+<br>【百度網盤】：http://www.linkbucks.com/A8K9o
+<br>【百度密碼】：e78s
 
 <br>【節目名稱】：人民大道中.2017-11-02
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-11-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226645149
+<br>【MediaFire】：http://vializer.com/6u2i
+<br>【MediaFire】：http://www.linkbucks.com/A8K9z
+<br>【百度網盤】：http://vializer.com/6uG9
+<br>【百度網盤】：http://www.linkbucks.com/A8K9a
+<br>【百度密碼】：988d
 
 <br>【節目名稱】：生活日常.2017-11-02
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-11-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226645093
+<br>【MediaFire】：http://vializer.com/6u1Z
+<br>【MediaFire】：http://www.linkbucks.com/A8K92
+<br>【百度網盤】：http://vializer.com/6uIe
+<br>【百度網盤】：http://www.linkbucks.com/A8K9Y
+<br>【百度密碼】：wtn5
 
 <br>【節目名稱】：杏林茶.2017-11-02
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-11-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226645214
+<br>【MediaFire】：http://vializer.com/6u0I
+<br>【MediaFire】：http://www.linkbucks.com/A8LAB
+<br>【百度網盤】：http://vializer.com/6uK9
+<br>【百度網盤】：http://www.linkbucks.com/A8K9M
+<br>【百度密碼】：d8da
 
 <br>【節目名稱】：串.2017-11-02
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：不詳
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-02
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226647158
+<br>【MediaFire】：http://vializer.com/6tyi
+<br>【MediaFire】：http://www.linkbucks.com/A8LAJ
+<br>【百度網盤】：http://vializer.com/6uM9
+<br>【百度網盤】：http://www.linkbucks.com/A8K9I
+<br>【百度密碼】：19am
 
 <br>【節目名稱】：雲妮鍾情.2017-11-02
 <br>【節目頻道】：商業電台.叱咤903
