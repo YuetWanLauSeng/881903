@@ -248,24 +248,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-11-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226964971
+<br>【MediaFire】：http://vializer.com/8XqN
+<br>【MediaFire】：http://www.linkbucks.com/A8VtP
+<br>【百度網盤】：http://vializer.com/8Xrs
+<br>【百度網盤】：http://www.linkbucks.com/A8VtE
+<br>【百度密碼】：94uj
 
 <br>【節目名稱】：歐陽志強.2017-11-03
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-11-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226964637
+<br>【MediaFire】：http://vializer.com/8XvH
+<br>【MediaFire】：http://www.linkbucks.com/A8Vsp
+<br>【百度網盤】：http://vializer.com/8Xwy
+<br>【百度網盤】：http://www.linkbucks.com/A8VsV
+<br>【百度密碼】：sqs2
 
 <br>【節目名稱】：書.情.歌.2017-11-03
 <br>【節目頻道】：商業電台.雷霆881
@@ -279,25 +279,25 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-11-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226965863
+<br>【MediaFire】：http://vializer.com/8Y4x
+<br>【MediaFire】：http://www.linkbucks.com/A8VrK
+<br>【百度網盤】：http://vializer.com/8Y6k
+<br>【百度網盤】：http://www.linkbucks.com/A8Vqn
+<br>【百度密碼】：pvfx
 
 <br>【節目名稱】：光明頂.2017-11-03
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目話題】：不詳
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226968967
+<br>【MediaFire】：http://vializer.com/8ZNB
+<br>【MediaFire】：http://www.linkbucks.com/A8Vd8
+<br>【百度網盤】：http://vializer.com/8Yx7
+<br>【百度網盤】：http://www.linkbucks.com/A8Vk1
+<br>【百度密碼】：p23u
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-03
 <br>【節目頻道】：商業電台.叱咤903
