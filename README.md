@@ -233,15 +233,15 @@
 <br>【節目名稱】：串.2017-11-03
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：中國高校改名潮，周圍都係「大學」？
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-03
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-226959326
+<br>【MediaFire】：http://vializer.com/8Sst
+<br>【MediaFire】：http://www.linkbucks.com/A7krz
+<br>【百度網盤】：http://vializer.com/8ScQ
+<br>【百度網盤】：http://www.linkbucks.com/A7fo9
+<br>【百度密碼】：fssu
 
 <br>【節目名稱】：雲妮鍾情.2017-11-03
 <br>【節目頻道】：商業電台.叱咤903
