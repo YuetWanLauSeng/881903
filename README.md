@@ -138,84 +138,84 @@
 <br>【節目主持】：903DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-11-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227080351
+<br>【MediaFire】：http://vializer.com/9rrN
+<br>【MediaFire】：http://www.linkbucks.com/A72VW
+<br>【百度網盤】：http://vializer.com/9ruG
+<br>【百度網盤】：http://www.linkbucks.com/A72QU
+<br>【百度密碼】：jv65
 
 <br>【節目名稱】：1圈圈（周末版）.2017-11-04
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Circles.2017-11-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227080859
+<br>【MediaFire】：http://vializer.com/9rwY
+<br>【MediaFire】：http://www.linkbucks.com/A72P7
+<br>【百度網盤】：http://vializer.com/9rxx
+<br>【百度網盤】：http://www.linkbucks.com/A72Pp
+<br>【百度密碼】：bbpc
 
 <br>【節目名稱】：貼身科技局.2017-11-04
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：譚嘉昇
 <br>【節目時間】：16:00 - 16:30
 <br>【檔案名稱】：Daily i.t. Bureau.2017-11-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227080986
+<br>【MediaFire】：http://vializer.com/9rzD
+<br>【MediaFire】：http://www.linkbucks.com/A72PQ
+<br>【百度網盤】：http://vializer.com/9s0T
+<br>【百度網盤】：http://www.linkbucks.com/A72PN
+<br>【百度密碼】：xwqu
 
 <br>【節目名稱】：再創生機.2017-11-04
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：余宜發
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Hair Again.2017-11-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227081251
+<br>【MediaFire】：http://vializer.com/9s1c
+<br>【MediaFire】：http://www.linkbucks.com/A72PL
+<br>【百度網盤】：http://vializer.com/9s2i
+<br>【百度網盤】：http://www.linkbucks.com/A72PI
+<br>【百度密碼】：ye5m
 
 <br>【節目名稱】：豁達推介.2017-11-04
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-11-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227081552
+<br>【MediaFire】：http://vializer.com/9s44
+<br>【MediaFire】：http://www.linkbucks.com/A72O1
+<br>【百度網盤】：http://vializer.com/9s6I
+<br>【百度網盤】：http://www.linkbucks.com/A72Om
+<br>【百度密碼】：5b7c
 
 <br>【節目名稱】：大鐵人.2017-11-04
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-11-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227081748
+<br>【MediaFire】：http://vializer.com/9sB8
+<br>【MediaFire】：http://www.linkbucks.com/A72OB
+<br>【百度網盤】：http://vializer.com/9sCP
+<br>【百度網盤】：http://www.linkbucks.com/A72Np
+<br>【百度密碼】：rpch
 
 <br>【節目名稱】：3號螺絲釘.2017-11-04
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-11-04
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227081686
+<br>【MediaFire】：http://vializer.com/9sE2
+<br>【MediaFire】：http://www.linkbucks.com/A72Nf
+<br>【百度網盤】：http://vializer.com/9sFD
+<br>【百度網盤】：http://www.linkbucks.com/A72NE
+<br>【百度密碼】：fd7n
 
 <br>【節目名稱】：第三齡接觸.2017-11-04
 <br>【節目頻道】：商業電台.雷霆881
