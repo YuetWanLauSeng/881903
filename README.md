@@ -188,36 +188,36 @@
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-11-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227181766
+<br>【MediaFire】：http://vializer.com/BZ1O
+<br>【MediaFire】：http://www.linkbucks.com/A8BL7
+<br>【百度網盤】：http://vializer.com/BZ2y
+<br>【百度網盤】：http://www.linkbucks.com/A8BLy
+<br>【百度密碼】：qfcd
 
 <br>【節目名稱】：薯片鬚Music.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：曾俊華
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Mr Chip's Soul Music.2017-11-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227181755
+<br>【MediaFire】：http://vializer.com/BZ4w
+<br>【MediaFire】：http://www.linkbucks.com/A8BLn
+<br>【百度網盤】：http://vializer.com/BZ60
+<br>【百度網盤】：http://www.linkbucks.com/A8BLj
+<br>【百度密碼】：j5q6
 
 <br>【節目名稱】：葛民教育.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-11-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227181735
+<br>【MediaFire】：http://vializer.com/BZ9u
+<br>【MediaFire】：http://www.linkbucks.com/A8BLB
+<br>【百度網盤】：http://vializer.com/BZBa
+<br>【百度網盤】：http://www.linkbucks.com/A8BGa
+<br>【百度密碼】：rg3v
 
 <br>【節目名稱】：短期租約.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
