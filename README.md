@@ -18,12 +18,12 @@
 <br>【節目主持】：商業電台.叱咤903 DJ
 <br>【節目時間】：06:00 - 09:00
 <br>【檔案名稱】：Star House.2017-11-05
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227149841
-<br>【MediaFire】：http://vializer.com/B0b4
-<br>【MediaFire】：http://www.linkbucks.com/A8Fkf
-<br>【百度網盤】：http://vializer.com/B0hd
-<br>【百度網盤】：http://www.linkbucks.com/A8FhL
-<br>【百度密碼】：2h4v
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227170368
+<br>【MediaFire】：http://vializer.com/B71e
+<br>【MediaFire】：http://www.linkbucks.com/A8E2t
+<br>【百度網盤】：http://vializer.com/B730
+<br>【百度網盤】：http://www.linkbucks.com/A8E2q
+<br>【百度密碼】：que2
 
 <br>【節目名稱】：政好星期天.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
