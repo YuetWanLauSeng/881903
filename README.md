@@ -1,329 +1,268 @@
 ### 歡迎瀏覽本人的電台論壇
 ### http://www.yuetwanlauseng.com
 
-<br>【節目名稱】：祝君早安.2017-11-04
+<br>【節目名稱】：書.情.歌.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：蔡靜怡
+<br>【節目主持】：葉宇澄
 <br>【節目時間】：06:00 - 08:00
-<br>【檔案名稱】：Morning Glory.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227012385
-<br>【MediaFire】：http://vializer.com/9KQN
-<br>【MediaFire】：http://www.linkbucks.com/A8ZTD
-<br>【百度網盤】：http://vializer.com/9KR1
-<br>【百度網盤】：http://www.linkbucks.com/A8ZSs
-<br>【百度密碼】：en6m
+<br>【檔案名稱】：Reading Time.2017-11-05
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227149780
+<br>【MediaFire】：http://vializer.com/B0QE
+<br>【MediaFire】：http://www.linkbucks.com/A8FoH
+<br>【百度網盤】：http://vializer.com/B0RG
+<br>【百度網盤】：http://www.linkbucks.com/A8FoG
+<br>【百度密碼】：ybyr
 
-<br>【節目名稱】：好醒晨.2017-11-04
+<br>【節目名稱】：一周紅人館.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：細So
-<br>【節目時間】：06:00 - 08:00
-<br>【檔案名稱】：So Sunshine.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227012438
-<br>【MediaFire】：http://vializer.com/9KTK
-<br>【MediaFire】：http://www.linkbucks.com/A8ZSp
-<br>【百度網盤】：http://vializer.com/9KUF
-<br>【百度網盤】：http://www.linkbucks.com/A8ZSo
-<br>【百度密碼】：cyv6
+<br>【節目主持】：商業電台.叱咤903 DJ
+<br>【節目時間】：06:00 - 09:00
+<br>【檔案名稱】：Star House.2017-11-05
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227149841
+<br>【MediaFire】：http://vializer.com/B0b4
+<br>【MediaFire】：http://www.linkbucks.com/A8Fkf
+<br>【百度網盤】：http://vializer.com/B0hd
+<br>【百度網盤】：http://www.linkbucks.com/A8FhL
+<br>【百度密碼】：2h4v
 
-<br>【節目名稱】：橙咇咇.2017-11-04
-<br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：強
-<br>【節目時間】：08:00 - 09:00
-<br>【檔案名稱】：Orange Day.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227012398
-<br>【MediaFire】：http://vializer.com/9KVD
-<br>【MediaFire】：http://www.linkbucks.com/A8ZSk
-<br>【百度網盤】：http://vializer.com/9KW7
-<br>【百度網盤】：http://www.linkbucks.com/A8ZSd
-<br>【百度密碼】：yavq
-
-<br>【節目名稱】：政經星期六.2017-11-04
+<br>【節目名稱】：政好星期天.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陳淑薇 | 羅輝
+<br>【節目主持】：陳淑薇 | 羅輝 | 黃江天 | 劉銳紹
 <br>【節目時間】：08:00 - 10:00
-<br>【檔案名稱】：Saturday Forum.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227012413
-<br>【MediaFire】：http://vializer.com/9KX6
-<br>【MediaFire】：http://www.linkbucks.com/A8ZRy
-<br>【百度網盤】：http://vializer.com/9KXn
-<br>【百度網盤】：http://www.linkbucks.com/A8ZRs
-<br>【百度密碼】：54sb
+<br>【檔案名稱】：Beautiful Sunday.2017-11-05
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227149704
+<br>【MediaFire】：http://vializer.com/B0jH
+<br>【MediaFire】：http://www.linkbucks.com/A8Fgw
+<br>【百度網盤】：http://vializer.com/B0kD
+<br>【百度網盤】：http://www.linkbucks.com/A8Fge
+<br>【百度密碼】：232a
 
-<br>【節目名稱】：西加航空.2017-11-04
+<br>【節目名稱】：Urban Touch.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：謝茜嘉
+<br>【節目主持】：急急子
 <br>【節目時間】：09:00 - 11:00
-<br>【檔案名稱】：J.A.L.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227012346
-<br>【MediaFire】：http://vializer.com/9KYj
-<br>【MediaFire】：http://www.linkbucks.com/A8ZRi
-<br>【百度網盤】：http://vializer.com/9KZW
-<br>【百度網盤】：http://www.linkbucks.com/A8ZRd
-<br>【百度密碼】：13au
+<br>【檔案名稱】：Urban Touch.2017-11-05
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227149869
+<br>【MediaFire】：http://vializer.com/B0lN
+<br>【MediaFire】：http://www.linkbucks.com/A8FgV
+<br>【百度網盤】：http://vializer.com/B0my
+<br>【百度網盤】：http://www.linkbucks.com/A8FgO
+<br>【百度密碼】：k4h4
 
-<br>【節目名稱】：潮爆開運王.2017-11-04
+<br>【節目名稱】：馬路的事我哋的事.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：李居明 | 江美儀 | 林寄韻
+<br>【節目主持】：林偉豪 | 馬騮搣 | 細Lee
 <br>【節目時間】：10:00 - 11:00
-<br>【檔案名稱】：Weekend Lucky Star.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227012445
-<br>【MediaFire】：http://vializer.com/9KaW
-<br>【MediaFire】：http://www.linkbucks.com/A8ZRX
-<br>【百度網盤】：http://vializer.com/9Kbh
-<br>【百度網盤】：http://www.linkbucks.com/A8ZRV
-<br>【百度密碼】：gqvf
+<br>【檔案名稱】：Road Co-op.2017-11-05
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227149795
+<br>【MediaFire】：http://vializer.com/B0tA
+<br>【MediaFire】：http://www.linkbucks.com/A8Fjy
+<br>【百度網盤】：http://vializer.com/B0vB
+<br>【百度網盤】：http://www.linkbucks.com/A8Fjf
+<br>【百度密碼】：63me
 
-<br>【節目名稱】：考股專家.2017-11-04
+<br>【節目名稱】：同途有心人.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陳永陸 | 伍甄琪
+<br>【節目主持】：麥詠宜
 <br>【節目時間】：11:00 - 12:00
-<br>【檔案名稱】：Stockaeologist.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227012625
-<br>【MediaFire】：http://vializer.com/9KdW
-<br>【MediaFire】：http://www.linkbucks.com/A8ZQJ
-<br>【百度網盤】：http://vializer.com/9Kee
-<br>【百度網盤】：http://www.linkbucks.com/A8ZQB
-<br>【百度密碼】：n25w
+<br>【檔案名稱】：The Way We Are.2017-11-05
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227149846
+<br>【MediaFire】：http://vializer.com/B0wg
+<br>【MediaFire】：http://www.linkbucks.com/A8FiM
+<br>【百度網盤】：http://vializer.com/B0xr
+<br>【百度網盤】：http://www.linkbucks.com/A8FiH
+<br>【百度密碼】：mjpd
 
-<br>【節目名稱】：專業推介.2017-11-04
+<br>【節目名稱】：讀賣Sunday.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：Donald
+<br>【節目主持】：占 | 王貽興
 <br>【節目時間】：11:00 - 13:00
-<br>【檔案名稱】：903 Top 20.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227031545
-<br>【MediaFire】：http://vializer.com/9UPt
-<br>【MediaFire】：http://www.linkbucks.com/A8Xtw
-<br>【百度網盤】：http://vializer.com/9USY
-<br>【百度網盤】：http://www.linkbucks.com/A8Xtv
-<br>【百度密碼】：wd5k
+<br>【檔案名稱】：Sunny Day Readings.2017-11-05
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227162269
+<br>【MediaFire】：http://vializer.com/B15M
+<br>【MediaFire】：http://www.linkbucks.com/A8Fh1
+<br>【百度網盤】：http://vializer.com/B16N
+<br>【百度網盤】：http://www.linkbucks.com/A8Fhz
+<br>【百度密碼】：y23k
 
-<br>【節目名稱】：中風危機解密.2017-11-04
-<br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：阮子健
-<br>【節目時間】：12:00 - 13:00
-<br>【檔案名稱】：Stroke Decryption.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227031759
-<br>【MediaFire】：http://vializer.com/9UUu
-<br>【MediaFire】：http://www.linkbucks.com/A8Xsg
-<br>【百度網盤】：http://vializer.com/9UVs
-<br>【百度網盤】：http://www.linkbucks.com/A8Xsf
-<br>【百度密碼】：th6d
-
-<br>【節目名稱】：電影圈.2017-11-04
-<br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：馮志豐 | 鄔家麟
-<br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Movies.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227031634
-<br>【MediaFire】：http://vializer.com/9UXT
-<br>【MediaFire】：http://www.linkbucks.com/A8XsT
-<br>【百度網盤】：http://vializer.com/9UYj
-<br>【百度網盤】：http://www.linkbucks.com/A8XsF
-<br>【百度密碼】：54ig
-
-<br>【節目名稱】：咪芝蓮.2017-11-04
+<br>【節目名稱】：無定向喪煲病狂.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：小儀
-<br>【節目時間】：13:00 - 14:00
-<br>【檔案名稱】：Mr Chef.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227031722
-<br>【MediaFire】：http://vializer.com/9UZm
-<br>【MediaFire】：http://www.linkbucks.com/A8XsC
-<br>【百度網盤】：http://vializer.com/9Uay
-<br>【百度網盤】：http://www.linkbucks.com/A8Xr8
-<br>【百度密碼】：8s94
+<br>【節目主持】：鄒凱光 | 檸
+<br>【節目時間】：13:00 - 15:00
+<br>【檔案名稱】：Binge-Watch.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：咆哮山莊.2017-11-04
+<br>【節目名稱】：兒童適宜.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：903DJ
-<br>【節目時間】：14:00 - 15:00
-<br>【檔案名稱】：903 Band Time.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227080351
-<br>【MediaFire】：http://vializer.com/9rrN
-<br>【MediaFire】：http://www.linkbucks.com/A72VW
-<br>【百度網盤】：http://vializer.com/9ruG
-<br>【百度網盤】：http://www.linkbucks.com/A72QU
-<br>【百度密碼】：jv65
-
-<br>【節目名稱】：1圈圈（周末版）.2017-11-04
-<br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
-<br>【節目時間】：14:00 - 16:00
-<br>【檔案名稱】：Circles.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227080859
-<br>【MediaFire】：http://vializer.com/9rwY
-<br>【MediaFire】：http://www.linkbucks.com/A72P7
-<br>【百度網盤】：http://vializer.com/9rxx
-<br>【百度網盤】：http://www.linkbucks.com/A72Pp
-<br>【百度密碼】：bbpc
-
-<br>【節目名稱】：貼身科技局.2017-11-04
-<br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：譚嘉昇
-<br>【節目時間】：16:00 - 16:30
-<br>【檔案名稱】：Daily i.t. Bureau.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227080986
-<br>【MediaFire】：http://vializer.com/9rzD
-<br>【MediaFire】：http://www.linkbucks.com/A72PQ
-<br>【百度網盤】：http://vializer.com/9s0T
-<br>【百度網盤】：http://www.linkbucks.com/A72PN
-<br>【百度密碼】：xwqu
-
-<br>【節目名稱】：再創生機.2017-11-04
-<br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：余宜發
-<br>【節目時間】：14:00 - 16:00
-<br>【檔案名稱】：Hair Again.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227081251
-<br>【MediaFire】：http://vializer.com/9s1c
-<br>【MediaFire】：http://www.linkbucks.com/A72PL
-<br>【百度網盤】：http://vializer.com/9s2i
-<br>【百度網盤】：http://www.linkbucks.com/A72PI
-<br>【百度密碼】：ye5m
-
-<br>【節目名稱】：豁達推介.2017-11-04
-<br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：梁文禮
+<br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
-<br>【檔案名稱】：Quote Chart.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227081552
-<br>【MediaFire】：http://vializer.com/9s44
-<br>【MediaFire】：http://www.linkbucks.com/A72O1
-<br>【百度網盤】：http://vializer.com/9s6I
-<br>【百度網盤】：http://www.linkbucks.com/A72Om
-<br>【百度密碼】：5b7c
+<br>【檔案名稱】：Kiss Kiss Kids.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：大鐵人.2017-11-04
-<br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：楊樂笙 | 熊書頤
-<br>【節目時間】：17:00 - 18:00
-<br>【檔案名稱】：The Big Sportsman.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227081748
-<br>【MediaFire】：http://vializer.com/9sB8
-<br>【MediaFire】：http://www.linkbucks.com/A72OB
-<br>【百度網盤】：http://vializer.com/9sCP
-<br>【百度網盤】：http://www.linkbucks.com/A72Np
-<br>【百度密碼】：rpch
-
-<br>【節目名稱】：3號螺絲釘.2017-11-04
+<br>【節目名稱】：Mali Mali Home.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：Colin
+<br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
-<br>【檔案名稱】：Screw No.3.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227081686
-<br>【MediaFire】：http://vializer.com/9sE2
-<br>【MediaFire】：http://www.linkbucks.com/A72Nf
-<br>【百度網盤】：http://vializer.com/9sFD
-<br>【百度網盤】：http://www.linkbucks.com/A72NE
-<br>【百度密碼】：fd7n
+<br>【檔案名稱】：Mali Mali Home.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：第三齡接觸.2017-11-04
+<br>【節目名稱】：串.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：朱菁 | 黃日安
-<br>【節目時間】：18:30 - 20:00
-<br>【檔案名稱】：Silver Age Club.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227097616
-<br>【MediaFire】：http://vializer.com/9yHm
-<br>【MediaFire】：http://www.linkbucks.com/A71gU
-<br>【百度網盤】：http://vializer.com/9yJj
-<br>【百度網盤】：http://www.linkbucks.com/A71gm
-<br>【百度密碼】：63yc
+<br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
+<br>【節目話題】：
+<br>【節目時間】：18:30 - 19:00
+<br>【檔案名稱】：Sino Stream.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：西瓜大發.2017-11-04
+<br>【節目名稱】：讀懂中國.2017-11-05
+<br>【節目頻道】：商業電台.雷霆881
+<br>【節目主持】：潘小濤 | 何亦文
+<br>【節目話題】：
+<br>【節目時間】：19:00 - 20:00
+<br>【檔案名稱】：Sino Stream - Reading.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：國語類.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：西瓜
+<br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
-<br>【檔案名稱】：WonderMelon.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227097875
-<br>【MediaFire】：http://vializer.com/9yM3
-<br>【MediaFire】：http://www.linkbucks.com/A71g2
-<br>【百度網盤】：http://vializer.com/9yNd
-<br>【百度網盤】：http://www.linkbucks.com/A71g8
-<br>【百度密碼】：46kt
+<br>【檔案名稱】：Bo Po Mo Fo.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：雷霆音樂圈.2017-11-04
+<br>【節目名稱】：泡菜粉絲煲.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：楊美琪
-<br>【節目時間】：20:00 - 23:00
-<br>【檔案名稱】：881 Music Station.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227105683
-<br>【MediaFire】：http://vializer.com/Amx5
-<br>【MediaFire】：http://www.linkbucks.com/AowbJ
-<br>【百度網盤】：http://vializer.com/Amxt
-<br>【百度網盤】：http://www.linkbucks.com/Aov6p
-<br>【百度密碼】：8j1x
+<br>【節目主持】：伍甄琪 | 伍悅
+<br>【節目時間】：20:00 - 21:00
+<br>【檔案名稱】：Kimchi Fans Club.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：Chi Chung's Class.2017-11-04
+<br>【節目名稱】：細路強.2017-11-05
+<br>【節目頻道】：商業電台.雷霆881
+<br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
+<br>【節目時間】：21:00 - 22:00 
+<br>【檔案名稱】：Mighty Kids Mighty Parents.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：國民教育.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：黃志淙
+<br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
-<br>【檔案名稱】：Chi Chung's Class.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227106043
-<br>【MediaFire】：http://vializer.com/Amym
-<br>【MediaFire】：http://www.linkbucks.com/Aoizb
-<br>【百度網盤】：http://vializer.com/AmzV
-<br>【百度網盤】：http://www.linkbucks.com/Aohon
-<br>【百度密碼】：v55j
+<br>【檔案名稱】：Time's Up Pen's Down.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：與時並進.2017-11-04
+<br>【節目名稱】：薯片鬚Music.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目日期】：2017-11-04
-<br>【節目主持】：時美真
-<br>【節目時間】：23:00 - 00:00
-<br>【檔案名稱】：Education Forum.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227146982
-<br>【MediaFire】：http://vializer.com/An0T
-<br>【MediaFire】：http://www.linkbucks.com/AdAVN
-<br>【百度網盤】：http://vializer.com/An1F
-<br>【百度網盤】：http://www.linkbucks.com/AoIXi
-<br>【百度密碼】：5b1w
+<br>【節目主持】：曾俊華
+<br>【節目時間】：22:00 - 23:00
+<br>【檔案名稱】：Mr Chip's Soul Music.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：公子會.2017-11-04
-<br>【節目頻道】：商業電台.叱咤903
-<br>【節目日期】：2017-11-04
-<br>【節目主持】：森美
-<br>【節目嘉賓】：鄺潔楹
-<br>【節目時間】：23:00 - 01:00
-<br>【檔案名稱】：The Playtoy Mansion.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227147090
-<br>【MediaFire】：http://vializer.com/An29
-<br>【MediaFire】：http://www.linkbucks.com/AOo0e
-<br>【百度網盤】：http://vializer.com/An3h
-<br>【百度網盤】：http://www.linkbucks.com/AOoMF
-<br>【百度密碼】：8byw
-
-<br>【節目名稱】：發式生活.2017-11-04
+<br>【節目名稱】：葛民教育.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：余宜發
-<br>【節目時間】：00:30 - 02:00
-<br>【檔案名稱】：Fat’s Lifestyle.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227147002
-<br>【MediaFire】：http://vializer.com/An4f
-<br>【MediaFire】：http://www.linkbucks.com/Ac2AE
-<br>【百度網盤】：http://vializer.com/An5I
-<br>【百度網盤】：http://www.linkbucks.com/Az2Sa
-<br>【百度密碼】：64qr
+<br>【節目主持】：葛民輝
+<br>【節目時間】：23:00 - 23:30
+<br>【檔案名稱】：Kot’s ology.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：皇牌出場.2017-11-04
+<br>【節目名稱】：短期租約.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
-<br>【節目主持】：Marco | Keyman
+<br>【節目主持】：Wasabi
+<br>【節目時間】：23:00 - 02:00
+<br>【檔案名稱】：Short-term Lease.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：心靈料理.2017-11-05
+<br>【節目頻道】：商業電台.雷霆881
+<br>【節目主持】：劉丹心 | 伍甄琪
+<br>【節目時間】：23:30 - 01:00
+<br>【檔案名稱】：Feed Your Soul.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：寫生活.2017-11-05
+<br>【節目頻道】：商業電台.雷霆881
+<br>【節目主持】：881DJ
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Losing Eleven.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227147020
-<br>【MediaFire】：http://vializer.com/An64
-<br>【MediaFire】：http://www.linkbucks.com/AbE4X
-<br>【百度網盤】：http://vializer.com/An6b
-<br>【百度網盤】：http://www.linkbucks.com/Aa8mC
-<br>【百度密碼】：vc5b
+<br>【檔案名稱】：Bedtime Readings.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
 
-<br>【節目名稱】：一切從音樂開始.2017-11-04
+<br>【節目名稱】：一切從音樂開始.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
-<br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
+<br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
-<br>【檔案名稱】：Begin with Music.2017-11-04
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227146973
-<br>【MediaFire】：http://vializer.com/An7h
-<br>【MediaFire】：http://www.linkbucks.com/AfyLP
-<br>【百度網盤】：http://vializer.com/An8S
-<br>【百度網盤】：http://www.linkbucks.com/Afx9Z
-<br>【百度密碼】：gjm6
+<br>【檔案名稱】：Begin with Music.2017-11-05
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
