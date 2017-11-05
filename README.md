@@ -114,38 +114,38 @@
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-11-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227179117
+<br>【MediaFire】：http://vializer.com/BOIK
+<br>【MediaFire】：http://www.linkbucks.com/A8C5i
+<br>【百度網盤】：http://vializer.com/BOJl
+<br>【百度網盤】：http://www.linkbucks.com/A8C5e
+<br>【百度密碼】：zprt
 
 <br>【節目名稱】：串.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：台灣導演黃惠偵 紀錄長片《日常對話》
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-11-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227179153
+<br>【MediaFire】：http://vializer.com/BOL0
+<br>【MediaFire】：http://www.linkbucks.com/A8C4S
+<br>【百度網盤】：http://vializer.com/BONy
+<br>【百度網盤】：http://www.linkbucks.com/A8C1y
+<br>【百度密碼】：drcz
 
 <br>【節目名稱】：讀懂中國.2017-11-05
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文
-<br>【節目話題】：
+<br>【節目話題】：台灣導演黃惠偵 紀錄長片《日常對話》
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-11-05
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227179151
+<br>【MediaFire】：http://vializer.com/BOPc
+<br>【MediaFire】：http://www.linkbucks.com/A8C3L
+<br>【百度網盤】：http://vializer.com/BOQu
+<br>【百度網盤】：http://www.linkbucks.com/A8C2R
+<br>【百度密碼】：cgix
 
 <br>【節目名稱】：國語類.2017-11-05
 <br>【節目頻道】：商業電台.叱咤903
