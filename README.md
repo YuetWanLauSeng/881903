@@ -233,39 +233,39 @@
 <br>【節目名稱】：串.2017-11-06
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：香港推國歌法 就先認識國歌一段黑歷史！
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227265352
+<br>【MediaFire】：http://viwright.com/1X7a
+<br>【MediaFire】：http://www.linkbucks.com/A8cej
+<br>【百度網盤】：http://viwright.com/1X9T
+<br>【百度網盤】：http://www.linkbucks.com/A8ccB
+<br>【百度密碼】：mz13
 
 <br>【節目名稱】：雲妮鍾情.2017-11-06
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-11-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227270992
+<br>【MediaFire】：http://viwright.com/1XRs
+<br>【MediaFire】：http://www.linkbucks.com/A8cXw
+<br>【百度網盤】：http://viwright.com/1XEj
+<br>【百度網盤】：http://www.linkbucks.com/A8cb1
+<br>【百度密碼】：8cw1
 
 <br>【節目名稱】：歐陽志強.2017-11-06
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-11-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227270679
+<br>【MediaFire】：http://viwright.com/1XGy
+<br>【MediaFire】：http://www.linkbucks.com/A8cbs
+<br>【百度網盤】：http://viwright.com/1XJ9
+<br>【百度網盤】：http://www.linkbucks.com/A8cbg
+<br>【百度密碼】：xiya
 
 <br>【節目名稱】：書.情.歌.2017-11-06
 <br>【節目頻道】：商業電台.雷霆881
@@ -279,25 +279,25 @@
 <br>【節目主持】：江慧楓
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Maple Swing.2017-11-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227270780
+<br>【MediaFire】：http://viwright.com/1XMW
+<br>【MediaFire】：http://www.linkbucks.com/A8cbG
+<br>【百度網盤】：http://viwright.com/1XO7
+<br>【百度網盤】：http://www.linkbucks.com/A8caR
+<br>【百度密碼】：th3f
 
 <br>【節目名稱】：光明頂.2017-11-06
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目主持】：陶傑 | 鮑偉聰
+<br>【節目話題】：國家名義
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-06
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227272721
+<br>【MediaFire】：http://viwright.com/1XkR
+<br>【MediaFire】：http://www.linkbucks.com/A8cQF
+<br>【百度網盤】：http://viwright.com/1XQy
+<br>【百度網盤】：http://www.linkbucks.com/A8cYt
+<br>【百度密碼】：rj5g
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-06
 <br>【節目頻道】：商業電台.叱咤903
