@@ -78,73 +78,73 @@
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-11-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227318226
+<br>【MediaFire】：http://viwright.com/2hA5
+<br>【MediaFire】：http://www.linkbucks.com/A8oNo
+<br>【百度網盤】：http://viwright.com/2hBE
+<br>【百度網盤】：http://www.linkbucks.com/A8oNa
+<br>【百度密碼】：g6e4
 
 <br>【節目名稱】：十八樓C座.2017-11-07
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
+<br>【節目話題】：中史變做必修科
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-11-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227318075
+<br>【MediaFire】：http://viwright.com/2hI4
+<br>【MediaFire】：http://www.linkbucks.com/A8oLy
+<br>【百度網盤】：http://viwright.com/2hIk
+<br>【百度網盤】：http://www.linkbucks.com/A8oLQ
+<br>【百度密碼】：14hi
 
 <br>【節目名稱】：叱咤樂壇.2017-11-07
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-11-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227318158
+<br>【MediaFire】：http://viwright.com/2hKI
+<br>【MediaFire】：http://www.linkbucks.com/A8oLL
+<br>【百度網盤】：http://viwright.com/2hLO
+<br>【百度網盤】：http://www.linkbucks.com/A8oK6
+<br>【百度密碼】：a53f
 
 <br>【節目名稱】：一點叮一叮.2017-11-07
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-11-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227318306
+<br>【MediaFire】：http://viwright.com/2hMa
+<br>【MediaFire】：http://www.linkbucks.com/A8oK0
+<br>【百度網盤】：http://viwright.com/2hNX
+<br>【百度網盤】：http://www.linkbucks.com/A8oKu
+<br>【百度密碼】：fadd
 
 <br>【節目名稱】：人生交叉盤.2017-11-07
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-11-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227318287
+<br>【MediaFire】：http://viwright.com/2hP7
+<br>【MediaFire】：http://www.linkbucks.com/A8oKN
+<br>【百度網盤】：http://viwright.com/2hQC
+<br>【百度網盤】：http://www.linkbucks.com/A8oKK
+<br>【百度密碼】：r4hx
 
 <br>【節目名稱】：你好嘢.2017-11-07
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-11-07
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227318340
+<br>【MediaFire】：http://viwright.com/2hRM
+<br>【MediaFire】：http://www.linkbucks.com/A8oJ9
+<br>【百度網盤】：http://viwright.com/2hSL
+<br>【百度網盤】：http://www.linkbucks.com/A8oJ0
+<br>【百度密碼】：r3j3
 
 <br>【節目名稱】：大玩派.2017-11-07
 <br>【節目頻道】：商業電台.雷霆881
