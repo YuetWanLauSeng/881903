@@ -206,12 +206,12 @@
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-11-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227448142
+<br>【MediaFire】：http://viwright.com/56kp
+<br>【MediaFire】：http://www.linkbucks.com/A8koq
+<br>【百度網盤】：http://viwright.com/56n7
+<br>【百度網盤】：http://www.linkbucks.com/A8kmd
+<br>【百度密碼】：vmie
 
 <br>【節目名稱】：杏林茶.2017-11-08
 <br>【節目頻道】：商業電台.雷霆881
@@ -232,24 +232,24 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-11-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227459073
+<br>【MediaFire】：http://viwright.com/5794
+<br>【MediaFire】：http://www.linkbucks.com/A8kaQ
+<br>【百度網盤】：http://viwright.com/56qy
+<br>【百度網盤】：http://www.linkbucks.com/A8klw
+<br>【百度密碼】：gte5
 
 <br>【節目名稱】：歐陽志強.2017-11-08
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-11-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227458883
+<br>【MediaFire】：http://viwright.com/56sl
+<br>【MediaFire】：http://www.linkbucks.com/A8kk9
+<br>【百度網盤】：http://viwright.com/56u0
+<br>【百度網盤】：http://www.linkbucks.com/A8kkv
+<br>【百度密碼】：p6si
 
 <br>【節目名稱】：書.情.歌.2017-11-08
 <br>【節目頻道】：商業電台.雷霆881
@@ -260,16 +260,16 @@
 
 <br>【節目名稱】：光明頂.2017-11-08
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目主持】：陶傑 | 鮑偉聰 | 劉夢熊
+<br>【節目話題】：再談十月革命
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-08
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227458990
+<br>【MediaFire】：http://viwright.com/56wY
+<br>【MediaFire】：http://www.linkbucks.com/A8kke
+<br>【百度網盤】：http://viwright.com/56xi
+<br>【百度網盤】：http://www.linkbucks.com/A8kic
+<br>【百度密碼】：nvmn
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-08
 <br>【節目頻道】：商業電台.叱咤903
