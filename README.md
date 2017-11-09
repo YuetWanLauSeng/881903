@@ -187,61 +187,61 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227619936
+<br>【MediaFire】：http://viwright.com/6amY
+<br>【MediaFire】：http://www.linkbucks.com/A8seS
+<br>【百度網盤】：http://viwright.com/6ang
+<br>【百度網盤】：http://www.linkbucks.com/A8sd3
+<br>【百度密碼】：varf
 
 <br>【節目名稱】：人民大道中.2017-11-09
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-11-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227619863
+<br>【MediaFire】：http://viwright.com/6bNw
+<br>【MediaFire】：http://www.linkbucks.com/A8sWy
+<br>【百度網盤】：http://viwright.com/6bOp
+<br>【百度網盤】：http://www.linkbucks.com/A8sWf
+<br>【百度密碼】：57gi
 
 <br>【節目名稱】：生活日常.2017-11-09
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-11-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227619737
+<br>【MediaFire】：http://viwright.com/6cI1
+<br>【MediaFire】：http://www.linkbucks.com/A8sRZ
+<br>【百度網盤】：http://viwright.com/6cJm
+<br>【百度網盤】：http://www.linkbucks.com/A8sRL
+<br>【百度密碼】：8htp
 
 <br>【節目名稱】：杏林茶.2017-11-09
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-11-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227619897
+<br>【MediaFire】：http://viwright.com/6cLX
+<br>【MediaFire】：http://www.linkbucks.com/A8sRE
+<br>【百度網盤】：http://viwright.com/6cMj
+<br>【百度網盤】：http://www.linkbucks.com/A8sQ2
+<br>【百度密碼】：s78d
 
 <br>【節目名稱】：串.2017-11-09
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：高禮遇加習近平陪遊故宮，特朗普訪華突顯兩國領導人強弱？
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-09
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227624188
+<br>【MediaFire】：http://viwright.com/6cO7
+<br>【MediaFire】：http://www.linkbucks.com/A8sQx
+<br>【百度網盤】：http://viwright.com/6cPW
+<br>【百度網盤】：http://www.linkbucks.com/A8sQw
+<br>【百度密碼】：endy
 
 <br>【節目名稱】：雲妮鍾情.2017-11-09
 <br>【節目頻道】：商業電台.叱咤903
