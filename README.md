@@ -248,12 +248,12 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-11-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227835280
+<br>【MediaFire】：http://viwright.com/8Ivf
+<br>【MediaFire】：http://www.linkbucks.com/A84JH
+<br>【百度網盤】：http://viwright.com/8IyF
+<br>【百度網盤】：http://www.linkbucks.com/A84Iy
+<br>【百度密碼】：u6kq
 
 <br>【節目名稱】：歐陽志強.2017-11-10
 <br>【節目頻道】：商業電台.叱咤903
@@ -279,25 +279,25 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-11-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227835242
+<br>【MediaFire】：http://viwright.com/8J2w
+<br>【MediaFire】：http://www.linkbucks.com/A84IZ
+<br>【百度網盤】：http://viwright.com/8J4r
+<br>【百度網盤】：http://www.linkbucks.com/A84IK
+<br>【百度密碼】：hqy3
 
 <br>【節目名稱】：光明頂.2017-11-10
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目主持】：陶傑 | 鮑偉聰
+<br>【節目話題】：史太林
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227835212
+<br>【MediaFire】：http://viwright.com/8J73
+<br>【MediaFire】：http://www.linkbucks.com/A84H2
+<br>【百度網盤】：http://viwright.com/8J96
+<br>【百度網盤】：http://www.linkbucks.com/A84Hw
+<br>【百度密碼】：j73d
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-10
 <br>【節目頻道】：商業電台.叱咤903
