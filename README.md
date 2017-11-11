@@ -178,24 +178,24 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-11-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227935190
+<br>【MediaFire】：http://viwright.com/9p6Q
+<br>【MediaFire】：http://www.linkbucks.com/A9EYI
+<br>【百度網盤】：http://viwright.com/9ta9
+<br>【百度網盤】：http://www.linkbucks.com/A9CIT
+<br>【百度密碼】：jhke
 
 <br>【節目名稱】：西瓜大發.2017-11-11
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-11-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227935307
+<br>【MediaFire】：http://viwright.com/9tbX
+<br>【MediaFire】：http://www.linkbucks.com/A9CHj
+<br>【百度網盤】：http://viwright.com/9tfW
+<br>【百度網盤】：http://www.linkbucks.com/A9CCZ
+<br>【百度密碼】：8ce4
 
 <br>【節目名稱】：雷霆音樂圈.2017-11-11
 <br>【節目頻道】：商業電台.雷霆881
