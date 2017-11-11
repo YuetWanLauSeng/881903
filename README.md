@@ -90,12 +90,12 @@
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-11-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227875509
+<br>【MediaFire】：http://viwright.com/9FWq
+<br>【MediaFire】：http://www.linkbucks.com/CgR1G
+<br>【百度網盤】：http://viwright.com/9FXp
+<br>【百度網盤】：http://www.linkbucks.com/CgR0y
+<br>【百度密碼】：4eff
 
 <br>【節目名稱】：中風危機解密.2017-11-11
 <br>【節目頻道】：商業電台.雷霆881
@@ -116,12 +116,12 @@
 <br>【節目主持】：小儀
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-11-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227875609
+<br>【MediaFire】：http://viwright.com/9FZG
+<br>【MediaFire】：http://www.linkbucks.com/CgR0l
+<br>【百度網盤】：http://viwright.com/9FZx
+<br>【百度網盤】：http://www.linkbucks.com/CgR0I
+<br>【百度密碼】：aw9j
 
 <br>【節目名稱】：咆哮山莊.2017-11-11
 <br>【節目頻道】：商業電台.叱咤903
