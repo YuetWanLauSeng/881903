@@ -260,12 +260,12 @@
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-11-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227869660
+<br>【MediaFire】：http://viwright.com/985E
+<br>【MediaFire】：http://www.linkbucks.com/A7OSG
+<br>【百度網盤】：http://viwright.com/986R
+<br>【百度網盤】：http://www.linkbucks.com/A7N4h
+<br>【百度密碼】：sdwq
 
 <br>【節目名稱】：書.情.歌.2017-11-10
 <br>【節目頻道】：商業電台.雷霆881
@@ -304,45 +304,45 @@
 <br>【節目主持】：占 | Donald | 4Lum | 豪子 | Jacky
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：St. ILUB Gay Lim Yeah How.2017-11-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227867889
+<br>【MediaFire】：http://viwright.com/987t
+<br>【MediaFire】：http://www.linkbucks.com/A7M18
+<br>【百度網盤】：http://viwright.com/988z
+<br>【百度網盤】：http://www.linkbucks.com/A7MtO
+<br>【百度密碼】：2u3a
 
 <br>【節目名稱】：月光光呵呵呵.2017-11-10
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：鄔家麟
 <br>【節目時間】：00:30 - 01:30
 <br>【檔案名稱】：Goodnight Kiss Kiss Kiss.2017-11-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227867821
+<br>【MediaFire】：http://viwright.com/98AO
+<br>【MediaFire】：http://www.linkbucks.com/A7McR
+<br>【百度網盤】：http://viwright.com/98Bc
+<br>【百度網盤】：http://www.linkbucks.com/A7MMn
+<br>【百度密碼】：pfiw
 
 <br>【節目名稱】：廣東爆谷.2017-11-10
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Colin
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Canto Pop.2017-11-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227867778
+<br>【MediaFire】：http://viwright.com/98Da
+<br>【MediaFire】：http://www.linkbucks.com/A7MHR
+<br>【百度網盤】：http://viwright.com/98EM
+<br>【百度網盤】：http://www.linkbucks.com/A7MEU
+<br>【百度密碼】：34dm
 
 <br>【節目名稱】：一切從音樂開始.2017-11-10
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-11-10
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227867756
+<br>【MediaFire】：http://viwright.com/98G2
+<br>【MediaFire】：http://www.linkbucks.com/A7MER
+<br>【百度網盤】：http://viwright.com/98H0
+<br>【百度網盤】：http://www.linkbucks.com/A7L0K
+<br>【百度密碼】：p4mg
