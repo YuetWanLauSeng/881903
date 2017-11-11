@@ -147,12 +147,12 @@
 <br>【節目主持】：梁文禮
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Quote Chart.2017-11-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227928273
+<br>【MediaFire】：http://viwright.com/9gha
+<br>【MediaFire】：http://www.linkbucks.com/A9IZI
+<br>【百度網盤】：http://viwright.com/9gjQ
+<br>【百度網盤】：http://www.linkbucks.com/A9IYb
+<br>【百度密碼】：hsxi
 
 <br>【節目名稱】：大鐵人.2017-11-11
 <br>【節目頻道】：商業電台.雷霆881
@@ -166,12 +166,12 @@
 <br>【節目主持】：Colin
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Screw No.3.2017-11-11
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-227928556
+<br>【MediaFire】：http://viwright.com/9goi
+<br>【MediaFire】：http://www.linkbucks.com/A9IWf
+<br>【百度網盤】：http://viwright.com/9gqI
+<br>【百度網盤】：http://www.linkbucks.com/A9IWW
+<br>【百度密碼】：d4nh
 
 <br>【節目名稱】：第三齡接觸.2017-11-11
 <br>【節目頻道】：商業電台.雷霆881
