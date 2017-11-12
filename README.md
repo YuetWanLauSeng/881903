@@ -138,86 +138,86 @@
 <br>【節目主持】：譚嘉昇
 <br>【節目時間】：16:00 - 16:30
 <br>【檔案名稱】：Daily i.t. Bureau.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228043510
+<br>【MediaFire】：http://viwright.com/BEJC
+<br>【MediaFire】：http://www.linkbucks.com/A9wv4
+<br>【百度網盤】：http://viwright.com/BIQi
+<br>【百度網盤】：http://www.linkbucks.com/A9wvS
+<br>【百度密碼】：vgdj
 
 <br>【節目名稱】：再創生機.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：余宜發
 <br>【節目時間】：16:30 - 17:00
 <br>【檔案名稱】：Hair Again.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228043636
+<br>【MediaFire】：http://viwright.com/BITk
+<br>【MediaFire】：http://www.linkbucks.com/A9wvP
+<br>【百度網盤】：http://viwright.com/BIWX
+<br>【百度網盤】：http://www.linkbucks.com/A9wu2
+<br>【百度密碼】：b649
 
 <br>【節目名稱】：兒童適宜.2017-11-12
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228043888
+<br>【MediaFire】：http://viwright.com/BIYy
+<br>【MediaFire】：http://www.linkbucks.com/A9wuX
+<br>【百度網盤】：http://viwright.com/BIci
+<br>【百度網盤】：http://www.linkbucks.com/A9wtn
+<br>【百度密碼】：d93u
 
 <br>【節目名稱】：大鐵人.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：楊樂笙 | 熊書頤
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：The Big Sportsman.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228044622
+<br>【MediaFire】：http://viwright.com/BIf1
+<br>【MediaFire】：http://www.linkbucks.com/A9ws4
+<br>【百度網盤】：http://viwright.com/BIkg
+<br>【百度網盤】：http://www.linkbucks.com/A9wss
+<br>【百度密碼】：7q9r
 
 <br>【節目名稱】：Mali Mali Home.2017-11-12
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228067354
+<br>【MediaFire】：http://viwright.com/BJL0
+<br>【MediaFire】：http://www.linkbucks.com/A9wqI
+<br>【百度網盤】：http://viwright.com/BJO6
+<br>【百度網盤】：http://www.linkbucks.com/A9wp1
+<br>【百度密碼】：cgbc
 
 <br>【節目名稱】：串.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：國情教育－江澤民
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228067379
+<br>【MediaFire】：http://viwright.com/BJQA
+<br>【MediaFire】：http://www.linkbucks.com/A9wpH
+<br>【百度網盤】：http://viwright.com/BJT6
+<br>【百度網盤】：http://www.linkbucks.com/A9woi
+<br>【百度密碼】：vsq5
 
 <br>【節目名稱】：讀懂中國.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文
-<br>【節目話題】：
+<br>【節目話題】：特朗普訪華續講：2萬億合約 都掩蓋唔到「中美新型大國關係」分歧
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228067372
+<br>【MediaFire】：http://viwright.com/BJUh
+<br>【MediaFire】：http://www.linkbucks.com/A9wnT
+<br>【百度網盤】：http://viwright.com/BJVl
+<br>【百度網盤】：http://www.linkbucks.com/A9wnI
+<br>【百度密碼】：6i4c
 
 <br>【節目名稱】：國語類.2017-11-12
 <br>【節目頻道】：商業電台.叱咤903
