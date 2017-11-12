@@ -90,48 +90,48 @@
 <br>【節目主持】：阮子健
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228024620
+<br>【MediaFire】：http://viwright.com/B42w
+<br>【MediaFire】：http://www.linkbucks.com/A91sG
+<br>【百度網盤】：http://viwright.com/B44j
+<br>【百度網盤】：http://www.linkbucks.com/A91sC
+<br>【百度密碼】：yvwi
 
 <br>【節目名稱】：電影圈.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228024602
+<br>【MediaFire】：http://viwright.com/B463
+<br>【MediaFire】：http://www.linkbucks.com/A91rc
+<br>【百度網盤】：http://viwright.com/B475
+<br>【百度網盤】：http://www.linkbucks.com/A91rT
+<br>【百度密碼】：m1pt
 
 <br>【節目名稱】：無定向喪煲病狂.2017-11-12
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：鄒凱光 | 檸
 <br>【節目時間】：13:00 - 15:00
 <br>【檔案名稱】：Binge-Watch.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228024544
+<br>【MediaFire】：http://viwright.com/B48P
+<br>【MediaFire】：http://www.linkbucks.com/A91rN
+<br>【百度網盤】：http://viwright.com/B49p
+<br>【百度網盤】：http://www.linkbucks.com/A91p9
+<br>【百度密碼】：5bnb
 
 <br>【節目名稱】：1圈圈（周末版）.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
 <br>【節目時間】：14:00 - 16:00
 <br>【檔案名稱】：Circles.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228024580
+<br>【MediaFire】：http://viwright.com/B4BM
+<br>【MediaFire】：http://www.linkbucks.com/A91pr
+<br>【百度網盤】：http://viwright.com/B4DP
+<br>【百度網盤】：http://www.linkbucks.com/A91pg
+<br>【百度密碼】：yncx
 
 <br>【節目名稱】：貼身科技局.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
