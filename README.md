@@ -175,60 +175,60 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-11-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228206695
+<br>【MediaFire】：http://yabuilder.com/130r
+<br>【MediaFire】：http://www.linkbucks.com/A9dnT
+<br>【百度網盤】：http://yabuilder.com/132a
+<br>【百度網盤】：http://www.linkbucks.com/A9dmJ
+<br>【百度密碼】：uyuq
 
 <br>【節目名稱】：集雜志.2017-11-13
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228206777
+<br>【MediaFire】：http://yabuilder.com/137g
+<br>【MediaFire】：http://www.linkbucks.com/A9dlU
+<br>【百度網盤】：http://yabuilder.com/138w
+<br>【百度網盤】：http://www.linkbucks.com/A9djK
+<br>【百度密碼】：aebm
 
 <br>【節目名稱】：人民大道中.2017-11-13
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-11-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228206753
+<br>【MediaFire】：http://yabuilder.com/13Ar
+<br>【MediaFire】：http://www.linkbucks.com/A9diM
+<br>【百度網盤】：http://yabuilder.com/13Cw
+<br>【百度網盤】：http://www.linkbucks.com/A9deL
+<br>【百度密碼】：cn3f
 
 <br>【節目名稱】：生活日常.2017-11-13
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-11-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228206730
+<br>【MediaFire】：http://yabuilder.com/13Fk
+<br>【MediaFire】：http://www.linkbucks.com/A9deJ
+<br>【百度網盤】：http://yabuilder.com/13H7
+<br>【百度網盤】：http://www.linkbucks.com/A9dZd
+<br>【百度密碼】：7pm7
 
 <br>【節目名稱】：杏林茶.2017-11-13
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-11-13
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228206764
+<br>【MediaFire】：http://yabuilder.com/13Iy
+<br>【MediaFire】：http://www.linkbucks.com/A9dWY
+<br>【百度網盤】：http://yabuilder.com/13Ka
+<br>【百度網盤】：http://www.linkbucks.com/A9dU7
+<br>【百度密碼】：dypz
 
 <br>【節目名稱】：串.2017-11-13
 <br>【節目頻道】：商業電台.雷霆881
@@ -267,11 +267,11 @@
 <br>【百度網盤】：
 <br>【百度密碼】：
 
-<br>【節目名稱】：書.情.歌.2017-11-13
+<br>【節目名稱】：聽楓的歌.2017-11-13
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：葉宇澄
+<br>【節目主持】：江慧楓
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time.2017-11-13
+<br>【檔案名稱】：Maple Swing.2017-11-13
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
