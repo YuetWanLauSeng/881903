@@ -224,117 +224,117 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228085693
+<br>【MediaFire】：http://yabuilder.com/4kf
+<br>【MediaFire】：http://www.linkbucks.com/A9C3l
+<br>【百度網盤】：http://yabuilder.com/4lZ
+<br>【百度網盤】：http://www.linkbucks.com/A9C3d
+<br>【百度密碼】：ynfe
 
 <br>【節目名稱】：泡菜粉絲煲.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228086045
+<br>【MediaFire】：http://yabuilder.com/4on
+<br>【MediaFire】：http://www.linkbucks.com/A9C2n
+<br>【百度網盤】：http://yabuilder.com/4q5
+<br>【百度網盤】：http://www.linkbucks.com/A9C2L
+<br>【百度密碼】：dpp8
 
 <br>【節目名稱】：細路強.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228086198
+<br>【MediaFire】：http://yabuilder.com/4s5
+<br>【MediaFire】：http://www.linkbucks.com/A9C1m
+<br>【百度網盤】：http://yabuilder.com/4tV
+<br>【百度網盤】：http://www.linkbucks.com/A9C00
+<br>【百度密碼】：5zqt
 
 <br>【節目名稱】：國民教育.2017-11-12
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228086605
+<br>【MediaFire】：http://yabuilder.com/4vo
+<br>【MediaFire】：http://www.linkbucks.com/A9Cz2
+<br>【百度網盤】：http://yabuilder.com/4x7
+<br>【百度網盤】：http://www.linkbucks.com/A9Czl
+<br>【百度密碼】：sg7w
 
 <br>【節目名稱】：薯片鬚Music.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：曾俊華
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Mr Chip's Soul Music.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228086335
+<br>【MediaFire】：http://yabuilder.com/4zO
+<br>【MediaFire】：http://www.linkbucks.com/A9Cyd
+<br>【百度網盤】：http://yabuilder.com/50p
+<br>【百度網盤】：http://www.linkbucks.com/A9CxV
+<br>【百度密碼】：q4bk
 
 <br>【節目名稱】：葛民教育.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228097999
+<br>【MediaFire】：http://yabuilder.com/53K
+<br>【MediaFire】：http://www.linkbucks.com/A9Cvo
+<br>【百度網盤】：http://yabuilder.com/54p
+<br>【百度網盤】：http://www.linkbucks.com/A9Cvl
+<br>【百度密碼】：fbim
 
 <br>【節目名稱】：短期租約.2017-11-12
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228098135
+<br>【MediaFire】：http://yabuilder.com/579
+<br>【MediaFire】：http://www.linkbucks.com/A9CuN
+<br>【百度網盤】：http://yabuilder.com/58R
+<br>【百度網盤】：http://www.linkbucks.com/A9Cs5
+<br>【百度密碼】：qrm2
 
 <br>【節目名稱】：心靈料理.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228097991
+<br>【MediaFire】：http://yabuilder.com/5Ae
+<br>【MediaFire】：http://www.linkbucks.com/A9Csz
+<br>【百度網盤】：http://yabuilder.com/5CW
+<br>【百度網盤】：http://www.linkbucks.com/A9Crv
+<br>【百度密碼】：k5cc
 
 <br>【節目名稱】：都是我的流行曲.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：江健聰
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：My Cup of Music.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228098004
+<br>【MediaFire】：http://yabuilder.com/5Eu
+<br>【MediaFire】：http://www.linkbucks.com/A9Crs
+<br>【百度網盤】：http://yabuilder.com/5GW
+<br>【百度網盤】：http://www.linkbucks.com/A9Crp
+<br>【百度密碼】：3g4i
 
 <br>【節目名稱】：一切從音樂開始.2017-11-12
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-11-12
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228097966
+<br>【MediaFire】：http://yabuilder.com/5JR
+<br>【MediaFire】：http://www.linkbucks.com/A9Crj
+<br>【百度網盤】：http://yabuilder.com/5L7
+<br>【百度網盤】：http://www.linkbucks.com/A9Crb
+<br>【百度密碼】：rwxy
