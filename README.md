@@ -233,15 +233,15 @@
 <br>【節目名稱】：串.2017-11-14
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：商家搭光棍順風車，賺到盡！
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228343489
+<br>【MediaFire】：http://yabuilder.com/2yyw
+<br>【MediaFire】：http://www.linkbucks.com/A9AHd
+<br>【百度網盤】：http://yabuilder.com/2z07
+<br>【百度網盤】：http://www.linkbucks.com/A9AHX
+<br>【百度密碼】：b2kb
 
 <br>【節目名稱】：雲妮鍾情.2017-11-14
 <br>【節目頻道】：商業電台.叱咤903
@@ -260,24 +260,24 @@
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-11-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228343475
+<br>【MediaFire】：http://yabuilder.com/2z5x
+<br>【MediaFire】：http://www.linkbucks.com/A9AG6
+<br>【百度網盤】：http://yabuilder.com/2z3J
+<br>【百度網盤】：http://www.linkbucks.com/A9AG7
+<br>【百度密碼】：w4p8
 
-<br>【節目名稱】：書.情.歌.2017-11-14
+<br>【節目名稱】：聽楓的歌.2017-11-14
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：葉宇澄
+<br>【節目主持】：江慧楓
 <br>【節目時間】：22:30 - 23:00
-<br>【檔案名稱】：Reading Time.2017-11-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：Maple Swing.2017-11-14
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228343478
+<br>【MediaFire】：http://yabuilder.com/2z9r
+<br>【MediaFire】：http://www.linkbucks.com/A9ACN
+<br>【百度網盤】：http://yabuilder.com/2zBR
+<br>【百度網盤】：http://www.linkbucks.com/A9AB5
+<br>【百度密碼】：3wwq
 
 <br>【節目名稱】：光明頂.2017-11-14
 <br>【節目頻道】：商業電台.雷霆881
@@ -285,12 +285,12 @@
 <br>【節目話題】：
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-14
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228343519
+<br>【MediaFire】：http://yabuilder.com/2zDd
+<br>【MediaFire】：http://www.linkbucks.com/A9AA8
+<br>【百度網盤】：http://yabuilder.com/2zEo
+<br>【百度網盤】：http://www.linkbucks.com/A9AAw
+<br>【百度密碼】：x8iz
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-14
 <br>【節目頻道】：商業電台.叱咤903
