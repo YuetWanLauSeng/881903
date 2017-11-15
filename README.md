@@ -211,12 +211,12 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-11-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228411498
+<br>【MediaFire】：http://yabuilder.com/4pfs
+<br>【MediaFire】：http://www.linkbucks.com/A92nN
+<br>【百度網盤】：http://yabuilder.com/4pi1
+<br>【百度網盤】：http://www.linkbucks.com/A92m3
+<br>【百度密碼】：gi5a
 
 <br>【節目名稱】：歐陽志強.2017-11-15
 <br>【節目頻道】：商業電台.叱咤903
@@ -236,12 +236,12 @@
 <br>【節目話題】：
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-15
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228413983
+<br>【MediaFire】：http://yabuilder.com/4pku
+<br>【MediaFire】：http://www.linkbucks.com/A92mN
+<br>【百度網盤】：http://yabuilder.com/4pmB
+<br>【百度網盤】：http://www.linkbucks.com/A92l8
+<br>【百度密碼】：ddic
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-15
 <br>【節目頻道】：商業電台.叱咤903
