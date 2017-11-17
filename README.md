@@ -175,85 +175,85 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624638
+<br>【MediaFire】：http://yabuilder.com/7zfq
+<br>【MediaFire】：http://www.linkbucks.com/A9VOb
+<br>【百度網盤】：http://yabuilder.com/7zhS
+<br>【百度網盤】：http://www.linkbucks.com/A9VOJ
+<br>【百度密碼】：594e
 
 <br>【節目名稱】：集雜志.2017-11-17
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624916
+<br>【MediaFire】：http://yabuilder.com/814h
+<br>【MediaFire】：http://www.linkbucks.com/A9VCL
+<br>【百度網盤】：http://yabuilder.com/7zoj
+<br>【百度網盤】：http://www.linkbucks.com/A9VM0
+<br>【百度密碼】：8aiv
 
 <br>【節目名稱】：人民大道中.2017-11-17
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624850
+<br>【MediaFire】：http://yabuilder.com/7zpv
+<br>【MediaFire】：http://www.linkbucks.com/A9VMr
+<br>【百度網盤】：http://yabuilder.com/7zrO
+<br>【百度網盤】：http://www.linkbucks.com/A9VMg
+<br>【百度密碼】：c8ri
 
 <br>【節目名稱】：生活日常.2017-11-17
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624841
+<br>【MediaFire】：http://yabuilder.com/7zt2
+<br>【MediaFire】：http://www.linkbucks.com/A9VMF
+<br>【百度網盤】：http://yabuilder.com/7zuS
+<br>【百度網盤】：http://www.linkbucks.com/A9VME
+<br>【百度密碼】：esx6
 
 <br>【節目名稱】：杏林茶.2017-11-17
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624911
+<br>【MediaFire】：http://yabuilder.com/7zw4
+<br>【MediaFire】：http://www.linkbucks.com/A9VMC
+<br>【百度網盤】：http://yabuilder.com/7zwy
+<br>【百度網盤】：http://www.linkbucks.com/A9VMA
+<br>【百度密碼】：scgp
 
 <br>【節目名稱】：串.2017-11-17
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：江歌案法庭未判 內地鍵盤戰士已於網上開庭判決
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228624886
+<br>【MediaFire】：http://yabuilder.com/7zxt
+<br>【MediaFire】：http://www.linkbucks.com/A9VL8
+<br>【百度網盤】：http://yabuilder.com/8002
+<br>【百度網盤】：http://www.linkbucks.com/A9VL5
+<br>【百度密碼】：3fv3
 
 <br>【節目名稱】：雲妮鍾情.2017-11-17
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228631132
+<br>【MediaFire】：http://yabuilder.com/81mN
+<br>【MediaFire】：http://www.linkbucks.com/A9U4u
+<br>【百度網盤】：http://yabuilder.com/81ne
+<br>【百度網盤】：http://www.linkbucks.com/A9U4f
+<br>【百度密碼】：fs3r
 
 <br>【節目名稱】：歐陽志強.2017-11-17
 <br>【節目頻道】：商業電台.叱咤903
@@ -272,25 +272,25 @@
 <br>【節目主持】：項明生 | 馮志豐
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：The Explorer.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228631110
+<br>【MediaFire】：http://yabuilder.com/81gc
+<br>【MediaFire】：http://www.linkbucks.com/A9U5E
+<br>【百度網盤】：http://yabuilder.com/81hq
+<br>【百度網盤】：http://www.linkbucks.com/A9U42
+<br>【百度密碼】：3vfc
 
 <br>【節目名稱】：光明頂.2017-11-17
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目話題】：不詳
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-17
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228631094
+<br>【MediaFire】：http://yabuilder.com/81e7
+<br>【MediaFire】：http://www.linkbucks.com/A9U5K
+<br>【百度網盤】：http://yabuilder.com/81fH
+<br>【百度網盤】：http://www.linkbucks.com/A9U5J
+<br>【百度密碼】：qea7
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-17
 <br>【節目頻道】：商業電台.叱咤903
