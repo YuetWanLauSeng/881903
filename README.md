@@ -90,55 +90,67 @@
 <br>【節目主持】：Donald
 <br>【節目時間】：11:00 - 13:00
 <br>【檔案名稱】：903 Top 20.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228686362
+<br>【MediaFire】：http://yabuilder.com/91Y8
+<br>【MediaFire】：http://www.linkbucks.com/A9uDT
+<br>【百度網盤】：http://yabuilder.com/91eq
+<br>【百度網盤】：http://www.linkbucks.com/A9uCY
+<br>【百度密碼】：94cw
 
 <br>【節目名稱】：中風危機解密.2017-11-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：阮子健
 <br>【節目時間】：12:00 - 13:00
 <br>【檔案名稱】：Stroke Decryption.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228686439
+<br>【MediaFire】：http://yabuilder.com/91gf
+<br>【MediaFire】：http://www.linkbucks.com/A9uCX
+<br>【百度網盤】：http://yabuilder.com/91hh
+<br>【百度網盤】：http://www.linkbucks.com/A9uCT
+<br>【百度密碼】：xvqf
 
 <br>【節目名稱】：電影圈.2017-11-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：馮志豐 | 鄔家麟
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Movies.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228686373
+<br>【MediaFire】：http://yabuilder.com/91jN
+<br>【MediaFire】：http://www.linkbucks.com/A9uCJ
+<br>【百度網盤】：http://yabuilder.com/91kY
+<br>【百度網盤】：http://www.linkbucks.com/A9uCA
+<br>【百度密碼】：92ve
 
 <br>【節目名稱】：咪芝蓮.2017-11-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：小儀
-<br>【節目嘉賓】：
+<br>【節目嘉賓】：馬天佑
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Mr Chef.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228686405
+<br>【MediaFire】：http://yabuilder.com/91lK
+<br>【MediaFire】：http://www.linkbucks.com/A9uB8
+<br>【百度網盤】：http://yabuilder.com/91nC
+<br>【百度網盤】：http://www.linkbucks.com/A9uB7
+<br>【百度密碼】：2e66
 
 <br>【節目名稱】：咆哮山莊.2017-11-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：903DJ
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：903 Band Time.2017-11-18
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228685910
+<br>【MediaFire】：http://yabuilder.com/91o7
+<br>【MediaFire】：http://www.linkbucks.com/A9uBy
+<br>【百度網盤】：http://yabuilder.com/91pC
+<br>【百度網盤】：http://www.linkbucks.com/A9uBr
+<br>【百度密碼】：d1iy
+
+<br>【節目名稱】：1圈圈（周末版）.2017-11-18
+<br>【節目頻道】：商業電台.雷霆881
+<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
+<br>【節目時間】：14:00 - 16:00
+<br>【檔案名稱】：Circles.2017-11-18
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
@@ -146,11 +158,23 @@
 <br>【百度網盤】：
 <br>【百度密碼】：
 
-<br>【節目名稱】：1圈圈（周末版）.2017-11-18
+<br>【節目名稱】：貼身科技局.2017-11-18
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：樂樂 | 阮兆祥 | 鄧潔明
-<br>【節目時間】：14:00 - 17:00
-<br>【檔案名稱】：Circles.2017-11-18
+<br>【節目主持】：譚嘉昇
+<br>【節目時間】：16:00 - 16:30
+<br>【檔案名稱】：Daily i.t. Bureau.2017-11-18
+<br>【城通網盤】：
+<br>【MediaFire】：
+<br>【MediaFire】：
+<br>【百度網盤】：
+<br>【百度網盤】：
+<br>【百度密碼】：
+
+<br>【節目名稱】：再創生機.2017-11-18
+<br>【節目頻道】：商業電台.雷霆881
+<br>【節目主持】：余宜發
+<br>【節目時間】：16:30 - 17:00
+<br>【檔案名稱】：Hair Again.2017-11-18
 <br>【城通網盤】：
 <br>【MediaFire】：
 <br>【MediaFire】：
