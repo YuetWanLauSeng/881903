@@ -223,48 +223,48 @@
 <br>【節目主持】：朱菁 | 黃日安
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Silver Age Club.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228716493
+<br>【MediaFire】：http://yabuilder.com/AQQ9
+<br>【MediaFire】：http://www.linkbucks.com/Zr0x
+<br>【百度網盤】：http://yabuilder.com/AQRA
+<br>【百度網盤】：http://www.linkbucks.com/Zr0v
+<br>【百度密碼】：h3kr
 
 <br>【節目名稱】：西瓜大發.2017-11-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：西瓜
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：WonderMelon.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228716510
+<br>【MediaFire】：http://yabuilder.com/AQT5
+<br>【MediaFire】：http://www.linkbucks.com/Zr0o
+<br>【百度網盤】：http://yabuilder.com/AQUV
+<br>【百度網盤】：http://www.linkbucks.com/Zr0m
+<br>【百度密碼】：75iy
 
 <br>【節目名稱】：雷霆音樂圈.2017-11-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：楊美琪
 <br>【節目時間】：20:00 - 23:00
 <br>【檔案名稱】：881 Music Station.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228716371
+<br>【MediaFire】：http://yabuilder.com/AQWX
+<br>【MediaFire】：http://www.linkbucks.com/ZoVr
+<br>【百度網盤】：http://yabuilder.com/AQXR
+<br>【百度網盤】：http://www.linkbucks.com/ZoVi
+<br>【百度密碼】：y2n1
 
 <br>【節目名稱】：Chi Chung's Class.2017-11-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：黃志淙
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Chi Chung's Class.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228716440
+<br>【MediaFire】：http://yabuilder.com/AQYC
+<br>【MediaFire】：http://www.linkbucks.com/ZoVg
+<br>【百度網盤】：http://yabuilder.com/AQZF
+<br>【百度網盤】：http://www.linkbucks.com/ZoVd
+<br>【百度密碼】：k2ku
 
 <br>【節目名稱】：與時並進.2017-11-18
 <br>【節目頻道】：商業電台.雷霆881
@@ -272,59 +272,59 @@
 <br>【節目主持】：時美真
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Education Forum.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228755745
+<br>【MediaFire】：http://yabuilder.com/AQb3
+<br>【MediaFire】：http://www.linkbucks.com/ZoVW
+<br>【百度網盤】：http://yabuilder.com/AQby
+<br>【百度網盤】：http://www.linkbucks.com/ZoVU
+<br>【百度密碼】：rdry
 
 <br>【節目名稱】：公子會.2017-11-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目日期】：2017-11-18
 <br>【節目主持】：森美
-<br>【節目嘉賓】：
+<br>【節目嘉賓】：董嘉儀
 <br>【節目時間】：23:00 - 01:00
 <br>【檔案名稱】：The Playtoy Mansion.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228755913
+<br>【MediaFire】：http://yabuilder.com/AQgk
+<br>【MediaFire】：http://www.linkbucks.com/ZjXy
+<br>【百度網盤】：http://yabuilder.com/AQi3
+<br>【百度網盤】：http://www.linkbucks.com/ZjXv
+<br>【百度密碼】：bqsf
 
 <br>【節目名稱】：發式生活.2017-11-18
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：余宜發
 <br>【節目時間】：00:30 - 02:00
 <br>【檔案名稱】：Fat’s Lifestyle.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228755766
+<br>【MediaFire】：http://yabuilder.com/AQoB
+<br>【MediaFire】：http://www.linkbucks.com/Iyls
+<br>【百度網盤】：http://yabuilder.com/AQqr
+<br>【百度網盤】：http://www.linkbucks.com/3JR
+<br>【百度密碼】：nxkw
 
 <br>【節目名稱】：皇牌出場.2017-11-18
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Marco | Keyman
 <br>【節目時間】：01:00 - 02:00
 <br>【檔案名稱】：Losing Eleven.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228755822
+<br>【MediaFire】：http://yabuilder.com/AQsG
+<br>【MediaFire】：http://www.linkbucks.com/A9dzP
+<br>【百度網盤】：http://yabuilder.com/AQtB
+<br>【百度網盤】：http://www.linkbucks.com/A9dy9
+<br>【百度密碼】：cfhe
 
 <br>【節目名稱】：一切從音樂開始.2017-11-18
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 蔡靜怡 | 江慧楓
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-11-18
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228755731
+<br>【MediaFire】：http://yabuilder.com/AQue
+<br>【MediaFire】：http://www.linkbucks.com/A9dyw
+<br>【百度網盤】：http://yabuilder.com/AQwJ
+<br>【百度網盤】：http://www.linkbucks.com/A9dyp
+<br>【百度密碼】：eac3
