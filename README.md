@@ -102,37 +102,37 @@
 <br>【節目主持】：朱薰 | 泰山
 <br>【節目時間】：15:00 - 17:00
 <br>【檔案名稱】：Kiss Kiss Kids.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228823445
+<br>【MediaFire】：http://yabuilder.com/AvbM
+<br>【MediaFire】：http://www.linkbucks.com/A9ast
+<br>【百度網盤】：http://yabuilder.com/Avdg
+<br>【百度網盤】：http://www.linkbucks.com/A9asa
+<br>【百度密碼】：2bv2
 
 <br>【節目名稱】：Mali Mali Home.2017-11-19
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：麻利亞
 <br>【節目時間】：17:00 - 19:00
 <br>【檔案名稱】：Mali Mali Home.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228823489
+<br>【MediaFire】：http://yabuilder.com/Avfc
+<br>【MediaFire】：http://www.linkbucks.com/A9asW
+<br>【百度網盤】：http://yabuilder.com/AviM
+<br>【百度網盤】：http://www.linkbucks.com/A9asO
+<br>【百度密碼】：7fa2
 
 <br>【節目名稱】：串.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：國情教育—江澤民
 <br>【節目時間】：18:30 - 19:00
 <br>【檔案名稱】：Sino Stream.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228823537
+<br>【MediaFire】：http://yabuilder.com/AvkC
+<br>【MediaFire】：http://www.linkbucks.com/A9ar8
+<br>【百度網盤】：http://yabuilder.com/AvmS
+<br>【百度網盤】：http://www.linkbucks.com/A9art
+<br>【百度密碼】：dpwb
 
 <br>【節目名稱】：讀懂中國.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881
@@ -140,12 +140,12 @@
 <br>【節目話題】：
 <br>【節目時間】：19:00 - 20:00
 <br>【檔案名稱】：Sino Stream - Reading.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228826399
+<br>【MediaFire】：http://yabuilder.com/Avol
+<br>【MediaFire】：http://www.linkbucks.com/A9arP
+<br>【百度網盤】：http://yabuilder.com/Avpz
+<br>【百度網盤】：http://www.linkbucks.com/A9arN
+<br>【百度密碼】：pwxn
 
 <br>【節目名稱】：國語類.2017-11-19
 <br>【節目頻道】：商業電台.叱咤903
