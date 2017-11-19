@@ -152,60 +152,60 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：Bo Po Mo Fo.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228855992
+<br>【MediaFire】：http://yabuilder.com/B8OE
+<br>【MediaFire】：http://www.linkbucks.com/A9ZHt
+<br>【百度網盤】：http://yabuilder.com/B8PG
+<br>【百度網盤】：http://www.linkbucks.com/A9ZHe
+<br>【百度密碼】：ft9c
 
 <br>【節目名稱】：泡菜粉絲煲.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：伍甄琪 | 伍悅
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Kimchi Fans Club.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228858048
+<br>【MediaFire】：http://yabuilder.com/B8Qu
+<br>【MediaFire】：http://www.linkbucks.com/A9ZHN
+<br>【百度網盤】：http://yabuilder.com/B8SY
+<br>【百度網盤】：http://www.linkbucks.com/A9ZHD
+<br>【百度密碼】：2v4n
 
 <br>【節目名稱】：細路強.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：麥詠宜 | 馮志豐 | 陳聰 | 鄔家麟 
 <br>【節目時間】：21:00 - 22:00 
 <br>【檔案名稱】：Mighty Kids Mighty Parents.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228858486
+<br>【MediaFire】：http://yabuilder.com/B8To
+<br>【MediaFire】：http://www.linkbucks.com/A9ZGq
+<br>【百度網盤】：http://yabuilder.com/B8Ut
+<br>【百度網盤】：http://www.linkbucks.com/A9ZGg
+<br>【百度密碼】：gedc
 
 <br>【節目名稱】：國民教育.2017-11-19
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：健吾
 <br>【節目時間】：21:00 - 23:00
 <br>【檔案名稱】：Time's Up Pen's Down.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228859619
+<br>【MediaFire】：http://yabuilder.com/B8Wk
+<br>【MediaFire】：http://www.linkbucks.com/A9ZGR
+<br>【百度網盤】：http://yabuilder.com/B8Y4
+<br>【百度網盤】：http://www.linkbucks.com/A9ZGE
+<br>【百度密碼】：id6e
 
 <br>【節目名稱】：薯片鬚Music.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：曾俊華
 <br>【節目時間】：22:00 - 23:00
 <br>【檔案名稱】：Mr Chip's Soul Music.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228858648
+<br>【MediaFire】：http://yabuilder.com/B8as
+<br>【MediaFire】：http://www.linkbucks.com/A9ZF1
+<br>【百度網盤】：http://yabuilder.com/B8cg
+<br>【百度網盤】：http://www.linkbucks.com/A9ZFu
+<br>【百度密碼】：uz2y
 
 <br>【節目名稱】：葛民教育.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881
