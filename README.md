@@ -79,12 +79,12 @@
 <br>【節目嘉賓】：
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228942272
+<br>【MediaFire】：http://yamechanic.com/Urh
+<br>【MediaFire】：http://www.linkbucks.com/Ziv6
+<br>【百度網盤】：http://yamechanic.com/UuB
+<br>【百度網盤】：http://www.linkbucks.com/ZisI
+<br>【百度密碼】：phem
 
 <br>【節目名稱】：十八樓C座.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
@@ -92,12 +92,12 @@
 <br>【節目話題】：
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228941216
+<br>【MediaFire】：http://yamechanic.com/UyO
+<br>【MediaFire】：http://www.linkbucks.com/Zikz
+<br>【百度網盤】：http://yamechanic.com/V3U
+<br>【百度網盤】：http://www.linkbucks.com/Zic9
+<br>【百度密碼】：41j4
 
 <br>【節目名稱】：叱咤樂壇.2017-11-20
 <br>【節目頻道】：商業電台.叱咤903
