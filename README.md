@@ -234,64 +234,64 @@
 <br>【節目名稱】：串.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：北京大火十九人死，全因當局賤視人命！
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229053090
+<br>【MediaFire】：http://yamechanic.com/1Ihu
+<br>【MediaFire】：http://www.linkbucks.com/A9iOf
+<br>【百度網盤】：http://yamechanic.com/1IjF
+<br>【百度網盤】：http://www.linkbucks.com/A9iOE
+<br>【百度密碼】：4q51
 
 <br>【節目名稱】：雲妮鍾情.2017-11-20
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229069877
+<br>【MediaFire】：http://yamechanic.com/1JyR
+<br>【MediaFire】：http://www.linkbucks.com/A9iE4
+<br>【百度網盤】：http://yamechanic.com/1Ilv
+<br>【百度網盤】：http://www.linkbucks.com/A9iN4
+<br>【百度密碼】：1ium
 
 <br>【節目名稱】：歐陽志強.2017-11-20
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229069050
+<br>【MediaFire】：http://yamechanic.com/1Io7
+<br>【MediaFire】：http://www.linkbucks.com/A9iNn
+<br>【百度網盤】：http://yamechanic.com/1Iq5
+<br>【百度網盤】：http://www.linkbucks.com/A9iNY
+<br>【百度密碼】：jkqn
 
 <br>【節目名稱】：聽楓的歌.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：江慧楓
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Maple Swing.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229069600
+<br>【MediaFire】：http://yamechanic.com/1IsX
+<br>【MediaFire】：http://www.linkbucks.com/A9iNA
+<br>【百度網盤】：http://yamechanic.com/1IuF
+<br>【百度網盤】：http://www.linkbucks.com/A9iMt
+<br>【百度密碼】：3qb9
 
 <br>【節目名稱】：光明頂.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目主持】：陶傑 | 鮑偉聰
+<br>【節目話題】：購槍風雲
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229070467
+<br>【MediaFire】：http://yamechanic.com/1JNI
+<br>【MediaFire】：http://www.linkbucks.com/A9iJB
+<br>【百度網盤】：http://yamechanic.com/1Ixk
+<br>【百度網盤】：http://www.linkbucks.com/A9iMJ
+<br>【百度密碼】：pnh1
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-20
 <br>【節目頻道】：商業電台.叱咤903
