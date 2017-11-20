@@ -212,57 +212,57 @@
 <br>【節目主持】：葛民輝
 <br>【節目時間】：23:00 - 23:30
 <br>【檔案名稱】：Kot’s ology.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228882872
+<br>【MediaFire】：http://yamechanic.com/BET
+<br>【MediaFire】：http://www.linkbucks.com/bqkv
+<br>【百度網盤】：http://yamechanic.com/BHG
+<br>【百度網盤】：http://www.linkbucks.com/bkjn
+<br>【百度密碼】：ft48
 
 <br>【節目名稱】：短期租約.2017-11-19
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Wasabi
 <br>【節目時間】：23:00 - 02:00
 <br>【檔案名稱】：Short-term Lease.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228882935
+<br>【MediaFire】：http://yamechanic.com/BJL
+<br>【MediaFire】：http://www.linkbucks.com/bi2S
+<br>【百度網盤】：http://yamechanic.com/BKZ
+<br>【百度網盤】：http://www.linkbucks.com/bb7v
+<br>【百度密碼】：kvuh
 
 <br>【節目名稱】：心靈料理.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：劉丹心 | 伍甄琪
 <br>【節目時間】：23:30 - 01:00
 <br>【檔案名稱】：Feed Your Soul.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228882870
+<br>【MediaFire】：http://yamechanic.com/BNk
+<br>【MediaFire】：http://www.linkbucks.com/bQST
+<br>【百度網盤】：http://yamechanic.com/BQG
+<br>【百度網盤】：http://www.linkbucks.com/bL3n
+<br>【百度密碼】：yg9p
 
-<br>【節目名稱】：寫生活.2017-11-19
+<br>【節目名稱】：都是我的流行曲.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：881DJ
+<br>【節目主持】：江健聰
 <br>【節目時間】：01:00 - 02:00
-<br>【檔案名稱】：Bedtime Readings.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【檔案名稱】：My Cup of Music.2017-11-19
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228882876
+<br>【MediaFire】：http://yamechanic.com/BT9
+<br>【MediaFire】：http://www.linkbucks.com/bICL
+<br>【百度網盤】：http://yamechanic.com/BVA
+<br>【百度網盤】：http://www.linkbucks.com/a8jg
+<br>【百度密碼】：tghv
 
 <br>【節目名稱】：一切從音樂開始.2017-11-19
 <br>【節目頻道】：商業電台.雷霆881 & 叱咤903
 <br>【節目主持】：余宜發 | 林偉豪 | 蔡靜怡
 <br>【節目時間】：02:00 - 06:00
 <br>【檔案名稱】：Begin with Music.2017-11-19
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228882864
+<br>【MediaFire】：http://yamechanic.com/BYU
+<br>【MediaFire】：http://www.linkbucks.com/a7Gg
+<br>【百度網盤】：http://yamechanic.com/BZn
+<br>【百度網盤】：http://www.linkbucks.com/avHF
+<br>【百度密碼】：yza7
