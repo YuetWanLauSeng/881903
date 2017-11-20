@@ -76,7 +76,7 @@
 <br>【節目名稱】：1圈圈.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
-<br>【節目嘉賓】：
+<br>【節目嘉賓】：關心妍
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-11-20
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228942272
@@ -89,7 +89,7 @@
 <br>【節目名稱】：十八樓C座.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
+<br>【節目話題】：不詳
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-11-20
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-228941216
@@ -188,48 +188,48 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229039434
+<br>【MediaFire】：http://yamechanic.com/17R9
+<br>【MediaFire】：http://www.linkbucks.com/A9jll
+<br>【百度網盤】：http://yamechanic.com/17Tv
+<br>【百度網盤】：http://www.linkbucks.com/A9jlY
+<br>【百度密碼】：4em2
 
 <br>【節目名稱】：人民大道中.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229039232
+<br>【MediaFire】：http://yamechanic.com/17Vr
+<br>【MediaFire】：http://www.linkbucks.com/A9jlT
+<br>【百度網盤】：http://yamechanic.com/17k5
+<br>【百度網盤】：http://www.linkbucks.com/A9jjh
+<br>【百度密碼】：kq6c
 
 <br>【節目名稱】：生活日常.2017-11-20
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229039131
+<br>【MediaFire】：http://yamechanic.com/17mI
+<br>【MediaFire】：http://www.linkbucks.com/A9ji6
+<br>【百度網盤】：http://yamechanic.com/17oO
+<br>【百度網盤】：http://www.linkbucks.com/A9jii
+<br>【百度密碼】：7zvc
 
 <br>【節目名稱】：杏林茶.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-11-20
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229039326
+<br>【MediaFire】：http://yamechanic.com/17q9
+<br>【MediaFire】：http://www.linkbucks.com/A9jiY
+<br>【百度網盤】：http://yamechanic.com/17rl
+<br>【百度網盤】：http://www.linkbucks.com/A9jiV
+<br>【百度密碼】：w26g
 
 <br>【節目名稱】：串.2017-11-20
 <br>【節目頻道】：商業電台.雷霆881
