@@ -76,7 +76,7 @@
 <br>【節目名稱】：1圈圈.2017-11-21
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
-<br>【節目嘉賓】：
+<br>【節目嘉賓】：黎小田
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-11-21
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229158263
@@ -188,61 +188,61 @@
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229210511
+<br>【MediaFire】：http://yamechanic.com/2sEt
+<br>【MediaFire】：http://www.linkbucks.com/Zo4W
+<br>【百度網盤】：http://yamechanic.com/2sGG
+<br>【百度網盤】：http://www.linkbucks.com/Zo4V
+<br>【百度密碼】：ejgs
 
 <br>【節目名稱】：人民大道中.2017-11-21
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229210451
+<br>【MediaFire】：http://yamechanic.com/2sI9
+<br>【MediaFire】：http://www.linkbucks.com/Zo4E
+<br>【百度網盤】：http://yamechanic.com/2sKX
+<br>【百度網盤】：http://www.linkbucks.com/Zo3K
+<br>【百度密碼】：6916
 
 <br>【節目名稱】：生活日常.2017-11-21
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229210412
+<br>【MediaFire】：http://yamechanic.com/2sMR
+<br>【MediaFire】：http://www.linkbucks.com/Zo2T
+<br>【百度網盤】：http://yamechanic.com/2sNk
+<br>【百度網盤】：http://www.linkbucks.com/Zo17
+<br>【百度密碼】：qwt8
 
 <br>【節目名稱】：杏林茶.2017-11-21
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：Dr. Tim | 阮子健 | 熊書頤
 <br>【節目時間】：20:00 - 21:00
 <br>【檔案名稱】：Tea For You.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229210483
+<br>【MediaFire】：http://yamechanic.com/2sP8
+<br>【MediaFire】：http://www.linkbucks.com/ZoUt
+<br>【百度網盤】：http://yamechanic.com/2sQG
+<br>【百度網盤】：http://www.linkbucks.com/ZoTl
+<br>【百度密碼】：wjm8
 
 <br>【節目名稱】：串.2017-11-21
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：「豆腐渣」最強高鐵真相揭不得！
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229211717
+<br>【MediaFire】：http://yamechanic.com/2sSF
+<br>【MediaFire】：http://www.linkbucks.com/ZoTj
+<br>【百度網盤】：http://yamechanic.com/2sTc
+<br>【百度網盤】：http://www.linkbucks.com/ZoTc
+<br>【百度密碼】：64v2
 
 <br>【節目名稱】：雲妮鍾情.2017-11-21
 <br>【節目頻道】：商業電台.叱咤903
