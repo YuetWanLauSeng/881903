@@ -176,12 +176,12 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-11-20
-<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229000093
-<br>【MediaFire】：http://yamechanic.com/uit
-<br>【MediaFire】：http://www.linkbucks.com/A9ktQ
-<br>【百度網盤】：http://yamechanic.com/ulS
-<br>【百度網盤】：http://www.linkbucks.com/A9ks4
-<br>【百度密碼】：u6tw
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229110239
+<br>【MediaFire】：http://yamechanic.com/1zdV
+<br>【MediaFire】：http://www.linkbucks.com/A9nkH
+<br>【百度網盤】：http://yamechanic.com/1zcN
+<br>【百度網盤】：http://www.linkbucks.com/A9nkT
+<br>【百度密碼】：2xbk
 
 <br>【節目名稱】：集雜志.2017-11-20
 <br>【節目頻道】：商業電台.叱咤903
