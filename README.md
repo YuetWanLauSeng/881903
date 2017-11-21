@@ -249,49 +249,49 @@
 <br>【節目主持】：Vani
 <br>【節目時間】：21:00 - 22:30
 <br>【檔案名稱】：Vanila Sky.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229219034
+<br>【MediaFire】：http://yamechanic.com/30Iz
+<br>【MediaFire】：http://www.linkbucks.com/CXXVi
+<br>【百度網盤】：http://yamechanic.com/30Ku
+<br>【百度網盤】：http://www.linkbucks.com/CXXVh
+<br>【百度密碼】：mp2g
 
 <br>【節目名稱】：歐陽志強.2017-11-21
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229218913
+<br>【MediaFire】：http://yamechanic.com/30ML
+<br>【MediaFire】：http://www.linkbucks.com/CXXUK
+<br>【百度網盤】：http://yamechanic.com/30NY
+<br>【百度網盤】：http://www.linkbucks.com/CXXUI
+<br>【百度密碼】：xsss
 
 <br>【節目名稱】：聽楓的歌.2017-11-21
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：江慧楓
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Maple Swing.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229218957
+<br>【MediaFire】：http://yamechanic.com/30Oy
+<br>【MediaFire】：http://www.linkbucks.com/CLnxF
+<br>【百度網盤】：http://yamechanic.com/30R0
+<br>【百度網盤】：http://www.linkbucks.com/CLnxA
+<br>【百度密碼】：ehey
 
 <br>【節目名稱】：光明頂.2017-11-21
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目話題】：待定
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-21
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229220470
+<br>【MediaFire】：http://yamechanic.com/30jf
+<br>【MediaFire】：http://www.linkbucks.com/CLnsw
+<br>【百度網盤】：http://yamechanic.com/30Ss
+<br>【百度網盤】：http://www.linkbucks.com/CLntf
+<br>【百度密碼】：ik26
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-21
 <br>【節目頻道】：商業電台.叱咤903
