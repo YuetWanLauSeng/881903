@@ -176,36 +176,36 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-11-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229342109
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/4f2e
+<br>【百度網盤】：http://www.linkbucks.com/BAcZW
+<br>【百度密碼】：yphs
 
 <br>【節目名稱】：集雜志.2017-11-22
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229342786
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/4f76
+<br>【百度網盤】：http://www.linkbucks.com/BAcWT
+<br>【百度密碼】：f35p
 
 <br>【節目名稱】：生活日常.2017-11-22
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：細So
 <br>【節目時間】：19:00 - 21:00
 <br>【檔案名稱】：My Daily Life.2017-11-22
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229342636
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/4f96
+<br>【百度網盤】：http://www.linkbucks.com/BAcVY
+<br>【百度密碼】：5y4i
 
 <br>【節目名稱】：雲妮鍾情.2017-11-22
 <br>【節目頻道】：商業電台.叱咤903
