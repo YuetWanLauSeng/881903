@@ -104,48 +104,48 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-11-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229293022
+<br>【MediaFire】：http://yamechanic.com/44iY
+<br>【MediaFire】：http://www.linkbucks.com/BAV3l
+<br>【百度網盤】：http://yamechanic.com/44jV
+<br>【百度網盤】：http://www.linkbucks.com/BAV3h
+<br>【百度密碼】：nt3s
 
 <br>【節目名稱】：一點叮一叮.2017-11-22
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-11-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229293081
+<br>【MediaFire】：http://yamechanic.com/44oV
+<br>【MediaFire】：http://www.linkbucks.com/BAV3I
+<br>【百度網盤】：http://yamechanic.com/44pz
+<br>【百度網盤】：http://www.linkbucks.com/BAV3C
+<br>【百度密碼】：fxu5
 
 <br>【節目名稱】：人生交叉盤.2017-11-22
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-11-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229293058
+<br>【MediaFire】：http://yamechanic.com/44rh
+<br>【MediaFire】：http://www.linkbucks.com/BAV2j
+<br>【百度網盤】：http://yamechanic.com/44sa
+<br>【百度網盤】：http://www.linkbucks.com/BAVyE
+<br>【百度密碼】：41r5
 
 <br>【節目名稱】：你好嘢.2017-11-22
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-11-22
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229293100
+<br>【MediaFire】：http://yamechanic.com/44th
+<br>【MediaFire】：http://www.linkbucks.com/BAVx3
+<br>【百度網盤】：http://yamechanic.com/44ug
+<br>【百度網盤】：http://www.linkbucks.com/BAVxz
+<br>【百度密碼】：qj4y
 
 <br>【節目名稱】：大玩派.2017-11-22
 <br>【節目頻道】：商業電台.雷霆881
