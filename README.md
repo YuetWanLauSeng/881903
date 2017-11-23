@@ -188,8 +188,8 @@
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-23
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229381253
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/6hu9
+<br>【MediaFire】：http://www.linkbucks.com/BAKk5
 <br>【百度網盤】：http://yamechanic.com/6Tgd
 <br>【百度網盤】：http://www.linkbucks.com/BASRm
 <br>【百度密碼】：xv51
@@ -233,12 +233,12 @@
 <br>【節目名稱】：串.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：潘小濤 | 何亦文 | 伍悅 | 江慧楓
-<br>【節目話題】：
+<br>【節目話題】：不詳
 <br>【節目時間】：22:00 - 22:30
 <br>【檔案名稱】：Sino Stream.2017-11-23
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229385707
-<br>【MediaFire】：
-<br>【MediaFire】：
+<br>【MediaFire】：http://yamechanic.com/6hj8
+<br>【MediaFire】：http://www.linkbucks.com/BAKv1
 <br>【百度網盤】：http://yamechanic.com/6bQv
 <br>【百度網盤】：http://www.linkbucks.com/BAOiZ
 <br>【百度密碼】：res3
@@ -246,51 +246,51 @@
 <br>【節目名稱】：雲妮鍾情.2017-11-23
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：Vani
-<br>【節目時間】：21:00 - 22:30
+<br>【節目時間】：21:00 - 22:00
 <br>【檔案名稱】：Vanila Sky.2017-11-23
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229387901
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/6i3D
+<br>【百度網盤】：http://www.linkbucks.com/BAKeq
+<br>【百度密碼】：7pkw
 
 <br>【節目名稱】：歐陽志強.2017-11-23
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：歐楊羚 | 司徒志強
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：From Girls To Ladies.2017-11-23
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229387848
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/6i9E
+<br>【百度網盤】：http://www.linkbucks.com/BAKbR
+<br>【百度密碼】：nnmi
 
 <br>【節目名稱】：聽楓的歌.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：江慧楓
 <br>【節目時間】：22:30 - 23:00
 <br>【檔案名稱】：Maple Swing.2017-11-23
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229387864
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/6i72
+<br>【百度網盤】：http://www.linkbucks.com/BAKcm
+<br>【百度密碼】：n3yf
 
 <br>【節目名稱】：光明頂.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
-<br>【節目主持】：陶傑
-<br>【節目話題】：
+<br>【節目主持】：陶傑 | 吳明德
+<br>【節目話題】：中國經濟
 <br>【節目時間】：23:00 - 00:00
 <br>【檔案名稱】：Summit.2017-11-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229387895
+<br>【MediaFire】：http://yamechanic.com/6iYQ
+<br>【MediaFire】：http://www.linkbucks.com/BAKOt
+<br>【百度網盤】：http://yamechanic.com/6i4u
+<br>【百度網盤】：http://www.linkbucks.com/BAKde
+<br>【百度密碼】：crn3
 
 <br>【節目名稱】：聖艾粒忌廉夜校.2017-11-23
 <br>【節目頻道】：商業電台.叱咤903
