@@ -76,7 +76,6 @@
 <br>【節目名稱】：1圈圈.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：阮兆祥 | 梁泰來 | 樂樂
-<br>【節目嘉賓】：
 <br>【節目時間】：10:30 - 12:00
 <br>【檔案名稱】：Circles.2017-11-23
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229365144
@@ -89,7 +88,7 @@
 <br>【節目名稱】：十八樓C座.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：金剛 | 陳慕賢 | 李錦 | 朱雪梅 | 馮志豐
-<br>【節目話題】：
+<br>【節目話題】：不詳
 <br>【節目時間】：12:30 - 13:00
 <br>【檔案名稱】：18F Block C.2017-11-23
 <br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229365062
@@ -104,48 +103,48 @@
 <br>【節目主持】：謝茜嘉 | 梁文禮
 <br>【節目時間】：12:00 - 14:00
 <br>【檔案名稱】：903 Music.2017-11-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229369662
+<br>【MediaFire】：http://yamechanic.com/6B3U
+<br>【MediaFire】：http://www.linkbucks.com/BAAEv
+<br>【百度網盤】：http://yamechanic.com/6B5F
+<br>【百度網盤】：http://www.linkbucks.com/BAAEq
+<br>【百度密碼】：nivc
 
 <br>【節目名稱】：一點叮一叮.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：何飛鳳
 <br>【節目時間】：13:00 - 14:00
 <br>【檔案名稱】：Lunch Special.2017-11-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229369758
+<br>【MediaFire】：http://yamechanic.com/6B7F
+<br>【MediaFire】：http://www.linkbucks.com/BAAEp
+<br>【百度網盤】：http://yamechanic.com/6B9S
+<br>【百度網盤】：http://www.linkbucks.com/BAAEn
+<br>【百度密碼】：rc8x
 
 <br>【節目名稱】：人生交叉盤.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：陳永陸 | 何永宜 | 郭思治 | 麥詠宜
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：Crosstrade.2017-11-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229369680
+<br>【MediaFire】：http://yamechanic.com/6BBd
+<br>【MediaFire】：http://www.linkbucks.com/BAAEi
+<br>【百度網盤】：http://yamechanic.com/6BCm
+<br>【百度網盤】：http://www.linkbucks.com/BAAEV
+<br>【百度密碼】：eygs
 
 <br>【節目名稱】：你好嘢.2017-11-23
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：朱薰
 <br>【節目時間】：14:00 - 15:00
 <br>【檔案名稱】：You Are The Best.2017-11-23
-<br>【城通網盤】：
-<br>【MediaFire】：
-<br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229369830
+<br>【MediaFire】：http://yamechanic.com/6BEr
+<br>【MediaFire】：http://www.linkbucks.com/BAAEQ
+<br>【百度網盤】：http://yamechanic.com/6BGv
+<br>【百度網盤】：http://www.linkbucks.com/BAAEP
+<br>【百度密碼】：rxju
 
 <br>【節目名稱】：大玩派.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
