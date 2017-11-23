@@ -175,36 +175,36 @@
 <br>【節目主持】：檸
 <br>【節目時間】：17:00 - 18:00
 <br>【檔案名稱】：Dokureioukoku.2017-11-23
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229381216
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/6TeJ
+<br>【百度網盤】：http://www.linkbucks.com/BASSn
+<br>【百度密碼】：4shx
 
 <br>【節目名稱】：集雜志.2017-11-23
 <br>【節目頻道】：商業電台.叱咤903
 <br>【節目主持】：急急子
 <br>【節目時間】：18:00 - 19:00
 <br>【檔案名稱】：Zine.2017-11-23
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229381253
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/6Tgd
+<br>【百度網盤】：http://www.linkbucks.com/BASRm
+<br>【百度密碼】：xv51
 
 <br>【節目名稱】：人民大道中.2017-11-23
 <br>【節目頻道】：商業電台.雷霆881
 <br>【節目主持】：黃永 | 健吾
 <br>【節目時間】：18:30 - 20:00
 <br>【檔案名稱】：Our Way Out.2017-11-23
-<br>【城通網盤】：
+<br>【城通網盤】：https://yuetwanlauseng.ctfile.com/fs/10715768-229381251
 <br>【MediaFire】：
 <br>【MediaFire】：
-<br>【百度網盤】：
-<br>【百度網盤】：
-<br>【百度密碼】：
+<br>【百度網盤】：http://yamechanic.com/6TkP
+<br>【百度網盤】：http://www.linkbucks.com/BASQf
+<br>【百度密碼】：kaw9
 
 <br>【節目名稱】：生活日常.2017-11-23
 <br>【節目頻道】：商業電台.叱咤903
